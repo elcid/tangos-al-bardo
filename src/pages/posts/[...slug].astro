@@ -1,0 +1,23 @@
+---
+import Layout from '../../layout/Layout.astro';
+import posts from '../../data/posts.json';
+import slugify from '../../lib/slugify';
+
+export async function getStaticPaths() {
+    return posts.map(p => ({
+        params: { slug: slugify(p.title) },
+        props:  { post: p }
+    }));
+}
+
+const { post } = Astro.props;
+---
+
+<Layout title={post.title}>
+    <article class="wrapper prose">
+        <h1>{post.title}</h1>
+        <time>{new Date(post.date).toLocaleDateString('es-AR')}</time>
+        <div set:html={post.body} />
+        <a href="/">← Volver</a>
+    </article>
+</Layout>

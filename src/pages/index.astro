@@ -1,16 +1,21 @@
 ---
 
+import posts from '../data/posts.json';
+import Layout from '../layout/Layout.astro';
+import slugify from '../lib/slugify';
+
 ---
 
-<html lang="en">
-	<head>
-		<meta charset="utf-8" />
-		<link rel="icon" type="image/svg+xml" href="/favicon.svg" />
-		<meta name="viewport" content="width=device-width" />
-		<meta name="generator" content={Astro.generator} />
-		<title>Astro</title>
-	</head>
-	<body>
-		<h1>Astro</h1>
-	</body>
-</html>
+<Layout title="Tangos al bardo">
+	<main class="wrapper">
+		<h1>Tangos al bardo</h1>
+		<ul class="post-list">
+			{posts.map(p => (
+				<li>
+					<a href={`/posts/${slugify(p.title)}/`}>{p.title}</a>
+					<time>{new Date(p.date).toLocaleDateString('es-AR')}</time>
+				</li>
+			))}
+		</ul>
+	</main>
+</Layout>

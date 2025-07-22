@@ -1,0 +1,6 @@
+body { font-family: system-ui, sans-serif; margin: 0; }
+.wrapper { max-width: 768px; margin: 0 auto; padding: 2rem; }
+.post-list { list-style: none; padding: 0; }
+.post-list li { margin: 0 0 1rem; }
+.post-list time { font-size: 0.8rem; color: #666; margin-left: 1rem; }
+.prose p { line-height: 1.6; }
