@@ -19,8 +19,11 @@ export const getStaticPaths = (async () => {
   const paths: any[] = [];
 
   for (const p of sortedPosts) {
+    // Astro 6: use p.id as slug fallback (glob loader may not set slug)
+    const postSlug = p.slug || p.id;
+    if (!postSlug) continue;
     paths.push({
-      params: { slug: p.slug },
+      params: { slug: postSlug },
       props: { type: "post", post: p },
     });
   }
@@ -54,7 +57,9 @@ let fecha = "";
 
 if (!isPage) {
   post = props.post;
-  Content = (await post.render()).Content;
+  // Astro 6: use render() from astro:content instead of post.render()
+  const { render } = await import('astro:content');
+  Content = (await render(post)).Content;
   title = post.data.title;
   date = post.data.date;
   original_url = post.data.original_url;

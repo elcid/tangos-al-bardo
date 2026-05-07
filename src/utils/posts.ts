@@ -30,7 +30,6 @@ export function getSortedPosts(
   return posts
     .filter(({ data }) => {
       if (import.meta.env.PROD) {
-        // In production, don't show future posts
         const pubDate = new Date(data.date);
         const now = new Date();
         now.setTime(now.getTime() - SITE.scheduledPostMargin);
