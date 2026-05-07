@@ -3,6 +3,7 @@ title: "Siga cantando nomás"
 date: "2025-10-20"
 original_url: https://tangosalbardo.blogspot.com/2025/10/siga-cantando-nomas.html
 labels: ""
+tags: ["Homero Expósito", "Carlos Gardel", "Lucio Demare"]
 ---
 
 En 1985, esta milonga de Héctor Negro y Carmen Guzmán ganó el primer premio del "Certamen Gardel de la canción". Fue compuesto con motivo del 50º aniversario del fallecimiento del Zorzal. El jurado lo integraban Héctor Stamponi, Oscar Cardozo Ocampo y Homero Expósito. Los versos son de Héctor Negro. ("*Como una luna de peinado liso / toda sonrisa de color de luna. / está su cara donde el pueblo quiso. / Está su voz, como ninguna...*")...

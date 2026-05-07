@@ -3,6 +3,7 @@ title: "La copa del olvido"
 date: "2014-10-08"
 original_url: https://tangosalbardo.blogspot.com/2014/10/la-copa-del-olvido.html
 labels: ""
+tags: ["Francisco García Jiménez", "Florindo Sassone", "Francisco Canaro", "Alberto Castillo", "Osvaldo Fresedo", "Enrique Delfino", "Ricardo Tanturi", "Hugo del Carril"]
 ---
 
 Este tango lo escribieron el sainetero y poeta Alberto Vaccarezza, con música del gran Enrique Delfino. Lo hicieron para el sainete *Cuando un pobre se divierte*, que se estrenó el 19 de octubre de 1921 en el Teatro Nacional de la calle Corrientes 860. Dirigía la obra Atilio Supparo, que además compuso numerosos temas para el lucimiento de cantores y cantantes. Con Salvador Merico hicieron ese hermoso tango: *¿Por dónde andará?*, del cual Jorge Casal hizo un gran creación en la orquesta de Florindo Sassone. Y Carlos Gardel, por supuesto, lo lanzó a la fama.

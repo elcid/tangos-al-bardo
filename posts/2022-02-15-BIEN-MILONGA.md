@@ -3,6 +3,7 @@ title: "BIEN MILONGA"
 date: "2022-02-15"
 original_url: https://tangosalbardo.blogspot.com/2022/02/bien-milonga_15.html
 labels: ""
+tags: ["Carlos Di Sarli", "Julio De Caro"]
 ---
 
 [![](https://blogger.googleusercontent.com/img/a/AVvXsEjPT1tqW0WXPlILB62cMgZXM9fAF777lamQHr-7g_WFudH-WQMvyl6PzlEoufNntCtvVGF-bhfW0lEMt3HmcUiK9B24bs7YGJMVSSYYC2tww7EoOxD8kOJQ_Y-4umehVG2U5lHpM9nE7J1nak8CK_64BM4bvHyBL3InURiGLBMr2dT8961003G3z6FTLA)](https://blogger.googleusercontent.com/img/a/AVvXsEjPT1tqW0WXPlILB62cMgZXM9fAF777lamQHr-7g_WFudH-WQMvyl6PzlEoufNntCtvVGF-bhfW0lEMt3HmcUiK9B24bs7YGJMVSSYYC2tww7EoOxD8kOJQ_Y-4umehVG2U5lHpM9nE7J1nak8CK_64BM4bvHyBL3InURiGLBMr2dT8961003G3z6FTLA=s300)

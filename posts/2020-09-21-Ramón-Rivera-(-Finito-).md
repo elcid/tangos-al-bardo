@@ -3,6 +3,7 @@ title: "Ramón Rivera (\"Finito\")"
 date: "2020-09-21"
 original_url: https://tangosalbardo.blogspot.com/2020/09/ramon-rivera-finito.html
 labels: ""
+tags: ["Aníbal Troilo"]
 ---
 
 *Un milonguero de lujo*

@@ -3,6 +3,7 @@ title: "La galaxia de Gardel"
 date: "2019-01-14"
 original_url: https://tangosalbardo.blogspot.com/2019/01/la-galaxia-de-gardel.html
 labels: ""
+tags: ["Enrique Santos Discépolo", "Edmundo Rivero", "Carlos Gardel"]
 ---
 
 Además de acompañar películas mudas, terminaría por meterme adentro de la pantalla, porque ya más adelante actué o canté en muchas películas argentinas, entre las cuales algunas que fueron grandes éxitos como *"El inglés de los güesos"," La importancia de llamarse Ernesto", "Fortín alto"* y muchas otras más, demasiadas más.

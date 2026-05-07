@@ -3,6 +3,7 @@ title: "Troilo en el Teatro Colón"
 date: "2014-11-11"
 original_url: https://tangosalbardo.blogspot.com/2014/11/troilo-en-el-teatro-colon.html
 labels: ""
+tags: ["Roberto Goyeneche", "Florindo Sassone", "Edmundo Rivero", "Horacio Salgán", "Aníbal Troilo", "Julián Plaza", "Lucio Demare"]
 ---
 
 Es uno de esos recuerdos que nunca se me borrará de la cabeza. Porque he bailado muchas veces con la Orquesta de Pichuco en vivo (lo sigo haciendo con sus grabaciones), lo he seguido en Caño 14, en Relieve, en Mar del Plata, he compartido charlas y cafés con él (bueno...copas), pero ese año 1972, cuando yo ni imaginaba que dos años más tarde me instalaría en Madrid, tuve la inmensa suerte de estar en Buenos Aires, viéndolo en aquella hermosa fiesta de tango en el Teatro Colón.

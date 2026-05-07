@@ -3,6 +3,7 @@ title: "Bailando con Ángel Vargas"
 date: "2013-08-24"
 original_url: https://tangosalbardo.blogspot.com/2013/08/bailando-con-angel-vargas.html
 labels: ""
+tags: ["Juan Andrés Caruso", "Celedonio Flores", "Carlos Gardel", "Ángel Vargas"]
 ---
 
 Lo decimos comúnmente: *Fui a bailar con Pugliese*. O: *bailé con Tanturi*. Incluso recuerdo hace años cuando íbamos a bailar al Palacio Rivadavia y en cada velada se bailaba con una orquesta determinada, pero en grabaciones. Se denominaba *Noches de Atenas* y como cortina utilizaban el vals de dicho nombre, compuesto por Horacio Pettorossi y grabado por Carlos Gardel, con acompañamiento de la orquesta dirigida por Alberto Castellano.

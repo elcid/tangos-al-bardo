@@ -3,6 +3,7 @@ title: "Milonga en rojo"
 date: "2020-07-31"
 original_url: https://tangosalbardo.blogspot.com/2020/07/milonga-en-rojo.html
 labels: ""
+tags: ["José González Castillo", "Leopoldo Federico", "Lucio Demare", "Julio Sosa"]
 ---
 
 Echo la mirada hacia atrás, cuando paraban los fruteros, el papero, el pollero y distintos vendedores en la puerta de casas y conventillos voceando su mercadería, a lo que las amas de casa rápidamente acudían para acamalar material en la despensa familiar. Especialmente en los barrios de gente de clases bajas e inmigrantes. José González Castillo, ese maestro de la pintura poética, con el lenguaje tan especial del género, que nos mostró como pocos los personajes, las pasiones y su visión de aquel Buenos Aires de comienzos del siglo pasado, nos instala en una postal de antaño.

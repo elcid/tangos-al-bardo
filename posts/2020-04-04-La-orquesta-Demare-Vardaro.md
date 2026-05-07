@@ -3,6 +3,7 @@ title: "La orquesta Demare-Vardaro"
 date: "2020-04-04"
 original_url: https://tangosalbardo.blogspot.com/2020/04/la-orquesta-demare-vardaro.html
 labels: ""
+tags: ["Juan Carlos Cobián", "Osvaldo Pugliese", "Enrique Delfino", "Lucio Demare", "Raúl Berón"]
 ---
 
 Es de lamentar que estas formaciones referenciales del tango, de músicos con una formación y un nivel muy altos, no nos hayan dejado una muestra de su creatividad infinita. Tanto Elvino Vardaro -para mí el número uno con su instrumento- como Lucio Demare (pianista de alto nivel, director de un conjunto que da gusto escuchar o bailar sus grabaciones, compositor exquisito) fueron dos grandes que en 1938 se aliaron para conformar una orquesta que debió tener mayor fortuna.

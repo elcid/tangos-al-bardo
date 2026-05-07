@@ -3,6 +3,7 @@ title: "Homero Manzi"
 date: "2016-09-21"
 original_url: https://tangosalbardo.blogspot.com/2016/09/homero-manzi.html
 labels: ""
+tags: ["Francisco Canaro", "Armando Pontier", "Cátulo Castillo", "Aníbal Troilo", "Homero Manzi", "Charlo"]
 ---
 
 El gran poeta del tango, en declaraciones a medios de prensa, a fines de 1936, decía cosas como éstas:

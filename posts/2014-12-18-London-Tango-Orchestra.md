@@ -3,6 +3,7 @@ title: "London Tango Orchestra"
 date: "2014-12-18"
 original_url: https://tangosalbardo.blogspot.com/2014/12/london-tango-orchestra.html
 labels: ""
+tags: ["Aníbal Troilo", "Julio De Caro", "Anselmo Aieta", "Homero Manzi", "Lucio Demare"]
 ---
 
 En varias oportunidades he comentado en estas páginas, la influencia que el Tango argentino ha tenido en el desarrollo profesional de músicos de distintas latitudes que han decidido adoptarlo como expresión artística. Y en su comunión espiritual con los Arolas, Troilo, De Caro, Di Sarli, Fresedo y tantos otros grandes del género, han sabido respetar las señas de identidad del mismo y lo interpretan con mucha pasión, aunque su formación haya sido absolutamente distinta.

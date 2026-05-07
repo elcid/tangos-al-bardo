@@ -3,6 +3,7 @@ title: "Sábado a la noche, tango"
 date: "2016-03-19"
 original_url: https://tangosalbardo.blogspot.com/2016/03/sabado-la-noche-tango.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Carlos Di Sarli"]
 ---
 
 Qué lejanas nos quedan aquellas noche del cincuenta, cuando íbamos a bailar en vivo con Pugliese, D'Arienzo, Troilo, Di Sarli, Gobbi y altri tanti... Tiempo de milonga, tiempo de recuerdos y tiempos de seguir vibrando en esta noche de fin de otoño en Madrid y el despunte de la primavera en los árboles, plantas y pájaros en celo. En nuestra milonguita de la Casa de Aragón, incluso aprovechamos los sábados para urdir alguna práctica rememorando épocas pasadas.

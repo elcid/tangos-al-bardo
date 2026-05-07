@@ -3,6 +3,7 @@ title: "La década del cuarenta"
 date: "2016-01-28"
 original_url: https://tangosalbardo.blogspot.com/2016/01/la-decada-del-cuarenta.html
 labels: ""
+tags: ["Francisco García Jiménez", "Enrique Santos Discépolo", "José María Contursi", "Domingo Federico", "Enrique Cadícamo", "Francisco Lomuto", "Cátulo Castillo", "Homero Expósito"]
 ---
 
 Se trata de la década milagrosa, casi mitológtica del tango, en la que confluyeron músicos, poetas, orquestas, cantores y las multitudes que seguían a todos estos conjuntos y silbaban y canturreaban sus éxitos de la semana por las calles de Buenos Aires. Fué la época en que se crearon una parva infinita de páginas que siguen vivitas y coleando en el alma de los tangueros y milongueros, por esa fuerza romántica, contagiante, vibrante, que nos acompañan hoy día con un vigor maravilloso.

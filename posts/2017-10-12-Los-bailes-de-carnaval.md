@@ -3,6 +3,7 @@ title: "Los bailes de carnaval"
 date: "2017-10-12"
 original_url: https://tangosalbardo.blogspot.com/2017/10/los-bailes-de-carnaval.html
 labels: ""
+tags: ["Enrique Santos Discépolo", "Luis Adolfo Sierra", "Roberto Goyeneche", "Francisco Canaro", "Arturo De Bassi", "Cátulo Castillo", "Sebastián Piana", "Edmundo Rivero"]
 ---
 
 Luis Adolfo Sierra ha sido una persona fundamental en los estudios de los orígenes y la evolución del tango en todos sus aspectos. Fue alumno de teoría musical de Sebastián Piana, y de bandoneón, de Pedro Maffia, cuyas enseñanzas contribuyeron a cimentar luego sus conocimientos técnicos como historiador y crítico del tango. Su inclinación temperamental lo incorporó a las corrientes evolucionistas del género, encabezadas al promediar la década del veinte por Julio De Caro.

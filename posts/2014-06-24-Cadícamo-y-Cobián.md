@@ -3,6 +3,7 @@ title: "Cadícamo y Cobián"
 date: "2014-06-24"
 original_url: https://tangosalbardo.blogspot.com/2014/06/cadicamo-y-cobian.html
 labels: ""
+tags: ["Juan Carlos Cobián", "Enrique Cadícamo", "Francisco Canaro", "Osvaldo Fresedo", "Carlos Di Sarli", "Luis Petrucelli", "Enrique Delfino", "Julio De Caro"]
 ---
 
 Fueron dos Grandes del tango, con Mayúscula. El poeta y el músico quedaron hermanados a través de aventuras, de noches lungas, copas, damiselas y sobre todo, de páginas que nunca terminan de gotear su carga clásica sobre bailarines y tangueros de la vieja y nuevas guardias. *Nostalgias, Los mareados, Carnavales de mi vida, Almita herida, El cantor de Buenos Aires, La casita de mis viejos, Niebla del Riachuelo, Mujer, Piropos, Pico de oro, Shusheta, Rubí, A par y agua, Snobismo, Salomé*, son algunas de sus obras en común, que iluminan el vademécum del género.

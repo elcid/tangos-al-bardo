@@ -3,6 +3,7 @@ title: "La gran etapa del tango (1)"
 date: "2025-09-26"
 original_url: https://tangosalbardo.blogspot.com/2025/09/la-gran-etapa-del-tango-1.html
 labels: ""
+tags: ["Alfredo De Angelis", "Eduardo Del Piano", "Carlos Di Sarli", "Roberto Rufino", "Enrique Campos", "Aníbal Troilo", "Julio Martel", "Floreal Ruiz"]
 ---
 
 Los bailes de carnaval permitían comprobar la popularidad de las distintas orquestas, contratadas muchas de ellas con más de un año de anticipación. En 1944 Carlos Di Sarli con Roberto Rufino, Aníbal Troilo con Fiorentino y Marino, y Tanturi con Enrique Campos recibieron veinte mil pesos cada uno por animar lo que se promocionaba con *8 Grandes Bailes* en los clubes Independiente, Racing y Huracán, respectivamente.

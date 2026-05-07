@@ -3,6 +3,7 @@ title: "Osvaldo Zotto"
 date: "2012-08-29"
 original_url: https://tangosalbardo.blogspot.com/2012/08/osvaldo-zotto.html
 labels: ""
+tags: ["Celedonio Flores", "Osvaldo Zotto"]
 ---
 
 Ayer hablaba de Miguel Ángel y recordaba de paso a su hermano Osvaldo fallecido prematuramente en el 2010, cuando apenas contaba 47 años y estaba en el momento cumbre de su carrera.

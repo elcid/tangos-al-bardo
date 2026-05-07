@@ -3,6 +3,7 @@ title: "Para lucirse"
 date: "2015-09-14"
 original_url: https://tangosalbardo.blogspot.com/2015/09/para-lucirse.html
 labels: ""
+tags: ["Aníbal Troilo", "Carlos Figari", "Mariano Mores", "Jorge Casal"]
 ---
 
 Este tango es fundamental para la trayectoria posterior de Ástor Piazzolla, porque da comienzo a la carrera del bandoneonista marplatense como compositor. Fue un puñetazo en la mesa, como un grito desesperado del incomprendido que pretendía cambiar el tango, darle un baño lustral, dotarlo de un lenguaje musical fundamentado en la sapiencia, un tango revolucionario que desdeñaría a la danza, aunque la danza sigue vivita y coleando.

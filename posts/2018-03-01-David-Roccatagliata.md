@@ -3,6 +3,7 @@ title: "David Roccatagliata"
 date: "2018-03-01"
 original_url: https://tangosalbardo.blogspot.com/2018/03/david-roccatagliata.html
 labels: ""
+tags: ["Juan Carlos Cobián", "Francisco Canaro", "Osvaldo Fresedo", "Enrique Delfino", "Eduardo Arolas", "Edgardo Donato", "Julio De Caro", "Roberto Firpo"]
 ---
 
 Cada tanto le echo una mirada hacia atrás, a la llamada *Guardia vieja* del tango, por los valores que nutrieron sus filas, por lo mucho que aportó al futuro del género, por las piezas que fueron generando en ese granero que hoy alimenta las milongas del mundo entero, y por los personajes que estuvieron desfilando a lo largo de su variopinta historia.

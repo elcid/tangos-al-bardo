@@ -3,6 +3,7 @@ title: "Lo vi en tus ojos"
 date: "2022-05-01"
 original_url: https://tangosalbardo.blogspot.com/2022/05/lo-vi-en-tus-ojos.html
 labels: ""
+tags: ["Carlos Dante"]
 ---
 
 Se trata de un tango que no ha tenido trascendencia, es uno más dentro de la impresionante maleza tanguera. En esa abundancia de temas que nos han dejado para la posteridad permanente, es normal que haya muchas páginas oscurecidas y que merecerían salir a la luz. Y conste que no me gusta presumir de "descubridor", porque en el tango está todo descubierto. Sobre todo si hablamos de la discográfica bailable, algo que me ocupa permanentemente.

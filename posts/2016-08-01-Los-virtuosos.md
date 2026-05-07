@@ -3,6 +3,7 @@ title: "Los virtuosos"
 date: "2016-08-01"
 original_url: https://tangosalbardo.blogspot.com/2016/08/los-virtuosos.html
 labels: ""
+tags: ["Luis Adolfo Sierra", "Pedro Laurenz", "Julio De Caro", "Pedro Maffia"]
 ---
 
 En el año 1936, la revista **Sintonía**, perteneciente a la Editorial Haynes, de recordada proyección por su periódicos y publicaciones diversas que enriquecieron la cultura popular -entre las que aportara el tango como elemento singular-, decidió realizar un plebiscito entre los lectores. El mismo tenía como finalidad elegir a los cinco mejores instrumentistas (2 bandoneonistas, 2 violinistas y un pianista) para convocar y realizar con ellos 4 grabaciones en el sello RCA Victor.

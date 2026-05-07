@@ -3,6 +3,7 @@ title: "Carmen del Moral"
 date: "2012-11-06"
 original_url: https://tangosalbardo.blogspot.com/2012/11/carmen-del-moral.html
 labels: ""
+tags: ["Juan Carlos Copes", "Francisco Canaro", "Francisco Lomuto", "Hugo del Carril", "Manuel Romero", "Charlo"]
 ---
 
 Curiosamente es una de las voces femeninas más olvidadas del tango, cuando en realidad integra el lote de las mejores cantantes del género y gran figura durante más de veinte años.

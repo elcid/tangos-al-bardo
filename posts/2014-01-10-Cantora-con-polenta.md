@@ -3,6 +3,7 @@ title: "Cantora con polenta"
 date: "2014-01-10"
 original_url: https://tangosalbardo.blogspot.com/2014/01/cantora-con-polenta.html
 labels: ""
+tags: ["Cátulo Castillo"]
 ---
 
 Esta mina de Avellaneda se llama Patricia Malanca, canta tangos con una de esas voces que guardan antiguas resonancias. Transmite un sentido mensaje musical y en su trayectoria artística, merodeó el rock y el neo tango. Pero realmente es una voz tanguera brava y con futuro.

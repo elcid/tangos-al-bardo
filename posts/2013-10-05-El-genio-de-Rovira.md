@@ -3,6 +3,7 @@ title: "El genio de Rovira"
 date: "2013-10-05"
 original_url: https://tangosalbardo.blogspot.com/2013/10/el-genio-de-rovira.html
 labels: ""
+tags: ["Alberto Castillo", "Armando Pontier", "Osmar Maderna", "Alfredo Gobbi", "Jorge Caldara", "Orlando Goñi", "Miguel Caló", "José Berón"]
 ---
 
 Es increíble que su sitio en el tango sea tan pequeño como su estatura física que no pasaba del metro cincuenta, en tanto que su talento musical ha sido enorme y haya caminado en paralelo, quizás, con Ástor Piazzolla, aunque la creatividad de éste último tuvo muchísimo más empuje pasional.

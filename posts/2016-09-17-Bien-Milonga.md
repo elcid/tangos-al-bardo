@@ -3,6 +3,7 @@ title: "Bien Milonga"
 date: "2016-09-17"
 original_url: https://tangosalbardo.blogspot.com/2016/09/bien-milonga_17.html
 labels: ""
+tags: ["Teófilo Ibáñez", "Juan D'Arienzo", "Héctor Mauré", "Miguel Caló"]
 ---
 
 El otoño madrileño está espiándonos desde atrás de los árboles y se va preparando para entrar en puntitas de pie, detrás de la eclosión del verano. De todos modos es una estación suave, tranquila, de clima agradable y me gusta como va pintando de ocre el follaje de los parques y calles, templándonos el ánimo ante la vista de los paisajes otoñales. Y, por sobre todo, invita a salir a bailar tango, y disfrutar en una buena pista de madera.

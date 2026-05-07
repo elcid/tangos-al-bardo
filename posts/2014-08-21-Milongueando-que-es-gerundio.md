@@ -3,6 +3,7 @@ title: "Milongueando que es gerundio"
 date: "2014-08-21"
 original_url: https://tangosalbardo.blogspot.com/2014/08/milongueando-que-es-gerundio.html
 labels: ""
+tags: ["Francisco Canaro", "Carlos Di Sarli", "Héctor Marcó", "Ángel Vargas"]
 ---
 
 Estoy con medio pie en la playa y preparándome para mandarme unas *mergulhidas* en el Mediterráneo. Pero, mientras voy armando la mochila escucho tangos de rompe y raja, unos valsecitos que me hacen derretir el cuore y unas milongas que me llevan a los saltos por la casa. Además pienso en mi Milonga a la que retorno el mes próximo y voy aceitando las tabas con esta música maravillosa.

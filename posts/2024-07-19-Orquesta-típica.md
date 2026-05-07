@@ -3,6 +3,7 @@ title: "Orquesta típica"
 date: "2024-07-19"
 original_url: https://tangosalbardo.blogspot.com/2024/07/orquesta-tipica.html
 labels: ""
+tags: ["Roberto Goyeneche", "Enrique Cadícamo", "Juan D'Arienzo", "Aníbal Troilo", "Vicente Greco", "León Benarós"]
 ---
 
 Enrique Cadícamo nació en Luján pero, instalado tempranamente en la capital, fue un porteño al mango, en su manera de vivir, caminar la noche, el centro, instalándose en el tango como un personaje de leyenda por todos los temas que compuso y se injertaron en el repertorio de las grandes orquestas típicas y cantantes. La lista de éxitos que ahormaron su perfil triunfador se refleja en el silbo de los porteños y el canto de los conventillos, las esquinas y clubes de barrio.

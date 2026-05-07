@@ -3,6 +3,7 @@ title: "Manzi y Malena"
 date: "2012-03-24"
 original_url: https://tangosalbardo.blogspot.com/2012/03/manzi-y-malena.html
 labels: ""
+tags: ["Aníbal Troilo", "Alfredo Gobbi", "Lucio Demare", "Homero Manzi"]
 ---
 
 * Con pasos apagados elegirá la esquina**

@@ -3,6 +3,7 @@ title: "Tierra querida"
 date: "2015-11-11"
 original_url: https://tangosalbardo.blogspot.com/2015/11/tierra-querida.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Francisco Canaro", "Julio De Caro"]
 ---
 
 Este es un tango que impone. Y no sólo eso, sino que uno se imagina en el exterior, lejos de su Buenos Aires querido y siente una tremenda nostalgia por todo aquello que dejó atrás y las vivencias que se atoran en la mente y en el cuore. En aquellos años en que Julio De Caro lo compuso, las fronteras se veían como algo lejano y complicado. Es fácil entender lo que sintió el gran compositor y renovador del tango en aquellos momentos, y lo que le surgió del alma al escribirlo.

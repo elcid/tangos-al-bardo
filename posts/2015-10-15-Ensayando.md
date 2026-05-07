@@ -3,6 +3,7 @@ title: "Ensayando"
 date: "2015-10-15"
 original_url: https://tangosalbardo.blogspot.com/2015/10/ensayando.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Fulvio Salamanca", "Julio De Caro"]
 ---
 
 Este tango es del bandoneonista Alejandro Prevignano, el único que yo le conozco, y fue grabado por la orquesta de Osvaldo Pugliese cuando él militaba en las filas del maestro de Villa Crespo. Es sabido que a Pugliese le gustaba que sus músicos compusieran y arreglaran, que por algo era una cooperativa, y los ejemplos de lo logrado por esa comunidad, están a la vista. Creaciones maravillosas, arreglos de gran calado, incluso renovando páginas del acervo histórico tanguero.

@@ -3,6 +3,7 @@ title: "San Pedros"
 date: "2017-03-17"
 original_url: https://tangosalbardo.blogspot.com/2017/03/san-pedros.html
 labels: ""
+tags: ["Leopoldo Federico", "Pedro Laurenz", "Roberto Grela", "Pedro Maffia"]
 ---
 
 Un músico elige su canción favorita: Leopoldo Federico y “**Amurado**”, de Laurenz y Maffia

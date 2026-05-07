@@ -3,6 +3,7 @@ title: "Flores negras"
 date: "2015-09-11"
 original_url: https://tangosalbardo.blogspot.com/2015/09/flores-negras.html
 labels: ""
+tags: ["Horacio Ferrer", "Julio De Caro"]
 ---
 
 La belleza de tango romanza, que ideó Francisco De Caro allá por 1927, es una muestra cabal del talento indiscutido de este pianista que fue el puntal de los conjuntos que iría formando su hermano Julio, a lo largo de su historial tanguero. Aunque lleva letra de Mario César Gomila, ha sido preferentemente tratado como pieza instrumental, sobre todos por los solistas que pueden lucirse* a piaccere*, por la concepción romántica del tango, propio de la época en que fue concebido.

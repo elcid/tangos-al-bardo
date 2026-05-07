@@ -3,6 +3,7 @@ title: "Agustín Magaldi"
 date: "2022-01-05"
 original_url: https://tangosalbardo.blogspot.com/2022/01/agustin-magaldi.html
 labels: ""
+tags: ["Libertad Lamarque", "Ignacio Corsini", "Agustín Magaldi", "Rosita Quiroga", "Alberto Gómez", "Carlos Gardel", "Alfredo Gobbi", "Lito Bayardo"]
 ---
 
 Durante años integró la tríada de cantores más populares de la Argentina junto a Ignacio Corsini y Carlos Gardel, nada menos. Su privilegiada voz, afinadísima, doliente, melodiosa, arrastra el acento de la canzonetta italiana, porque desde la cuna su oído se acostumbró a esas canciones peninsulares que traían sones lejanos, sentimentales o desgarrantes de nostalgia.

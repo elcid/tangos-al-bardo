@@ -3,6 +3,7 @@ title: "Bien milonga"
 date: "2018-01-02"
 original_url: https://tangosalbardo.blogspot.com/2018/01/bien-milonga.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Alberto Morán"]
 ---
 
 *Tan sólo sé que somos dos, *

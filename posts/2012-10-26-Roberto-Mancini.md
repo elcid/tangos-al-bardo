@@ -3,6 +3,7 @@ title: "Roberto Mancini"
 date: "2012-10-26"
 original_url: https://tangosalbardo.blogspot.com/2012/10/roberto-mancini.html
 labels: ""
+tags: ["Miguel Caló"]
 ---
 
 Excelente cantor, mejor amigo, hoy tengo ganas de estar a su lado, aunque sea por medio de la recordación, escuchando sus temas.

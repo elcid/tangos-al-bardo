@@ -3,6 +3,7 @@ title: "Discepolín por Tania"
 date: "2017-06-08"
 original_url: https://tangosalbardo.blogspot.com/2017/06/discepolin-por-tania.html
 labels: ""
+tags: ["Enrique Santos Discépolo", "Luis César Amadori", "Azucena Maizani"]
 ---
 
 El 23 de diciembre de 1951 moría en Buenos Aires Enrique Santos Discépolo, el gran poeta del tango, autor de *Cambalache, Yira… Yira…, Cafetín de Buenos Aires y Uno*. Su compañera Tania así lo recordaba en estas líneas, publicadas en el diario **La Opinión** Cultural el 17 de diciembre de 1972.

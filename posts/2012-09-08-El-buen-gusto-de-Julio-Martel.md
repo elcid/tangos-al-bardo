@@ -3,6 +3,7 @@ title: "El buen gusto de Julio Martel"
 date: "2012-09-08"
 original_url: https://tangosalbardo.blogspot.com/2012/09/el-buen-gusto-de-julio-martel.html
 labels: ""
+tags: ["Alberto Castillo", "Alberto Podestá", "Alberto Echagüe", "Roberto Rufino", "Alberto Marino", "Alberto Morán", "Julio Martel", "Carlos Waiss"]
 ---
 
 Ya hablé de mi predilección por su estilo, por la forma tan personal de interpretar los temas con su voz pequeña, gutural, pero que le servía para redondear los temas con esa personalidad tan especial.

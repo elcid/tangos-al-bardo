@@ -3,6 +3,7 @@ title: "Las voces que lucieron con Pichuco"
 date: "2022-05-29"
 original_url: https://tangosalbardo.blogspot.com/2022/05/las-voces-que-lucieron-con-pichuco.html
 labels: ""
+tags: ["Francisco Fiorentino", "Alfredo De Angelis", "Juan Carlos Cobián", "Roberto Goyeneche", "Alberto Marino", "Juan D'Arienzo", "Edmundo Rivero", "Horacio Salgán"]
 ---
 
 No cabe duda alguna de que la orquesta de Aníbal Troilo fue "*La orquesta de los cantores*". La lista de voces que lucieron en su orquesta elimina cualquier sospecha de error. Después de Gardel -el inventor del tango cantado- los mejores cantores que tuvo el tango, se alinearon con Pichuco en algún momento de su trayectoria.

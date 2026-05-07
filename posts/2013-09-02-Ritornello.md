@@ -3,6 +3,7 @@ title: "Ritornello"
 date: "2013-09-02"
 original_url: https://tangosalbardo.blogspot.com/2013/09/ritornello.html
 labels: ""
+tags: ["Osmar Maderna", "Julián Plaza", "Julio Martel", "Miguel Caló"]
 ---
 
 Volvemos de asolearnos en la arena levantina, bañarnos en el Mediterráneo y adquirir un tono mate y pocas ganas de laburar. Pero, al menos, sí para escuchar unas tanditas de tango poniendo al día la oreja y el cuore.

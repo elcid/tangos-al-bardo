@@ -3,6 +3,7 @@ title: "Primavera porteña"
 date: "2026-03-27"
 original_url: https://tangosalbardo.blogspot.com/2026/03/primavera-portena.html
 labels: ""
+tags: ["José María Otero"]
 ---
 
 ![Primavera | ©Marisol Torremocha Lopez](https://res.cloudinary.com/hello-tickets/image/upload/c_limit,f_auto,q_auto,w_768/v1684882929/post_images/Argentina-170/Buenos-aires/spring/41435895921_6775be22c3_o_Cropped_1.jpg)

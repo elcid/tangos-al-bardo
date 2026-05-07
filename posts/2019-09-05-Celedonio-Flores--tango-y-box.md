@@ -3,6 +3,7 @@ title: "Celedonio Flores: tango y box"
 date: "2019-09-05"
 original_url: https://tangosalbardo.blogspot.com/2019/09/celedonio-flores-tango-y-box.html
 labels: ""
+tags: ["Celedonio Flores"]
 ---
 
 El registro del encuentro del autor de “Mano a Mano” y Borocotó. Entre mates, tangos, anécdotas, humor y el recuerdo persistente de Gardel, Celedonio evoca su pasado pugilístico. Y de yapa, un video con el Mudo.  *"Rechiflaoo en mi tristeza, te evoco y veo que has sido

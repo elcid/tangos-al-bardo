@@ -3,6 +3,7 @@ title: "Primer Campeonato Nacional de Tangos"
 date: "2012-04-01"
 original_url: https://tangosalbardo.blogspot.com/2012/04/primer-campeonato-nacional-de-tangos.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Osvaldo Fresedo", "Edgardo Donato", "Julio De Caro", "Anselmo Aieta", "Pedro Maffia", "Manuel Buzón", "Raúl Kaplún"]
 ---
 
 ##  El Diario Crítica, el de mayor popularidad y ventas de la época organizó el Primer Campeonato Nacional de Tangos. El lugar elegido para la celebración de tal importante evento fue el Luna Park. El poeta lunfa Carlos De la Púa ( Carlos Raúl Muñoz o *El Malevo *Muñoz), que era periodista del Diario, fue quien propuso la iniciativa y el gran propulsor del evento que congregó a las orquestas más prestigiosas y congregó a legiones de porteños.(Si agrandan el anuncio del Diario en portada, verán la importancia que le daban al concurso).

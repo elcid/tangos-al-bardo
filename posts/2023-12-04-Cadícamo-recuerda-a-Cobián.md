@@ -3,6 +3,7 @@ title: "Cadícamo recuerda a Cobián"
 date: "2023-12-04"
 original_url: https://tangosalbardo.blogspot.com/2023/12/cadicamo-recuerda-cobian.html
 labels: ""
+tags: ["Juan Carlos Cobián", "Enrique Cadícamo"]
 ---
 
 ** Así lo conocí**.

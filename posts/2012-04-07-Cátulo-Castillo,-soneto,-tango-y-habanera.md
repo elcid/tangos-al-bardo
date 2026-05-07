@@ -3,6 +3,7 @@ title: "Cátulo Castillo, soneto, tango y habanera"
 date: "2012-04-07"
 original_url: https://tangosalbardo.blogspot.com/2012/04/catulo-castillo-ese-personaje.html
 labels: ""
+tags: ["Cátulo Castillo", "Eduardo Arolas", "Horacio Ferrer", "Aníbal Troilo", "Jorge Casal", "Raúl Berón"]
 ---
 
 Cátulo Castillo, ese personaje impresionante del Tango, que creó páginas memorables como compositor o poeta y a quien tuve la suerte de tratar porque casi coincidíamos en los horarios de Radio El Mundo, dejó infinidad de cosas inconclusas. Incluso una ópera dedicada a Eva Perón.

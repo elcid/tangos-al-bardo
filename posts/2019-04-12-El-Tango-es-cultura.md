@@ -3,6 +3,7 @@ title: "El Tango es cultura"
 date: "2019-04-12"
 original_url: https://tangosalbardo.blogspot.com/2019/04/el-tango-es-cultura.html
 labels: ""
+tags: ["Enrique Santos Discépolo", "Francisco García Jiménez", "Enrique Cadícamo", "Celedonio Flores", "Pascual Contursi", "Osvaldo Pugliese", "Cátulo Castillo", "Eladia Blázquez"]
 ---
 
 Va siendo hora que se le reconozcan los méritos a la música popular que en Argentina y Uruguay lleva alimentando la memoria y el paisaje ciudadano desde hace más de 130 años. Es cierto que ha tenido altibajos pero una y otra vez ha renacido con más fuerza, y después de esos inviernos en que otros géneros y el desinterés de gobiernos y discográficas lo van opacando, retorna con bríos primaverales, y con la polenta vital de las viejas y eternas grabaciones que demuestran cotidianamente su clase ancestral.

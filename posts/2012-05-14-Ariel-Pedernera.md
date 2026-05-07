@@ -3,6 +3,7 @@ title: "Ariel Pedernera"
 date: "2012-05-14"
 original_url: https://tangosalbardo.blogspot.com/2012/05/ariel-pedernera.html
 labels: ""
+tags: ["Fernando Suárez Paz", "Francisco Canaro", "Armando Pontier", "Eduardo Arolas", "Osmar Maderna", "Miguel Caló", "Raúl Berón"]
 ---
 
 Fue un excelente ejecutante del *ropero* (como los músicos de tango bautizaron metafóricamente al contrabajo).

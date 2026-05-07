@@ -3,6 +3,7 @@ title: "Por el camino"
 date: "2023-04-07"
 original_url: https://tangosalbardo.blogspot.com/2023/04/por-el-camino.html
 labels: ""
+tags: ["Ignacio Corsini", "Carlos Gardel"]
 ---
 
 En el **Día Nacional de la Zamba**, me detengo en esta hermosa página del poeta Benjamín Alfonso Tagle Lara y el pianista-violinista Carlos Vicente Geroni Flores. La compusieron en 1923 y al principio la llamaron** *****Zamba del boyero** *(Persona que se dedica a pastar y conducir una manada de bueyes). El tema tuvo mucho recorrido, estuvo considerada como página ejemplar en el folklore campero y figuró con nota en el repertorio de los tres grandes: Gardel, Magaldi y Corsini.

@@ -3,6 +3,7 @@ title: "Tango Argentino"
 date: "2016-02-03"
 original_url: https://tangosalbardo.blogspot.com/2016/02/tango-argentino.html
 labels: ""
+tags: ["Juan Carlos Copes", "Roberto Goyeneche", "María Nieves", "Raúl Lavié", "Elba Berón", "Virulazo"]
 ---
 
 Habrá que recordar perennemente a esta Compañía y a esta idea teatral que relanzó el tango en Argentina y lo consagró en el mundo. Porque en los años que se fundó **Tango Argentino**, una idea maravillosa, pero audaz en ese momento, la danza del tango había desaparecido de los clubes de barrio y confiterías céntricas, barrido por otros géneros como el rock o el pop y también porque tanto los sucesivos gobiernos y dictaduras, como grabadoras y prensa en general, le habían dado la espalda. Por eso es muy de agradecer la luminosa ocurrencia que tuvo Claudio Segovia, su mentor.

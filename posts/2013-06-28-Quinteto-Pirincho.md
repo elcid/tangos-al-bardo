@@ -3,6 +3,7 @@ title: "Quinteto Pirincho"
 date: "2013-06-28"
 original_url: https://tangosalbardo.blogspot.com/2013/06/quinteto-pirincho.html
 labels: ""
+tags: ["Fulvio Salamanca", "Francisco Canaro", "Atilio Stampone", "Eduardo Arolas", "Pedro Laurenz", "Jorge Dragone", "Héctor Varela", "Raúl Kaplún"]
 ---
 
 Fue otra de las grandes ideas de Francisco Canaro. Paralelamente a su orquesta, a las revistas musicales, a sus actuaciones, creó un Quinteto al que apodó con el mote que portaba desde su nacimiento, por una crestita de pelo que le asomaba y que le dió origen a la madrina para expresar que parecía un pirincho.

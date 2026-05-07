@@ -3,6 +3,7 @@ title: "Carlos Rivarola"
 date: "2022-03-24"
 original_url: https://tangosalbardo.blogspot.com/2022/03/carlos-rivarola.html
 labels: ""
+tags: ["Juan Carlos Copes", "Osvaldo Pugliese", "Hugo del Carril", "Mariano Mores", "María Nieves", "Virulazo"]
 ---
 
 El Martes pasado estuvimos muy afortunados por tener en BIEN MILONGA a un invitado especial. Un gran personaje del tango, que junto a su pareja ha sabido representarlo en pistas y escenarios de numerosos países del mundo, dejando siempre la marca registrada de sus capacidades y sentimientos, y ese amor por el género que los abrazó de jovencitos. Me refiero a Carlos Rivarola.

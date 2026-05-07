@@ -3,6 +3,7 @@ title: "Di Sarli por Leopoldo Federico"
 date: "2014-01-20"
 original_url: https://tangosalbardo.blogspot.com/2014/01/di-sarli-por-leopoldo-federico.html
 labels: ""
+tags: ["Leopoldo Federico", "Carlos Di Sarli"]
 ---
 
 En 1975, El gran bandoneonista Leopoldo Federico decidió realizar un homenaje a su viejo director y grabó un LP que contiene 12 temas, en el estilo del maestro de Bahía Blanca. En esa dedicatoria, Leopoldo no vacila en desnudarse artística y sentimentalmente y en la contraportada del envase del CD reza este responso musical.

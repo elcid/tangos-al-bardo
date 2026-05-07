@@ -3,6 +3,7 @@ title: "Le Pas parfait III y Grela-Federico"
 date: "2013-05-07"
 original_url: https://tangosalbardo.blogspot.com/2013/05/le-pas-parfait-iii-y.html
 labels: ""
+tags: ["Leopoldo Federico", "Mariano Mores", "Roberto Grela"]
 ---
 
 Me encantan estas viñetas por todo el simbolismo que encierran y que deberían implantarse como tablas y reglas a seguir, en las distintas milongas del mundo,

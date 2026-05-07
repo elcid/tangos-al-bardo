@@ -3,6 +3,7 @@ title: "Por las calles del tango"
 date: "2015-08-08"
 original_url: https://tangosalbardo.blogspot.com/2015/08/por-las-calles-del-tango.html
 labels: ""
+tags: ["Alberto Echagüe", "Juan D'Arienzo", "José Berón"]
 ---
 
 El sábado es un día milonguero, o una noche mejor dicho. Y aunque **Bien Milonga** la tenemos de vacaciones durante todo el mes de Agosto, porque cierra por descanso la Casa de Aragón de Madrid, no puedo dejar de visitar distintas pistas del mundo donde se milonguea a tope. Y en este tango de Enrique Lary y Enrique Alessio, que grabó con su orquesta este último y la voz de José Berón (tan parecida a la de su hermano Raúl), se nos vienen con este verso llamador:

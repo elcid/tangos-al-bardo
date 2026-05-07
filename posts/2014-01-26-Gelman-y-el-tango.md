@@ -3,6 +3,7 @@ title: "Gelman y el tango"
 date: "2014-01-26"
 original_url: https://tangosalbardo.blogspot.com/2014/01/gelman-y-el-tango.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Julián Plaza"]
 ---
 
 Lo recuerdo a este gran poeta nuestro fallecido hace poco, en una charla que tuvimos en 2007, cuando vino a España a recoger el *Premio Cervantes*. Hubo una recepción en la Embajada Argentina en Madrid y allí estuvimos unos cuantos admiradores de su obra y me di el gusto de conversar un rato con él, mano a mano y con una copa de vino en la diestra.

@@ -3,6 +3,7 @@ title: "Piazzolla entrevistado por Guillermo Saavedra (3)"
 date: "2023-09-06"
 original_url: https://tangosalbardo.blogspot.com/2023/09/piazzolla-entrevistado-por-guillermo_6.html
 labels: ""
+tags: ["Astor Piazzolla", "Alfredo Gobbi", "Mariano Mores", "Julio De Caro"]
 ---
 
 Supe desde siempre que lo mío era el tango, pro más allá del tango conformista y haragán de la mayoría de los tangueros. En algún momento, entendí que tenía que cruzar ese tango adormecido con otras cosas, había que enriquecerlo, llenarlo de riesgo y de sorpresa. Cuando hacía arreglos para Troilo, no pensaba en algo fácil que hiciera bailar a la gente sino en poner afuera algo muy mío y a la vez vinculado con esa música que todos conocían, para que fuera escuchado.

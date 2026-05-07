@@ -3,6 +3,7 @@ title: "José Padilla"
 date: "2013-06-11"
 original_url: https://tangosalbardo.blogspot.com/2013/06/jose-padilla.html
 labels: ""
+tags: ["Luis Bayón Herrera", "Hugo del Carril", "Manuel Romero", "Carlos Gardel"]
 ---
 
 En aquellas visitas de zarzuelas e intérpretes españolas que viajaban a Buenos Aires para llevarles a los sufridos inmigrantes la música de su tierra, hubo muchos que se aquerenciaron en el tango. Incluso algunos de ellos echaron raíces en la Argentina y contribuyeron al auge de esta música.

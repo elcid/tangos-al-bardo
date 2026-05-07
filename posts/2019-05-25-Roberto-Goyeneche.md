@@ -3,6 +3,7 @@ title: "Roberto Goyeneche"
 date: "2019-05-25"
 original_url: https://tangosalbardo.blogspot.com/2019/05/roberto-goyeneche.html
 labels: ""
+tags: ["Roberto Goyeneche", "Enrique Cadícamo", "Cátulo Castillo", "Alfredo Le Pera", "Atilio Stampone", "Homero Expósito", "Horacio Salgán", "Aníbal Troilo"]
 ---
 
 "El arrabal ha muerto"

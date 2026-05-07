@@ -3,6 +3,7 @@ title: "Osvaldo Pugliese decía:"
 date: "2024-06-17"
 original_url: https://tangosalbardo.blogspot.com/2024/06/osvaldo-pugliese-decia.html
 labels: ""
+tags: ["Osvaldo Pugliese"]
 ---
 
 -La soberanía nacional se defiende también con la cultura.

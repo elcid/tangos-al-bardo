@@ -3,6 +3,7 @@ title: "Ya sé que estoy piantao..."
 date: "2012-04-28"
 original_url: https://tangosalbardo.blogspot.com/2012/04/una-pareja-insolita.html
 labels: ""
+tags: ["Juan D'Arienzo"]
 ---
 
 Los vi bailar una noche en La Ideal, en Buenos Aires.

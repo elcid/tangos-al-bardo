@@ -3,6 +3,7 @@ title: "Francini-Pontier"
 date: "2012-05-22"
 original_url: https://tangosalbardo.blogspot.com/2012/05/francini-pontier.html
 labels: ""
+tags: ["Armando Pontier", "Alberto Podestá", "Roberto Rufino", "Héctor Marcó", "Miguel Caló", "Raúl Berón", "Julio Sosa"]
 ---
 
 En aquella maravillosa década del 40, como se ha dado en llamar a la etapa comprendida entre 1935 y 1955, la extraordinaria demanda de las grabadoras, las emisoras de radio, los clubes y salones que organizaban bailes, y el público, se generó una gran fuente de trabajo para músicos y cantantes.

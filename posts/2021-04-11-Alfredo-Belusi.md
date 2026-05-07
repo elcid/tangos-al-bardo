@@ -3,6 +3,7 @@ title: "Alfredo Belusi"
 date: "2021-04-11"
 original_url: https://tangosalbardo.blogspot.com/2021/04/alfredo-belussi.html
 labels: ""
+tags: ["Alberto Castillo", "Osvaldo Pugliese", "Alfredo Belusi", "Alberto Morán", "Floreal Ruiz", "Jorge Durán", "Abel Aznar", "José Basso"]
 ---
 
 Lo he nombrado en algunas notas, respecto de algunos tangos que supo interpretar y de su participación en varias orquestas. Pero considero que le debo una nota personal, por su carrera firme, ascendente y meritoria, cuando el género lucía grandes voces que hicieron historia. Y él llegó desde Rosario para debutar en la orquesta de José Basso en 1956, recomendado por quien sería su cumpañero de dupla vocal, nada menos que Floreal Ruiz.

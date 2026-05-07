@@ -3,6 +3,7 @@ title: "Sobre las figuras"
 date: "2012-08-01"
 original_url: https://tangosalbardo.blogspot.com/2012/08/sobre-las-figuras.html
 labels: ""
+tags: ["Osvaldo Pugliese"]
 ---
 
 Los milongueros nos deleitamos viendo bailar en la pista a bailarines de ambos sexos que hacen gala de naturalidad y sentimiento en lo que están haciendo.

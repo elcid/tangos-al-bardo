@@ -3,6 +3,7 @@ title: "BIEN MILONGA"
 date: "2018-09-25"
 original_url: https://tangosalbardo.blogspot.com/2018/09/bien-milonga_25.html
 labels: ""
+tags: ["Juan D'Arienzo"]
 ---
 
 *Mientras solloza el tango y estás conmigo*

@@ -3,6 +3,7 @@ title: "Troilo y Di Sarli"
 date: "2014-06-13"
 original_url: https://tangosalbardo.blogspot.com/2014/06/troilo-y-di-sarli.html
 labels: ""
+tags: ["Adolfo Carabelli", "Carlos Di Sarli", "Eduardo Arolas", "Aníbal Troilo", "Raúl Garello"]
 ---
 
 Se admiraban mutuamente y Pichuco no dudó en decirlo públicamente en cada oportunidad que le preguntaron sobre la mejor orquesta: "*Ponga Di Sarli y se acabó. Es la más grande, la mejor, la más maravillosa para bailar y para escuchar".*

@@ -3,6 +3,7 @@ title: "María De la Fuente"
 date: "2013-02-24"
 original_url: https://tangosalbardo.blogspot.com/2013/02/maria-de-la-fuente.html
 labels: ""
+tags: ["Leopoldo Federico", "Homero Expósito", "Carlos Figari", "José Rótulo"]
 ---
 
 Surgió en una época de grandes cancionistas y sus virtudes le permitieron instalarse en las marquesinas con notable éxito, dada la calidad, matices y calidez de su acento vocal y su interpretación, entre sentimental y dramática..

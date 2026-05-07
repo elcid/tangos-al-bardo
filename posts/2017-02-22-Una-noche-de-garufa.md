@@ -3,6 +3,7 @@ title: "Una noche de garufa"
 date: "2017-02-22"
 original_url: https://tangosalbardo.blogspot.com/2017/02/una-noche-de-garufa.html
 labels: ""
+tags: ["Francisco Canaro", "Ricardo Tanturi", "Eduardo Arolas", "Juan D'Arienzo", "Roberto Firpo"]
 ---
 
 Escojo éste, porque fue el primero de los tangos que inventó Eduardo Arolas y en el mismo ya planeaba su indudable genio creador, recogiendo todo el influjo emocional de esta música, que palpitaba en los barrios del sur de Buenos Aires. Hijo de franceses, criado en Barracas, bautizado en la guitarra y consagrado en el bandoneón, fue el primer *prócer* que distinguí del universo tanguero gracias a las páginas suyas que escuchaba a mi hermano en los discos de Roberto Firpo o Juan D'Arienzo.

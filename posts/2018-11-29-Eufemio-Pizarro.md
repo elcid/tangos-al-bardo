@@ -3,6 +3,7 @@ title: "Eufemio Pizarro"
 date: "2018-11-29"
 original_url: https://tangosalbardo.blogspot.com/2018/11/eufemio-pizarro.html
 labels: ""
+tags: ["Enrique Santos Discépolo", "Celedonio Flores", "Francisco Canaro", "Cátulo Castillo", "Susana Rinaldi", "Julián Centeya", "Aníbal Troilo", "Homero Manzi"]
 ---
 
 Guardo recuerdos intensos de este tango que hicieron entre Homero Manzi y Cátulo Castillo. He contado alguna vez que yo trabajaba en radio El Mundo con Antonio Carrizo en su programa: *Mundo diez* que iba desde la mañana al mediodía. A continuación venía otro de Cátulo Castillo con Luis Medina Castro. Cuando terminábamos, con Antonio nos íbamos al boliche frente a la radio a almorzar y charlotear, antes de seguir viaje al Diario La Razón, donde yo trabajaba.

@@ -3,6 +3,7 @@ title: "¡FELIZ AÑO NUEVO!"
 date: "2017-12-29"
 original_url: https://tangosalbardo.blogspot.com/2017/12/feliz-ano-nuevo.html
 labels: ""
+tags: ["José María Otero"]
 ---
 
 A todos los amigos que me acompañan en **Tangos al bardo**, les deseo un año nuevo lleno de cosas lindas, buenas, y mucha salud sobre todo, para poder seguir disfrutando de la vida, del amor, de la familia, los amigos y... el Tango.

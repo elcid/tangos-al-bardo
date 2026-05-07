@@ -3,6 +3,7 @@ title: "Luna de arrabal"
 date: "2016-02-24"
 original_url: https://tangosalbardo.blogspot.com/2016/02/luna-de-arrabal.html
 labels: ""
+tags: ["Julio César Sanders", "Enrique Cadícamo", "Alberto Castillo", "Francisco Lomuto", "Hugo del Carril", "Roberto Firpo", "Floreal Ruiz", "Charlo"]
 ---
 
 Este valsecito de Enrique Cadícamo y Julio César Sanders, busca revivir aquellas serenatas al pie de la ventana de la novia, como se estilaba en los barrios porteños. Ambos autores vivieron en el mismo barrio de Flores donde se conocieron y compartieron aquella bohemia jovial que alargaba la noche en las calles y los cafés. Luego se verían muchas veces en el centro de la ciudad porteña, donde Cadícamo ya había sacado chapa de grande del tango.

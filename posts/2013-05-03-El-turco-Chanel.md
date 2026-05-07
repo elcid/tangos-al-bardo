@@ -3,6 +3,7 @@ title: "El turco Chanel"
 date: "2013-05-03"
 original_url: https://tangosalbardo.blogspot.com/2013/05/el-turco-chanel.html
 labels: ""
+tags: ["Virgilio Expósito", "Florindo Sassone", "Osvaldo Pugliese", "Julio De Caro", "Alberto Morán"]
 ---
 
 Era descendiente de italianos por los cuatro costados pero le decían *turco* por su nariz aguileña y el cutis morocho. Se llamaba Alfredo Mazzochi y se crió entre guitarreros y cantores de barrio. Su padre tocaba con holgada frecuencia el acordeón que se trajo de Nápoles junto con sus escasas pertenenencias, y los 5 hijos que fue alumbrando la *donna* en el porteño barrrio de Caballito seguirían esa ancestral costumbre. El posterior traslado a Villa Luro no rompió con sus costumbres tanas, y aunque fuera el último de la prole sería el que más lejos llegaría de los tres varones que se lanzaron por cafés y radios con las guitarras y la voz quejumbrosa de Roberto.

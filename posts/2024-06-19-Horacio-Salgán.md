@@ -3,6 +3,7 @@ title: "Horacio Salgán"
 date: "2024-06-19"
 original_url: https://tangosalbardo.blogspot.com/2024/06/horacio-salgan.html
 labels: ""
+tags: ["Horacio Salgán"]
 ---
 
 ** AUTENTICIDAD PARA EL EXTERIOR**

@@ -3,6 +3,7 @@ title: "BIEN MILONGA"
 date: "2016-10-22"
 original_url: https://tangosalbardo.blogspot.com/2016/10/bien-milonga.html
 labels: ""
+tags: ["Celedonio Flores", "Edgardo Donato", "Alberto Morán"]
 ---
 
 * Qué decís, que un tango rante*

@@ -3,6 +3,7 @@ title: "Miguel Zotto"
 date: "2012-08-27"
 original_url: https://tangosalbardo.blogspot.com/2012/08/miguel-zotto.html
 labels: ""
+tags: ["Miguel Zotto"]
 ---
 
 A Miguel ya le dediqué una página y un poema, pero todo me parece poco, porque ha hecho tanto por el tango bailado, por el espectáculo, por su estilo fiel a los cánones, por las coreografías, por lo que ha cosechado y conseguido en el mundo; que merece un reconocimiento permanente.

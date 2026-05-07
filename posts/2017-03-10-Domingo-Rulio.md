@@ -3,6 +3,7 @@ title: "Domingo Rulio"
 date: "2017-03-10"
 original_url: https://tangosalbardo.blogspot.com/2017/03/domingo-rulio.html
 labels: ""
+tags: ["Leopoldo Federico", "Horacio Malvicino", "Horacio Ferrer", "Horacio Salgán", "Carlos García", "Ubaldo De Lío", "Pedro Laurenz", "Mariano Mores"]
 ---
 
 Hoy nos toca rememorar la flauta, ese instrumento fundador del tango, junto a la guitarra y el violín, en aquellos tríos iniciáticos que tocaban para los morenos, dándole ese tono picarón y milonguero que exaltaba a las parejas en el baile. Hubo numerosos flautistas que trascendieron, como Juan Carlos Bazán, Vicente Pecci, Carlos Hernani Macchi o Luis Teisseire, entre otros, y que incluso formaron en los posteriores cuartetos, cuando la guitarra y la flauta fueron suplantadas por el piano y el bandoneón.

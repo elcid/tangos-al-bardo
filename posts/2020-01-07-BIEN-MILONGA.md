@@ -3,6 +3,7 @@ title: "BIEN MILONGA"
 date: "2020-01-07"
 original_url: https://tangosalbardo.blogspot.com/2020/01/bien-milonga.html
 labels: ""
+tags: ["Alberto Echagüe", "Juan D'Arienzo", "Aníbal Troilo"]
 ---
 
 Estar así... en una fuerte comunión

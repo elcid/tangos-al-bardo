@@ -3,6 +3,7 @@ title: "Yo soy el tango"
 date: "2015-11-28"
 original_url: https://tangosalbardo.blogspot.com/2015/11/yo-soy-el-tango.html
 labels: ""
+tags: ["Enrique Rodríguez", "Domingo Federico", "Homero Expósito", "María Nieves", "Miguel Caló", "Raúl Berón"]
 ---
 
 Este tango de Domingo Federico y Homero Expósito, bucea en aquellos tiempos iniciáticos, y bate de arranque:

@@ -3,6 +3,7 @@ title: "Bien milonga"
 date: "2021-11-30"
 original_url: https://tangosalbardo.blogspot.com/2021/11/bien-milonga_30.html
 labels: ""
+tags: ["Francisco Canaro", "Alberto Podestá", "Miguel Caló"]
 ---
 
 Silenciosos van los dos

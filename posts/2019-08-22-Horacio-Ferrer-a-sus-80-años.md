@@ -3,6 +3,7 @@ title: "Horacio Ferrer a sus 80 años"
 date: "2019-08-22"
 original_url: https://tangosalbardo.blogspot.com/2019/08/horacio-ferrer-sus-80-anos.html
 labels: ""
+tags: ["Leopoldo Federico", "Osvaldo Pugliese", "Osvaldo Fresedo", "Carlos Di Sarli", "Cátulo Castillo", "Alfredo Le Pera", "José Libertella", "Homero Expósito"]
 ---
 
 HORACIO FERRER, EL CUMPLEAÑOS DEL MAYOR POETA VIVO DEL TANGO  **“Hasta los tangos feos son lindos”**  Ferrer será homenajeado mañana con un gran festival tanguero en el Teatro Maipo. “Ser tanguero es una forma de transitar por la existencia, aun sin tocar un instrumento, sin cantar ni bailar”, afirma el poeta que acaba de cumplir 80 años.

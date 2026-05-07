@@ -3,6 +3,7 @@ title: "Julián Plaza"
 date: "2019-10-30"
 original_url: https://tangosalbardo.blogspot.com/2019/10/julian-plaza.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Carlos Di Sarli", "Víctor Lavallén", "Atilio Stampone", "Edgardo Donato", "Julio De Caro", "Julián Plaza", "Miguel Caló"]
 ---
 
 Vale la pena recordar a este bandoneonista, pianista, compositor de páginas de gran calado que fue Julián Plaza. Por eso lo traigo en este reportaje que le hicieran en el diario **La Nación**, y que fuera publicada en el mismo, el 12 de enero de 1996.

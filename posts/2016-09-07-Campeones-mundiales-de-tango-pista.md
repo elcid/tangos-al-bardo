@@ -3,6 +3,7 @@ title: "Campeones mundiales de tango-pista"
 date: "2016-09-07"
 original_url: https://tangosalbardo.blogspot.com/2016/09/camopeones-mundial-de-tango-pista.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Daniel Binelli", "Néstor Marconi", "Horacio Ferrer", "Horacio Salgán", "José Colángelo", "Raúl Garello", "María Graña"]
 ---
 
 El campeonato mundial de Tango que se instauró en en el año 2003 y se realiza durante el mes de agosto, ya tiene nuevos campeones de tango pista. Se trata de la pareja integrada por Christian Palomo y Melissa Sacchi, representantes de Banfield (localidad bonaerense situada a unos 16 kilómetros de la Capital). El año pasado habían sido consagrados como subcampeones y se esmeraron para superar aquel logro.

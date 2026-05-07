@@ -3,6 +3,7 @@ title: "Atilio Talín"
 date: "2022-05-21"
 original_url: https://tangosalbardo.blogspot.com/2022/05/atilio-talin.html
 labels: ""
+tags: ["Horacio Salgán", "Aníbal Troilo", "Alfredo Gobbi", "Mariano Mores"]
 ---
 
 Mi entrañable amigo Atilio, o *Tanuca*, como le llamaba Piazzolla, dado que ambos tenían raíces itálicas en su genealogía, acaba de ver editado su libro "**Mi vida junto a los grandes del tango**", y es realmente un documento imperdible. En la portada se puede ver al autor junto a grosas figuras del tango que lo trataron y lo acogieron en su maraña de amigos. Porque Atilio Talín, no sólo frecuentó y se ganó a pulso esas amistades, sino que supo hacerse un hueco importante en el mundo del tango.

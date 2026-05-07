@@ -3,6 +3,7 @@ title: "Tango y copas"
 date: "2020-06-17"
 original_url: https://tangosalbardo.blogspot.com/2020/06/tango-y-copas.html
 labels: ""
+tags: ["Florindo Sassone", "Aníbal Troilo", "Alfredo Gobbi", "Carlos Figari", "Jorge Casal"]
 ---
 
 Hoy podemos deleitarnos con un video que repasa la obra y la vida artística de uno de los grandes que ha tenido el tango en su historia. Aníbal Troilo. La idea y realización es de Alberto Cortés . La Universidad Nacional 3 de febrero y la productora Inter Faces se aunaron para la realización de este documento en el que Juan Flesca y Carlos Puente desarrollaron sus capacidades periodísticas y fílmicas.

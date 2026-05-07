@@ -3,6 +3,7 @@ title: "La transmisión"
 date: "2019-03-30"
 original_url: https://tangosalbardo.blogspot.com/2019/03/la-transmision.html
 labels: ""
+tags: ["Juan Carlos Copes", "María Nieves"]
 ---
 
 Creo que vale la pena volver sobre algunos párrafos del reportaje que le hiciera Milena Plebs a Chicho Frúmboli hace unos años, para sumergirnos en el tema que toco hoy en mi página. En aquella conversación, decía Chicho entre otras cosas:

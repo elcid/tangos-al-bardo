@@ -3,6 +3,7 @@ title: "Bien milonga"
 date: "2017-05-02"
 original_url: https://tangosalbardo.blogspot.com/2017/05/bien-milonga.html
 labels: ""
+tags: ["Juan D'Arienzo", "Héctor Mauré"]
 ---
 
 *Alardes de bordador**** *

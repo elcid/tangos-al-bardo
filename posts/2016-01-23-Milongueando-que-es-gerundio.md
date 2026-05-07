@@ -3,6 +3,7 @@ title: "Milongueando que es gerundio"
 date: "2016-01-23"
 original_url: https://tangosalbardo.blogspot.com/2016/01/milongueando-que-es-gerundio.html
 labels: ""
+tags: ["Pepito Avellaneda", "Juan Carlos Copes", "Francisco Canaro", "María Nieves", "Virulazo"]
 ---
 
 Sábado asoleado y hay que preparar los tarros para esta noche de milonga. Bien lustrados y listos para una zaranda de las buenas. Porque en BIEN MILONGA se dan cita los buenos bailarines, esos que saben acariciar el piso con la suela y bailar con la cabecita alta, cuidando la figura, como lo repetía Miguelito Bucino en su tango Bailarín compadrito.

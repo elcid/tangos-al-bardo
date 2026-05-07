@@ -3,6 +3,7 @@ title: "Un valsecito"
 date: "2012-10-03"
 original_url: https://tangosalbardo.blogspot.com/2012/10/un-valsecito.html
 labels: ""
+tags: ["Adolfo Carabelli", "Luis Petrucelli", "Mercedes Simone", "Roberto Firpo"]
 ---
 
 Siempre nos alegra el alma un valsecito porteño y hay que merodearlos para darle rienda suelta a ese estado de ánimo decaído, o para que la pista de baile suba en emoción y nos coloque en otra dimensión distinta a la del tango, que es más profundo y concentrado.

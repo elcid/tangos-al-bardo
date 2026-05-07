@@ -3,6 +3,7 @@ title: "Homenajes a Pichuco"
 date: "2014-05-24"
 original_url: https://tangosalbardo.blogspot.com/2014/05/homenajes-pichuco.html
 labels: ""
+tags: ["Fernando Suárez Paz", "Guillermo Fernández", "José María Contursi", "José Colángelo", "Aníbal Troilo", "Ernesto Baffa", "Orlando Goñi", "Raúl Garello"]
 ---
 
 En muchos lugares del mundo se va a celebrar el Homenaje al Centenario del Nacimiento de Aníbal Troilo. Incluso en Madrid, lo haremos en la Casa de Vacas del Parque del Retiro, el próximo mes de junio y participan diferentes artistas, músicos, cantantes, bailarines. Yo estaré presentado el espectáculo, recitando y contando cosas de Pichuco. Ya iré arrimándoles más detalles.

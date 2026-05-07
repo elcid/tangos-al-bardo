@@ -3,6 +3,7 @@ title: "Esta noche"
 date: "2025-01-08"
 original_url: https://tangosalbardo.blogspot.com/2025/01/esta-noche.html
 labels: ""
+tags: ["Francisco Canaro", "Julio De Caro", "Lito Bayardo"]
 ---
 
 La discoteca de mi bulín exhala tangos, milongas y valsecitos de diversas añadas y mis ojos relumbran en el recuerdo, atiborrándose el *cuore* de cosas lindas, entrañables. Refractándose en un temperamento que reverbera en cada frase, en cada instrumento, en voces oscurecidas por el tiempo. Un mosaico de realidades e imágenes que enfocan momentos diversos.

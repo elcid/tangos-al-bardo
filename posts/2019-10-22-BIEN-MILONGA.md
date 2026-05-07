@@ -3,6 +3,7 @@ title: "BIEN MILONGA"
 date: "2019-10-22"
 original_url: https://tangosalbardo.blogspot.com/2019/10/bien-milonga_22.html
 labels: ""
+tags: ["Osvaldo Pugliese"]
 ---
 
 Hoy que no soy tan ágil como ayer

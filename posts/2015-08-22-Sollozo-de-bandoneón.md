@@ -3,6 +3,7 @@ title: "Sollozo de bandoneón"
 date: "2015-08-22"
 original_url: https://tangosalbardo.blogspot.com/2015/08/sollozo-de-bandoneon.html
 labels: ""
+tags: ["Enrique Cadícamo", "Ricardo Tanturi", "Juan D'Arienzo", "Enrique Campos"]
 ---
 
 Si habremos bailado este tango de Enrique Cadícamo y Ricardo Tanturi, grabado por la orquesta del pianista de Barracas, con la voz de Enrique Campos. Y aunque la grabación sea de 1943, hoy nos sigue acompañando en innumerables milongas, porque tiene ese toque genial que albergaban aquellos tangos. La forma como la orquesta va cortando la música es genial, igual que los solos de fueyes. La voz maravillosa de Enrique Campos le da el toque definitivo.

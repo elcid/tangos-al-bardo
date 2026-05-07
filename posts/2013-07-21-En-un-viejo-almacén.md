@@ -3,6 +3,7 @@ title: "En un viejo almacén"
 date: "2013-07-21"
 original_url: https://tangosalbardo.blogspot.com/2013/07/en-un-viejo-almacen.html
 labels: ""
+tags: ["José González Castillo", "Juan Andrés Caruso", "Horacio Malvicino", "Francisco Canaro", "José Libertella", "Carlos Gardel", "Nelly Omar", "Ada Falcón"]
 ---
 
 Hay letras de tango que evocan hechos de la vida diaria y *Sentimiento gaucho*, de Francisco y Rafael Canaro y Juan Andrés Caruso recuerda un lugar real que estaba ubicado en la calle Paseo Colón 525. Era un almacén y despacho de bebidas, que cita precisamente la letra del platense Caruso. Lo regentaba un español de Galicia, o sea, un gallego de verdad.

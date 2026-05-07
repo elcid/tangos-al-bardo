@@ -3,6 +3,7 @@ title: "El Tango en el Hipódromo"
 date: "2026-02-22"
 original_url: https://tangosalbardo.blogspot.com/2026/02/el-tango-en-el-hipodromo.html
 labels: ""
+tags: ["Alfredo De Angelis", "Juan Carlos Copes", "Eduardo Del Piano", "Joaquín Do Reyes", "Osvaldo Pugliese", "Enrique Delfino", "Cátulo Castillo", "Alfredo Le Pera"]
 ---
 
 Esta foto reúne a los tangueros que se reunieron en el Hipódromo de Palermo, para asistir a la inauguración de un busto de Carlos Gardel, en ese circo hípico. Ocurrió el 24 de junio de 1985, recordando el cincuentenario de la desaparición del gran cantor.

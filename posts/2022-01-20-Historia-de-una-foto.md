@@ -3,6 +3,7 @@ title: "Historia de una foto"
 date: "2022-01-20"
 original_url: https://tangosalbardo.blogspot.com/2022/01/historia-de-una-foto.html
 labels: ""
+tags: ["Celedonio Flores", "Armando Pontier", "Horacio Salgán", "María Nieves", "Raúl Kaplún", "Jorge Casal"]
 ---
 
 Qué lindo recuerdo me dejaron mi viejo y Pichuco. Esta foto la sacaron en El Tábano, un club de barrio en Saavedra, ubicado en Rómulo Naón 3029. fue el 26 de enero de 1967, cuando mi viejo cumplió cuarenta y un años. Le quiso hacer conocer ambiente de toda su vida a Troilo, con quien estuvo hasta 1963 y grabaron 26 temas.

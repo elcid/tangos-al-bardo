@@ -3,6 +3,7 @@ title: "Pichuco bandoneón"
 date: "2016-11-02"
 original_url: https://tangosalbardo.blogspot.com/2016/11/pichuco-bandoneon.html
 labels: ""
+tags: ["José María Otero", "Homero Manzi"]
 ---
 
 **BANDONEÓN** - **Cotidianas** (1979)

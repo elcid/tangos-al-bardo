@@ -3,6 +3,7 @@ title: "Te aconsejo que me olvides"
 date: "2014-09-24"
 original_url: https://tangosalbardo.blogspot.com/2014/09/te-aconsejo-que-me-olvides.html
 labels: ""
+tags: ["Francisco Canaro", "Osvaldo Fresedo", "Roberto Firpo", "Pedro Maffia", "Orlando Goñi", "Juan Maglio"]
 ---
 
 El otro día le hablaba de este tango a un amigo, mientras recordábamos la época maravillosa de Pichuco con Fiorentino -y el increíble Orlando Goñi en el piano-, por el ritmo súper milonguero que alcanza en la versión de Troilo-Fiore, y los contrapuntos entre el Dire y el *Pulpo* Goñi.

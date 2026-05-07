@@ -3,6 +3,7 @@ title: "Carlos Di Sarli, un tango distinto"
 date: "2020-02-27"
 original_url: https://tangosalbardo.blogspot.com/2020/02/carlos-di-sarli-un-tango-distinto.html
 labels: ""
+tags: ["Luis Adolfo Sierra", "Carlos Di Sarli", "Osvaldo Fresedo", "Roberto Rufino"]
 ---
 
 El gran musicólogo que tuvo el tango, Luis Adolfo Sierra, definía de este modo a la orquesta del pianista de Bahía Blanca que supo conquistar a una enorme masa de aficionados. Y que hoy día brilla a través de las grabaciones en las milongas de tantos países del mundo.

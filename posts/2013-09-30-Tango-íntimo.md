@@ -3,6 +3,7 @@ title: "Tango íntimo"
 date: "2013-09-30"
 original_url: https://tangosalbardo.blogspot.com/2013/09/tango-intimo.html
 labels: ""
+tags: ["Carlos Di Sarli"]
 ---
 
 Este sábado próximo, 5 de Octubre, inauguro nueva Milonga en la Casa de Aragón, de Madrid. Y por medio de este Blog, convoco a los milongueros de España y europeos, que pasan por la capital de España, a disfrutar de una velada para darle gusto al cuerpo...y al alma tanguera.

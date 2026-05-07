@@ -3,6 +3,7 @@ title: "Troilo-Grela"
 date: "2015-01-20"
 original_url: https://tangosalbardo.blogspot.com/2015/01/troilo-grela.html
 labels: ""
+tags: ["Cátulo Castillo", "Eduardo Arolas", "Aníbal Troilo", "Roberto Grela"]
 ---
 
 Hoy tengo ganas de escuchar a esa yunta de fueye-guitarra que me hace cosquillas en el cuore, me trae infinidad de recuerdos lindos y de noches con el alma al palo. Porque se complementan bien la viola y el bandola que simpre te dejarán un post gusto maravilloso y ganas de más. De darle máquina a la vitrola, y a la memoria. Y Aníbal Troilo y Roberto Grela compusieron un dúo inolvidable, maravilloso. Por suerte, además de las imágenes que bullen en mi memoria, están las grabaciones que dejaron y que me acompañan en esta matina mientras me cebo unos matecitos.

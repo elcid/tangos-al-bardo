@@ -3,6 +3,7 @@ title: "Ariel Ardit"
 date: "2013-04-13"
 original_url: https://tangosalbardo.blogspot.com/2013/04/ariel-ardit.html
 labels: ""
+tags: ["Enrique Cadícamo", "Alberto Podestá", "Homero Expósito", "Miguel Caló", "Ariel Ardit"]
 ---
 
 El tango tiene estas cosas. Y tan lindas... Extráñabamos aquellas voces que poblaban las marquesinas del cuarenta y desenroscaban la génesis de la canción, que había descubierto Gardel. Ellos fueron quienes desentrañaron el misterio del tango, su hondura, revelaron a los poetas involucrados en batallas estéticas legendarias y le dieron a la voluble música, un empujón hacia la eternidad.

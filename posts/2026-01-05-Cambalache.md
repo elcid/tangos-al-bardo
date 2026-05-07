@@ -3,6 +3,7 @@ title: "Cambalache"
 date: "2026-01-05"
 original_url: https://tangosalbardo.blogspot.com/2026/01/cambalache.html
 labels: ""
+tags: ["Luis César Amadori", "Armando Pontier", "Julio Sosa"]
 ---
 
 Si Discépolo levantara la cabeza y viera lo que está pasando en el mundo, reescribiría este tango inmortal que siempre nos despertará y nos mostrará las tremendas realidades que nos despiertan cada día. Las interminables guerras, los dirigentes incapacitados o destructivos, las invasiones de países para apoderarse de sus riquezas. O lo último del Presidente de Estados Unidos, tomando prisionero al Presidente de Venezuela y, descaradamente, yendo a apropiarse de las riquezas de su país.

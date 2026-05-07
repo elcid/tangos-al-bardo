@@ -3,6 +3,7 @@ title: "Álzame en tus brazos"
 date: "2023-01-08"
 original_url: https://tangosalbardo.blogspot.com/2023/01/alzame-en-tus-brazos.html
 labels: ""
+tags: ["Mario Battistella", "Alberto Podestá", "Carlos Di Sarli", "Roberto Firpo"]
 ---
 
 Este valsecito contiene unos ingredientes realmente conmovedores en sus versos y creo que Mario Battistella, el autor de los mismos, encontró la historia en una realidad cercana, que viene envuelta en emociones atrapadas por las palabras de otros. Y así vemos cómo el nihilismo de la muerte aleja al personaje de la mujer que amaba, y lo deja sin opciones, sin ideales ni sueños.

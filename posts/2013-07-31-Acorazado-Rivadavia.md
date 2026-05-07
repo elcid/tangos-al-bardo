@@ -3,6 +3,7 @@ title: "Acorazado Rivadavia"
 date: "2013-07-31"
 original_url: https://tangosalbardo.blogspot.com/2013/07/acorazado-rivadavia.html
 labels: ""
+tags: ["Ángel Villoldo", "Manuel Romero"]
 ---
 
 Este buque de guerra lo encargó Argentina en 1908, junto con el Moreno, como elementos de prevención, y de respuesta, dado que Brasil había a su vez adquirido previamente el Minas Gerais y el San Pablo. Los *Dreadnoughts* comprados por el país vecino, de origen británico, eran en su momento los más potentes del mercado pero fueron rápidamente superados.

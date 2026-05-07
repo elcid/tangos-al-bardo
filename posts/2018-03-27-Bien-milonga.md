@@ -3,6 +3,7 @@ title: "Bien milonga"
 date: "2018-03-27"
 original_url: https://tangosalbardo.blogspot.com/2018/03/bien-milonga_27.html
 labels: ""
+tags: ["Alberto Castillo", "Francisco Canaro", "Ricardo Tanturi", "Julio De Caro"]
 ---
 
 [

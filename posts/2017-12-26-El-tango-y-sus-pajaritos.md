@@ -3,6 +3,7 @@ title: "El tango y sus pajaritos"
 date: "2017-12-26"
 original_url: https://tangosalbardo.blogspot.com/2017/12/el-tango-y-sus-pajaritos.html
 labels: ""
+tags: ["Enrique Rodríguez", "Carlos Di Sarli", "Eduardo Arolas", "Juan D'Arienzo", "Edgardo Donato", "Carlos Gardel", "Héctor Varela", "Agustín Bardi"]
 ---
 
 Hay numerosos tangos en los que nombran en sus títulos a pájaros y aves argentinas, especialmente bonaerenses. De cuando la ciudad no estaba tan llena de hormigón como hoy, y había espacios abiertos, retazos de campiña, plazas y parques grandes con arboledas donde anidar. Muchos de estos ejemplares han emigrado o han ido menguando pero vale la pena reconocerlos y recordarlos, que es como volver un poco a la infancia. Y al tango.

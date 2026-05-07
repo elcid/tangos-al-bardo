@@ -3,6 +3,7 @@ title: "BIEN MILONGA"
 date: "2020-01-28"
 original_url: https://tangosalbardo.blogspot.com/2020/01/bien-milonga_28.html
 labels: ""
+tags: ["Alberto Castillo", "Francisco Canaro", "Carlos Di Sarli", "Alberto Podestá"]
 ---
 
 Soy milonguero

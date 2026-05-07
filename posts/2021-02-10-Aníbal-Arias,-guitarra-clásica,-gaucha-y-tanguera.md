@@ -3,6 +3,7 @@ title: "Aníbal Arias, guitarra clásica, gaucha y tanguera"
 date: "2021-02-10"
 original_url: https://tangosalbardo.blogspot.com/2021/02/anibal-arias-guitarra-clasica-gaucha-y.html
 labels: ""
+tags: ["Libertad Lamarque", "Susana Rinaldi", "Edmundo Rivero", "José Colángelo", "Aníbal Troilo", "Ubaldo De Lío", "Pedro Laurenz", "Roberto Grela"]
 ---
 
 Siempre recordaba que estuvo a 15 metros de Gardel. Tenía apenas 10 años y lo vistieron de gala para ir a ver al gran cantor en el cine de su barrio. Estaba lleno, no pudieron entrar, pero a la salida el público le pidió que les cantase algo y Gardel, en medio de la calle, hizo *El carretero.* Aníbal Arias, que falleció en Buenos Aires el 3 de octubre, recorrió medio mundo con su guitarra, adaptándose a todas las músicas, estilos y cantantes a quienes acompañó, que fueron más de 200.

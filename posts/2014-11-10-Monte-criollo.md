@@ -3,6 +3,7 @@ title: "Monte criollo"
 date: "2014-11-10"
 original_url: https://tangosalbardo.blogspot.com/2014/11/monte-criollo.html
 labels: ""
+tags: ["Francisco Pracánico", "Azucena Maizani", "Homero Manzi"]
 ---
 
 En otra oportunidad hablé de este tango de Homero Manzi y Francisco Pracánico, compuesto para la película del mismo nombre, que dirigiera Arturo S. Mom sobre un guión también escrito por él. Se estrenó el 22 de mayo de 1935 y el argumento dramático semeja uno de esos *thrillers* de marca, norteamericanos, y discurre en una casa de juego clandestino y dancing.

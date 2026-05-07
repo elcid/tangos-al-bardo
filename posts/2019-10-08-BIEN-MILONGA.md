@@ -3,6 +3,7 @@ title: "BIEN MILONGA"
 date: "2019-10-08"
 original_url: https://tangosalbardo.blogspot.com/2019/10/bien-milonga_8.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Juan D'Arienzo"]
 ---
 
 Esta noche hay una fiesta

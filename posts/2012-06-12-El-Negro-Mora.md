@@ -3,6 +3,7 @@ title: "El Negro Mora"
 date: "2012-06-12"
 original_url: https://tangosalbardo.blogspot.com/2012/06/joaquin-mauricio-mora.html
 labels: ""
+tags: ["José María Contursi", "Enrique Rodríguez", "Antonio Bonavena", "Alberto Podestá", "Azucena Maizani", "Manuel Buzón", "Miguel Caló"]
 ---
 
 Joaquín Mauricio Mora (1905/1979), aunque no figure con letras grandes en la memoria colectiva del tango, fue un músico muy importante, un creador, difuminado por su innata modestia y por sus largos alejamientos del país.

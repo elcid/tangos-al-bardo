@@ -3,6 +3,7 @@ title: "Menta y cedrón"
 date: "2017-10-23"
 original_url: https://tangosalbardo.blogspot.com/2017/10/menta-y-cedron.html
 labels: ""
+tags: ["Francisco García Jiménez", "José González Castillo", "Celedonio Flores", "Enrique Cadícamo", "Alberto Castillo", "Cátulo Castillo", "Carlos Gardel", "Homero Manzi"]
 ---
 
 Buena parte de la historia de Buenos Aires, está inscripta en esa evocación tanguera de nombres y lugares que fueron el aroma pueblerino y vital de la ciudad porteña. Aquellas casas-chorizo, donde convivían estrechamente familias de inmigrantes y gente llegada del interior del país para aliviar su pobreza, sirvieron, no sólo como cobijo de grandes figuras del tango, en su infancia, sino incluso como acta de fe de bautismo, de numerosas piezas del género, que se describen en la letra de tantos tangos.

@@ -3,6 +3,7 @@ title: "Las noches de Buenos Aires"
 date: "2014-05-29"
 original_url: https://tangosalbardo.blogspot.com/2014/05/las-noches-de-buenos-aires.html
 labels: ""
+tags: ["José María Contursi", "Pascual Contursi", "Rodolfo Mederos", "Homero Expósito", "Osmar Maderna", "Héctor Marcó"]
 ---
 
 Es imposible dejar de recordar las noches porteñas, esas horas en que los sueños quieren materializarse y la vida se ve y se vive de otra manera. No hubo ciudad en el mundo que tuviera la vida nocturna de la ciudad de Buenos Aires.

@@ -3,6 +3,7 @@ title: "Chamuyando con Ariel Ardit"
 date: "2013-06-03"
 original_url: https://tangosalbardo.blogspot.com/2013/06/chamuyando-con-ariel-ardit.html
 labels: ""
+tags: ["Cátulo Castillo", "Rodolfo Mederos", "Pedro Maffia", "Ariel Ardit", "Raúl Berón"]
 ---
 
 Pasó por Madrid con la selección Nacional de Tango -seis musicazos- y una pareja de baile -Iván y Silvana- y se metió a todos en el bolsillo. Y en el cuore.

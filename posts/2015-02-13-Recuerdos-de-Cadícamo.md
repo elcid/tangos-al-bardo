@@ -3,6 +3,7 @@ title: "Recuerdos de Cadícamo"
 date: "2015-02-13"
 original_url: https://tangosalbardo.blogspot.com/2015/02/recuerdos-de-cadicamo.html
 labels: ""
+tags: ["Juan Carlos Cobián", "Alberto Marino", "Aníbal Troilo"]
 ---
 
 Si no fue el escritor de poemas de tango más prolífico de la historia, pega en el palo. Y además, sus letras tienen un encanto especial, invitan a cantarlas y a ponerles música. Porque también, y esa fue otra gran virtud del inolvidable vate, colaboró con los grandes músicos de sus épocas, dado que murió cuando estaba por cumplir los cien años de edad y dejó mil trescientos temas musicales que alumbran el cancionero popular argentino. Algunos de sus tangos llevan música propia.

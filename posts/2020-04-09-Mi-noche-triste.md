@@ -3,6 +3,7 @@ title: "Mi noche triste"
 date: "2020-04-09"
 original_url: https://tangosalbardo.blogspot.com/2020/04/mi-noche-triste.html
 labels: ""
+tags: ["José González Castillo", "José María Contursi", "Celedonio Flores", "Pascual Contursi", "Vicente Greco", "Carlos Gardel"]
 ---
 
 Todos los amantes del género conocen este tango que arranca con ese octosílabo impactante: *"Percanta que me amuraste"*. Y saben que su autor fue el chivilcoyano Pascual Contursi, padre del* Catunga*, que heredó su pluma poética, dándole otro vuelo distinto. Prácticamente **Mi noche triste**, fue el primer tango cantado. Su autor se lo sacó de la manga, acoplándolo sobre la música del tango instrumental *Lita*, del pianista Samuel Castriota. Sin que éste tuviera la menor idea del tema, dado que lo estrenó en 1917, acompañándose con la guitarra en el cabaret montevideano del padre de Gerardo Matos Rodríguez.

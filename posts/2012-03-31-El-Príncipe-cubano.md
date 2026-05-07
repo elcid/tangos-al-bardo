@@ -3,6 +3,7 @@ title: "El Príncipe cubano"
 date: "2012-03-31"
 original_url: https://tangosalbardo.blogspot.com/2012/03/el-principe-cubano.html
 labels: ""
+tags: ["Domingo Federico", "Enrique Cadícamo", "Osvaldo Fresedo", "Carlos Dante"]
 ---
 
 Hoy traigo a la palestra a uno de los tantos personajes maravillosos que albergó el tango en sus diferentes etapas de gran popularidad: Ángel Sánchez Carreño, más conocido como “*El Príncipe cubano”*. (1890/1971)

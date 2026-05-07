@@ -3,6 +3,7 @@ title: "Eugenio Nóbile. Tango y otros ritmos"
 date: "2012-10-30"
 original_url: https://tangosalbardo.blogspot.com/2012/10/eugenio-nobile-tango-y-otros-ritmos.html
 labels: ""
+tags: ["Juan Carlos Cobián", "Eduardo Del Piano", "Eugenio Nóbile", "Juan D'Arienzo", "Julio De Caro", "Héctor Varela", "Pedro Maffia", "Juan Maglio"]
 ---
 
 Era un violinista eximio que provenía de una familia de músicos, procedentes de Calabria -Italia, (donde él nació en 1903 y llegó al año a la Argentina)- y lo mandaron a estudiar desde niño con destacados maestros.

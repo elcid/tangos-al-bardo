@@ -3,6 +3,7 @@ title: "La gran pareja del tango"
 date: "2016-08-12"
 original_url: https://tangosalbardo.blogspot.com/2016/08/la-gran-pareja-del-tango.html
 labels: ""
+tags: ["Juan Carlos Copes", "Francisco Canaro", "Juan D'Arienzo", "Mariano Mores", "Osvaldo Zotto", "Héctor Mauré", "María Nieves"]
 ---
 
 La historia del tango menciona a esas grandes parejas de bailarines que han dejado huella en su época y las posteriores. Como pudieron ser El Cachafaz-Carmencita, Copes-María Nieves, Zotto-Plebs y las que me salto porque afortunadamente fueron muchas más, pero las que cito fueron muy importantes por lo que avanzaron en coreografía, estilo, vestimenta, siendo aplaudidos en muchos países del mundo y evitando que este género maravilloso sufriera grandes baches en su historia.

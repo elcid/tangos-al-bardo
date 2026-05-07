@@ -3,6 +3,7 @@ title: "Roberto Peppe"
 date: "2015-08-24"
 original_url: https://tangosalbardo.blogspot.com/2015/08/roberto-peppe.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Ismael Spitalnik", "Jorge Caldara", "Mario Demarco", "Lucio Demare"]
 ---
 
 De este excelente bandoneonista, guardo un recuerdo personal bastante triste, porque falleció justo antes de actuar la orquesta de Osvaldo Pugliese en el Club Atlético Huracán, donde fuimos con la barra a milonguear ese sábado, como lo hacíamos siempre. Lo anunciaron por los micrófonos y se hizo un minuto de silencio en su homenaje.

@@ -3,6 +3,7 @@ title: "BIEN MILONGA"
 date: "2019-08-27"
 original_url: https://tangosalbardo.blogspot.com/2019/08/bien-milonga_27.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Juan D'Arienzo"]
 ---
 
 *Yo soy...*

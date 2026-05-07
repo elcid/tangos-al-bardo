@@ -3,6 +3,7 @@ title: "La última curda"
 date: "2012-03-21"
 original_url: https://tangosalbardo.blogspot.com/2012/03/la-ultima-curda_21.html
 labels: ""
+tags: ["Roberto Goyeneche", "Cátulo Castillo", "Edmundo Rivero"]
 ---
 
 Lo contaba Edmundo Rivero: Una noche de verano, enfriada solo por el hielo del güisqui, estabámos en ese departamento de Troilo (segundo piso, calle Paraná, frente al Chantecler) seis personas: los dueños casa, Miguel Ángel Bavio Esquiú (el que hacía Juan Mondiola) con su mujer, y yo acompañado por Julieta. El entusiasmo era uno sólo y por una letra que andaba por hacerse tango: de Cátulo Castillo, *La última curda*. Hubo ya un momento en el que el tarareo no alcanzó y Bavio impuso:

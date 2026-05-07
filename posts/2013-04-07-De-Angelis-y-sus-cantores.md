@@ -3,6 +3,7 @@ title: "De Angelis y sus cantores"
 date: "2013-04-07"
 original_url: https://tangosalbardo.blogspot.com/2013/04/de-angelis-y-sus-cantores.html
 labels: ""
+tags: ["Alfredo De Angelis", "Edgardo Donato", "Julio Martel", "Carlos Dante"]
 ---
 
 Le llamaban "*la orquesta de la juventud triunfadora"*, cuando a partir del 1º de abril de 1946, el *colorado* Alfredo de Angelis debutó en el programa del *Glostora tango club*, que se emitía desde Radio El Mundo.

@@ -3,6 +3,7 @@ title: "Raquel Makow"
 date: "2021-09-18"
 original_url: https://tangosalbardo.blogspot.com/2021/09/raquel-makow_18.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Carlos Gardel", "Jorge Caldara"]
 ---
 
 Nació en San Francisco, California, en la primavera del año 1991. Fue criada por un padre porteño y una madre neoyorquina. Desde chica estuvo expuesta al arte. Comenzó a bailar Jazz, Ballet y Ballroom a la edad de los 10 años. A lo largo del tiempo se enfocó más en el *Ballroom* (ritmos latinos) que incluye Cha Cha, Samba, Rumba, Paso Doble y Jive.

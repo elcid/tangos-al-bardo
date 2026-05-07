@@ -3,6 +3,7 @@ title: "Bien milonga"
 date: "2018-01-16"
 original_url: https://tangosalbardo.blogspot.com/2018/01/bien-milonga_16.html
 labels: ""
+tags: ["Pedro Laurenz"]
 ---
 
 *Sueño realidad*

@@ -3,6 +3,7 @@ title: "Niní Marshall"
 date: "2012-09-26"
 original_url: https://tangosalbardo.blogspot.com/2012/09/nini-marshall.html
 labels: ""
+tags: ["Celedonio Flores", "Manuel Romero"]
 ---
 
 Fue la más grande estrella cómica que tuvo Argentina. En su gran momento fimó 37 películas, lo que habla de su enorme popularidad, refrendada en la radio donde con sus personajes *Cándida* y *Catita* se granjeó la admiración de todo el mundo.

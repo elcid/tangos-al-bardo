@@ -3,6 +3,7 @@ title: "Alfredo Bigeschi"
 date: "2018-01-12"
 original_url: https://tangosalbardo.blogspot.com/2018/01/alfredo-bigeschi.html
 labels: ""
+tags: ["Enrique Rodríguez", "Domingo Federico", "Alberto Castillo", "Ricardo Tanturi", "Ignacio Corsini", "Mercedes Simone", "Teófilo Ibáñez", "Edgardo Donato"]
 ---
 
 ###

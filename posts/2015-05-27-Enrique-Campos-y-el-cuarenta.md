@@ -3,6 +3,7 @@ title: "Enrique Campos y el cuarenta"
 date: "2015-05-27"
 original_url: https://tangosalbardo.blogspot.com/2015/05/enrique-campos.html
 labels: ""
+tags: ["Libertad Lamarque", "Francisco Rotundo", "Alberto Castillo", "Ricardo Tanturi", "Hugo del Carril", "Enrique Campos", "Alberto Marino", "Edmundo Rivero"]
 ---
 
 En las milongas nos siguen acompañando las maravillosas grabaciones que nos dejaron las Orquestas Típicas, realizadas en las décadas del treinta, cuarenta y cincuenta. Es muy fácil para cualquier musicalizador meter mano en aquellos maravillosos manojos de notas que venían envueltos en las partituras tangueras, tan bien interpretadas por las orquestas que conformaron el abanico de los distintos estilos y propuestas, de esas formaciones inolvidables. Una baraja con numerosos naipes ganadores.

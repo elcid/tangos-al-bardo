@@ -3,6 +3,7 @@ title: "Fresedo y Discépolo"
 date: "2017-01-28"
 original_url: https://tangosalbardo.blogspot.com/2017/01/fresedo-y-discepolo.html
 labels: ""
+tags: ["José María Aguilar", "Osvaldo Fresedo", "Azucena Maizani", "Carlos Gardel", "Mariano Mores", "Charlo"]
 ---
 
 Se admiraban mutuamente y además Discepolín era muy querible, a la vez que sentía la cercanía de la gente que lo apreciaba, lo estimulaba y lo apoyaba. Todavía no era el gran poeta amargo que sentía en carne propia las injusticias de la vida de los demás. Fresedo fue un renovador del tango y se harían amigos.

@@ -3,6 +3,7 @@ title: "Los instrumentales de Tanturi"
 date: "2012-10-01"
 original_url: https://tangosalbardo.blogspot.com/2012/10/los-instrumentales-de-ricardo-tanturi.html
 labels: ""
+tags: ["Francisco Canaro", "Alberto Castillo", "Ricardo Tanturi", "Eduardo Arolas", "Enrique Campos", "Agustín Bardi"]
 ---
 
 Es curioso observar la discografía de Ricardo Tanturi, un director que supo calibrar el acento milonguero de su orquesta y resultar altamente llamativo para disfrutar en las pistas de baile. A tal punto que, a tantos años de sus registros, los mismos suelen ser infaltables en las tandas de cualquier milonga del mundo.

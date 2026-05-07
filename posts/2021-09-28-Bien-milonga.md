@@ -3,6 +3,7 @@ title: "Bien milonga"
 date: "2021-09-28"
 original_url: https://tangosalbardo.blogspot.com/2021/09/bien-milonga_28.html
 labels: ""
+tags: ["Juan D'Arienzo", "Héctor Varela"]
 ---
 
 Vestido como un dandy,

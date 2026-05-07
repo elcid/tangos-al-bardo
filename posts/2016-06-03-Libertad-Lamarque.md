@@ -3,6 +3,7 @@ title: "Libertad Lamarque"
 date: "2016-06-03"
 original_url: https://tangosalbardo.blogspot.com/2016/06/libertad-lamarque.html
 labels: ""
+tags: ["José María Contursi", "Libertad Lamarque", "Francisco Canaro", "Mercedes Simone", "Rosita Quiroga", "Mariano Mores"]
 ---
 
 La historia de esta grandísima artista, rosarina y universal- es muy conocida. Laureada como actriz y cantante en Argentina, donde además había protagonizado varias películas de gran éxito y obras de teatro, actuaciones en radio y grabaciones de disco; en 1946 se radica en México donde se consagra internacionalmente filmando película super taquilleras y grabando discos en profusión, generalmente con temas de su país. Se tansforma así en **La dama de América** y todo lo que haga lo convertirá en gran suceso.

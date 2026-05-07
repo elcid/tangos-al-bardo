@@ -3,6 +3,7 @@ title: "Escuela de Tango"
 date: "2012-08-08"
 original_url: https://tangosalbardo.blogspot.com/2012/08/escuela-de-tango.html
 labels: ""
+tags: ["Alberto Castillo", "Osvaldo Pugliese", "Alberto Marino", "Edgardo Donato", "Aníbal Troilo", "Manuel Buzón"]
 ---
 
 La obra de Emilio Balcarce: Violinista, bandoneonista, director, compositor, arreglador, no se agotó en el trabajo. Una vez retirado comenzó con algo mucho más duro, pero valiosísimo. La enseñanza.

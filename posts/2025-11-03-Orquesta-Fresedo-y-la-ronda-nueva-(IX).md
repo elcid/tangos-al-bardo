@@ -3,6 +3,7 @@ title: " Orquesta Fresedo y la ronda nueva (IX)"
 date: "2025-11-03"
 original_url: https://tangosalbardo.blogspot.com/2025/11/orquesta-fresedo-y-la-ronda-nueva-ix.html
 labels: ""
+tags: ["José María Contursi", "Astor Piazzolla", "Cátulo Castillo", "Roberto Pansera", "Vicente Greco", "José Bragato", "Homero Manzi", "Lucio Demare"]
 ---
 
 Luego de haber grabado el 29 de septiembre del año 1949 el último disco de su segunda etapa en el sello Victor, fecha en que registró el tango de Antonio Rodio y José María Contursi “Y la perdí”, debió transcurrir poco menos de un año para que la orquesta del maestro Fresedo retomase a las salas de grabación. Hecho que se concretó en el sello Columbia el 25 de octubre de 1950, al llevar al disco “*Para lucirse*”, tango instrumental de Piazzolla, y en su cara B un hermoso tango del maestro director, también orquestal, al que tituló “*Mi viejo reloj*” (subtítulo: “*Cajita de música*”).

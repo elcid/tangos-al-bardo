@@ -3,6 +3,7 @@ title: "Naipe marcado"
 date: "2025-12-03"
 original_url: https://tangosalbardo.blogspot.com/2025/12/naipe-marcado.html
 labels: ""
+tags: ["Carlos Gardel", "Ángel Vargas"]
 ---
 
 Hoy me vengo con este tango que dejó huella en los seguidores del género. Su autor, el músico-cantor, Ángel Greco trabajó en circo, tuvo un dúo de vocalistas con Domingo Riverol que se mantuvo durante unos nueve años, y finalmente se inclinaría por componer tangos. Entre otros figura *La ventosa*, compuesto en 1916, su primer tema y otros como *Llaga viva, Río revuelto, Resurrección*, que no tuvieron mayor repercusión.

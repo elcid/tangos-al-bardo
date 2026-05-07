@@ -3,6 +3,7 @@ title: "Copas, amigos y besos"
 date: "2026-02-16"
 original_url: https://tangosalbardo.blogspot.com/2026/02/copas-amigos-y-besos.html
 labels: ""
+tags: ["Enrique Cadícamo", "Alberto Marino", "Aníbal Troilo", "Mariano Mores", "José Canet"]
 ---
 
 Una gran dupla de poesía-composición fue, por ejemplo, la de Enrique Cadícamo-Mariano Mores, que crearon este tango en 1944. Los versos de Cadícamo traquetean una vez más con la ruptura de la pareja y la añoranza constante del personaje al que la riqueza económica repentina, le llevó a dejarla. Podría resumirse con el título que José Canet le puso a su página: "*La abandoné y no sabía.*..".

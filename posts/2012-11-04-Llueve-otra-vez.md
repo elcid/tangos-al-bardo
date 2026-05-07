@@ -3,6 +3,7 @@ title: "Llueve otra vez"
 date: "2012-11-04"
 original_url: https://tangosalbardo.blogspot.com/2012/11/llueve-otra-vez.html
 labels: ""
+tags: ["Alberto Podestá", "Pedro Laurenz"]
 ---
 
 Siguen drenando las nubes y enviando su mensaje pluvial sobre la península ibérica. Vamos intentando columbrar alguna ranura en el encapotado cielo madrileño, pero las gotas caen en el charco de mi alma, como escribía Cadícamo en su hermoso tango diseñado con Troilo: *Garúa*.

@@ -3,6 +3,7 @@ title: "El baqueano"
 date: "2016-01-26"
 original_url: https://tangosalbardo.blogspot.com/2016/01/el-baqueano.html
 labels: ""
+tags: ["Eduardo Arolas", "Juan D'Arienzo", "Aníbal Troilo", "Agustín Bardi", "Julio De Caro", "Osmar Maderna", "Roberto Grela", "Roberto Firpo"]
 ---
 
 Agutín Bardi y Eduardo Arolas enfarolaron el tango y le hicieron dar un paso adelante con sus composiciones, que aún siguen sonando como modélicas y modernas. Bardi, tiene una obra considerable, y entre todos esos títulos que le dieron chapa de ilustre, hay varios que reflejan su infancia en el campo, donde naciera. Porque su lugar natal: Las Flores -donde también vió la luz Roberto Firpo, el mismo año 1884-, situado a 187 kilómetros de la Capital, era una pampa abierta con sus gauchos y sus distancias a cielo abierto, sus ríos y arroyos. Le quedaría grabado a fuego en las retinas y la mente del pequeño Agustín cuando sus padres lo mandaron a Buenos Aires, a la casa de unos familiares, con apenas 6 años de edad para realizar los estudios en la escuela primaria.

@@ -3,6 +3,7 @@ title: "La unión de los tangueros"
 date: "2012-05-08"
 original_url: https://tangosalbardo.blogspot.com/2012/05/la-union-de-los-tangueros.html
 labels: ""
+tags: ["Alfredo De Angelis", "Domingo Federico", "Osvaldo Pugliese", "Armando Pontier", "Ricardo Tanturi", "Manuel Buzón"]
 ---
 
 Siempre hubo solidaridad y unión entre la gente del Tango. En ese sentido fueron siempre un ejemplo frente a tanto desencuentro en los diferentes aspectos de la vida pública argentina.

@@ -3,6 +3,7 @@ title: "El Chopin del tango"
 date: "2013-04-28"
 original_url: https://tangosalbardo.blogspot.com/2013/04/el-chopin-del-tango.html
 labels: ""
+tags: ["Domingo Federico", "Osvaldo Pugliese", "Osvaldo Fresedo", "Cátulo Castillo", "Homero Expósito", "Osmar Maderna", "Miguel Caló", "Luis Stazo"]
 ---
 
 Osvaldo Fresedo fue quien lo apodó artísticamente con este alias artístico por su espíritu de ejecutante romántico, como el gran polaco, aunque él lo injertara en las costuras cambiantes de una ciudad cambiante, afincado en el tango. Por su fuerza emotiva merecía entrar en un canon mayor, que quizás no llegó a alcanzar por su temprana muerte, a los 33 años de edad.

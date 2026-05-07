@@ -3,6 +3,7 @@ title: "Milonguereando"
 date: "2026-05-03"
 original_url: https://tangosalbardo.blogspot.com/2026/05/miliongueareando.html
 labels: ""
+tags: ["José María Otero"]
 ---
 
 Te juro: se me piantaron los cables

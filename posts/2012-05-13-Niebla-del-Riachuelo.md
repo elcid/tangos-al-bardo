@@ -3,6 +3,7 @@ title: "Niebla del Riachuelo"
 date: "2012-05-13"
 original_url: https://tangosalbardo.blogspot.com/2012/05/niebla-del-riachuelo.html
 labels: ""
+tags: ["Juan Carlos Cobián", "Enrique Cadícamo", "Osvaldo Fresedo", "Tita Merello"]
 ---
 
 La dupla formada por el excelente pianista y compositor Juan Carlos Cobián y el eximio poeta Enrique Cadícamo fue de las más prolíficas en cuanto a su producción tanguera y también de las que mayor cantidad de éxitos perennes lograron en el mercado.

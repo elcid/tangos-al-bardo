@@ -3,6 +3,7 @@ title: "La milonga y yo"
 date: "2022-08-06"
 original_url: https://tangosalbardo.blogspot.com/2022/08/la-milonga-y-yo.html
 labels: ""
+tags: ["Armando Pontier", "Tita Merello"]
 ---
 
 Los milongueros nos sentimos muy identificados con Leopoldo Díaz Vélez, ese poeta que fue cantor, recitador y hombre del tango desde muy jovencito, influenciado por su padre, hincha de Gardel. Con él fue a verlo al gran cantor a un teatro de su barrio Norte, y el pequeño Leopoldo contaba con apenas 8 años de edad.

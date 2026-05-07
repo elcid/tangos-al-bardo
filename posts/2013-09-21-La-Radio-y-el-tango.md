@@ -3,6 +3,7 @@ title: "La Radio y el tango"
 date: "2013-09-21"
 original_url: https://tangosalbardo.blogspot.com/2013/09/la-radio-y-el-tango.html
 labels: ""
+tags: ["Alfredo De Angelis", "Enrique Rodríguez", "Donato Racciatti", "Francisco Canaro", "Osvaldo Pugliese", "Cátulo Castillo", "Julio Camilloni", "Ricardo Tanturi"]
 ---
 
 *Fueron años de cercos y glicinas / de la vida en orsay, del tiempo loco*, le decía Cátulo en su verso a Homero Manzi. Y fueron años de tango, de nocherías, de amistades y grandes páginas que iluminaron la partitura tanguera, mientras las marquesinas de la calle Corrientes anunciaban a las grandes orquestas del cuarenta, en aquella latitud espiritual de la ciudad insomne.

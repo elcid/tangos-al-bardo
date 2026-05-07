@@ -3,6 +3,7 @@ title: "BIEN MILONGA"
 date: "2019-12-03"
 original_url: https://tangosalbardo.blogspot.com/2019/12/bien-milonga.html
 labels: ""
+tags: ["Alfredo De Angelis", "Juan D'Arienzo", "Pedro Laurenz"]
 ---
 
 Tu conoces el secreto de los tangos

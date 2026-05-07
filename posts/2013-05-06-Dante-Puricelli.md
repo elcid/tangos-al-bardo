@@ -3,6 +3,7 @@ title: "Dante Puricelli"
 date: "2013-05-06"
 original_url: https://tangosalbardo.blogspot.com/2013/05/dante-puricelli.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Carlos Di Sarli"]
 ---
 
 En aquella época en que Buenos Aires respiraba tango por todos sus poros, surgían orquestas todas las semanas, con músicos desemembrados de otras formaciones, directores nuevos, cantores que saltaban a la palestra. Y lo mejor, todos tenían trabajo.

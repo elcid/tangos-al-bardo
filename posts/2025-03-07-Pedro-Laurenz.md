@@ -3,6 +3,7 @@ title: "Pedro Laurenz"
 date: "2025-03-07"
 original_url: https://tangosalbardo.blogspot.com/2025/03/pedro-laurenz.html
 labels: ""
+tags: ["Pedro Laurenz", "Carlos Gardel", "Julio De Caro"]
 ---
 
 VIRTUOSO DEL BANDONEÓN

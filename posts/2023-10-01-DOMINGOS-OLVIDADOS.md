@@ -3,6 +3,7 @@ title: "DOMINGOS OLVIDADOS"
 date: "2023-10-01"
 original_url: https://tangosalbardo.blogspot.com/2023/10/domingos-olvidados.html
 labels: ""
+tags: ["José María Otero", "Alfredo Le Pera"]
 ---
 
 *

@@ -3,6 +3,7 @@ title: "Tanguera en la guerra civil española"
 date: "2014-07-30"
 original_url: https://tangosalbardo.blogspot.com/2014/07/tanguera-en-la-guerra-civil-espanola.html
 labels: ""
+tags: ["Azucena Maizani", "Ricardo Tanturi", "Edgardo Donato"]
 ---
 
 *María Luisa Carnelli fue una revolucionaria en el buen sentido de la palabra. Se dedicó al tango cuando en su casa de La Plata sólo podían escucharlos los varones, y a escondidas. Se casó apenas terminados los estudios secundarios. Tuvo un hijo y se fue con el niño a vivir sola a Buenos Aires. Escribió versos desde adolescente, y aunque provenía de una familia burguesa que tuvo diez hijos, ella se identificaría con ideas de izquierda. Escribiría tangos de mucho éxito, muchos en lunfardo, que firmaría con el nombre de su hijo: Luis Mario o Mario Castro, para no incomodar a su familia, en sociedad con destacados músicos. Toda una audacia inconcebible para la época. Y terminaría viviendo con Enrique González Tuñón, en concubinato, palabra despreciable si las hay. Cuando se produce la Guerra civil española, siente que su deber es estar allí para apoyar al Gobierno de la República, y como corresponsal de la Revista Ahora y colaborando en el Diario El Sol de Madrid, se instala en la capital deEspaña.**Con Raúl González Tuñón recorrerían trincheras, asisten a la resistencia heroica de Madrid y toman partido por republicanos junto a grandes figuras de la intelectualidad española. La *Editorial Renacimiento*, de Sevilla, rescata en un libro esta crónica enviada por la escritora argentina.*

@@ -3,6 +3,7 @@ title: "Tangos para la Gloria Swanson"
 date: "2019-03-14"
 original_url: https://tangosalbardo.blogspot.com/2019/03/tangos-para-la-gloria-swanson.html
 labels: ""
+tags: ["Horacio Ferrer", "Aníbal Troilo", "Pedro Maffia"]
 ---
 
 Pedro Maffia tiene entonces 27 años. Es un sabio del bandoneón. Ha conseguido aquietarle al infantilismo un poco saltarín de los heroicos chambones del 95; ha podido superar la encantadora y vacilante artesanía de las vedettes bandoneoneras de 1910 y pone ahora el fueye en punto de primera plenitud. Digita los temas con la irreprochable lógica que la tradición europea ha dado al violín, por ejemplo, y que el bandoneón no posee.

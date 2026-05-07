@@ -3,6 +3,7 @@ title: "Federico Scorticati"
 date: "2012-07-05"
 original_url: https://tangosalbardo.blogspot.com/2012/07/federico-scorticati.html
 labels: ""
+tags: ["Francisco Canaro", "Manuel Meaños", "Pedro Maffia", "Ivo Pelay", "Charlo"]
 ---
 
 Puede que a alguna persona no le diga mucho este nombre pero se trata de un gran bandoneonista que tocó en orquestas grandes: Firpo, Canaro, Di Sarli.

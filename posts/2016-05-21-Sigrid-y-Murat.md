@@ -3,6 +3,7 @@ title: "Sigrid y Murat"
 date: "2016-05-21"
 original_url: https://tangosalbardo.blogspot.com/2016/05/sigrid-y-murat.html
 labels: ""
+tags: ["Francisco Canaro", "Lucio Demare"]
 ---
 
 Para un milonguero no hay nada más emocionante que bailar con la milonguera adecuada que te sube los decibeles, te empuja y te da piolín para que te enrosques con ella en una tanda maravillosa. Por eso es tan importante que la mujer que baila tango, lo sienta íntimamente, lo disfrute en plenitud y transmita a su compañero las señas vitales para que, entre ambos, dibujen a *piaccere*, con sentimiento, y con las alas que parecieran tener en determinados momentos.

@@ -3,6 +3,7 @@ title: "Antes y después del maestro"
 date: "2019-02-21"
 original_url: https://tangosalbardo.blogspot.com/2019/02/antes-y-despues-del-maestro.html
 labels: ""
+tags: ["Cátulo Castillo", "Homero Expósito", "Horacio Ferrer", "Carlos Gardel", "Julio De Caro", "Pedro Laurenz"]
 ---
 
 Fue un personaje que llenó mi infancia quien me llevó, creo que era en 1926, al Select Lavalle para que escuchara a la orquesta de Julio De Caro. Era una tía mía, hermana de mi madre, llamada Julia pero a la que vaya Dios a saber por qué le decíamos "*Tata*", la que de la mano me hizo cruzar los umbrales del tango. Diré de ella que su finura, su amor a todo lo que fuera expresión de belleza, su curiosidad juvenil que consevó hasta su muerte, su alegría de vivir y su señorío, que la hacía prescindir de las convenciones cuando éstas se convertían en algo ridículo e inhumano, definían su alma.

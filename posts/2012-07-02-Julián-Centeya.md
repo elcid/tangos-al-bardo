@@ -3,6 +3,7 @@ title: "Julián Centeya"
 date: "2012-07-02"
 original_url: https://tangosalbardo.blogspot.com/2012/07/julian-centeya.html
 labels: ""
+tags: ["Enrique Delfino", "Juan D'Arienzo", "Julián Centeya", "Héctor Mauré", "Nelly Omar"]
 ---
 
 Yo había participado en un concurso de preguntas y respuestas por televisión, sobre la historia del tango. Entonces me llevaron a una radio para hacerme un reportaje y allí lo conocí.

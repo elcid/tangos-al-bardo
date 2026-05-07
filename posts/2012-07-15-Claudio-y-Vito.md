@@ -3,6 +3,7 @@ title: "Claudio y Vito"
 date: "2012-07-15"
 original_url: https://tangosalbardo.blogspot.com/2012/07/claudio-y-vito.html
 labels: ""
+tags: ["Francisco Canaro", "Juan D'Arienzo"]
 ---
 
 De repente se armó una pareja tanguera de machos en Madrid.

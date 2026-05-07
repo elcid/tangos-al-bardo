@@ -3,6 +3,7 @@ title: "Pichuco con T de Tango"
 date: "2025-04-03"
 original_url: https://tangosalbardo.blogspot.com/2025/04/pichuco-con-t-de-tango.html
 labels: ""
+tags: ["José María Contursi", "Enrique Cadícamo", "Astor Piazzolla", "Armando Pontier", "Cátulo Castillo", "Alberto Echagüe", "Homero Expósito", "Aníbal Troilo"]
 ---
 
 PRÁCTICAMENTE, a través de la docena de vocalistas, se ve como Pichuco ha sabido siempre elegir a su colaboradores. Dejando a un lado las dos magníficas voces actuales, algunos han grabado poco (Lozano, el mismo Olmedo) y otros casi nada (Amadeo Mandarino, que sólo registró el contracanto para Fiore en "Pájaro ciego", en los comienzos); otros se independizaron y son estrellas: Rivero, Marino, Casal... (Floreal Ruiz, con José Basso). A Fiore, el mismo Pichuco lo llevó a pulso hace poco más de tres años a su última morada; pero es significativo y ejemplar que este hombre no tenga enemigos entre quienes lo conocen bien, hasta el punto de que eso podría resumir nuestra biografía que ya termina. Cada vez que Pichuco celebra un acontecimiento grato, un debut, una despedida, un aniversario, todos sus ex vocalistas y su legión de amigos llegan a estar con él y a darle un apretado abrazo: es la cosecha que se obtiene de la buena siembra.

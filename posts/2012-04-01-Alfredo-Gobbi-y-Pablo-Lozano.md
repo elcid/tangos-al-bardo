@@ -3,6 +3,7 @@ title: "Alfredo Gobbi y Pablo Lozano"
 date: "2012-04-01"
 original_url: https://tangosalbardo.blogspot.com/2012/04/alfredo-gobbi-y-pablo-lozano.html
 labels: ""
+tags: ["Edgardo Donato", "Julio De Caro", "Alfredo Gobbi", "Mario Demarco", "Orlando Goñi", "José Rótulo"]
 ---
 
 Quiero extraer de mis recuerdos a una de las orquestas grandes de nuestra música ciudadana y un cantor que destacó de niño. Afortunadamente ambos se encuentran en un bello momento de su carrera, y lejos del triste final que les aguardaría bastantes años más tarde.

@@ -3,6 +3,7 @@ title: "Pichuqueando"
 date: "2013-07-11"
 original_url: https://tangosalbardo.blogspot.com/2013/07/pichuqueando.html
 labels: ""
+tags: ["Aníbal Troilo", "Homero Manzi"]
 ---
 
 Hoy hacen exactamente 99 años que Aníbal Troilo naciera en la calle Cabrera número 2937, entre Anchorena y Laprida. O sea, el barrio porteño del Abasto lo acunó en su seno, como si fuera a alumbrar un nuevo Gardel.

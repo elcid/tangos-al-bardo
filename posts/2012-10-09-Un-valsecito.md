@@ -3,6 +3,7 @@ title: "Un valsecito"
 date: "2012-10-09"
 original_url: https://tangosalbardo.blogspot.com/2012/10/un-valsecito_9.html
 labels: ""
+tags: ["Francisco García Jiménez", "Hugo del Carril", "Edgardo Donato", "Floreal Ruiz"]
 ---
 
 Se trata de uno de los temas que grabó Hugo Del Carril con la orquesta de Edgardo Donato, en su incipiente carrera de cantor que busca el éxito.

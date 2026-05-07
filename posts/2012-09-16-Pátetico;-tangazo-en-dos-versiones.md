@@ -3,6 +3,7 @@ title: "Pátetico; tangazo en dos versiones"
 date: "2012-09-16"
 original_url: https://tangosalbardo.blogspot.com/2012/09/patetico-tangazo-en-dos-versiones.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Aníbal Troilo", "Alfredo Gobbi", "Jorge Caldara"]
 ---
 
 Es un hermoso tango del bandoneonista Jorge Caldara, cuando formaba en la fila de fueyes de Don Osvaldo Pugliese, junto a Osvaldo Ruggiero. Lo grabó la orquesta del troesma, el 6 de Abril de 1948.

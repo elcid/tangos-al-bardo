@@ -3,6 +3,7 @@ title: "Luis Petrucelli"
 date: "2012-03-27"
 original_url: https://tangosalbardo.blogspot.com/2012/03/luis-petrucelli.html
 labels: ""
+tags: ["Luis Petrucelli", "José Martínez", "Julio De Caro"]
 ---
 
 En una oportunidad invité al programa que teníamos los domingos a la mañana, a Julio De Caro.

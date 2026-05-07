@@ -3,6 +3,7 @@ title: "Hugo Rivas"
 date: "2014-04-09"
 original_url: https://tangosalbardo.blogspot.com/2014/04/hugo-rivas_9.html
 labels: ""
+tags: ["Leopoldo Federico", "Edmundo Rivero", "Osmar Maderna", "Ernesto Baffa", "Roberto Grela", "Julián Plaza", "Raúl Garello", "Oscar Alemán"]
 ---
 
 En su casa se dieron cuenta rápido de que el chico tenía uñas pa'guitarrero. Y resultaba lógico porque su padre y su tío ya andaban entreverados con sus *violas* en distintos eventos y se enrolarían en el conjunto de guitarras de Adolfo Berón a fines de los 50, cuando éste triunfaba en actuaciones y venta de discos. Incluso los ví en el Club Atlético Huracán donde íbamos a milonguear.

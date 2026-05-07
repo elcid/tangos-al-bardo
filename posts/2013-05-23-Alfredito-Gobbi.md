@@ -3,6 +3,7 @@ title: "Alfredito Gobbi"
 date: "2013-05-23"
 original_url: https://tangosalbardo.blogspot.com/2013/05/alfredito-gobbi.html
 labels: ""
+tags: ["Domingo Federico", "Osvaldo Pugliese", "Néstor Marconi", "Horacio Salgán", "Aníbal Troilo", "Julio De Caro", "Alfredo Gobbi", "Miguel Caló"]
 ---
 
 En el ambiente siempre fué así. El diminutivo obedecía al cariño que le profesaban su pares, y al gran respeto por su trayectoria de músico y al frente de las orquestas que fue conformando.

@@ -3,6 +3,7 @@ title: "Quedémonos aquí"
 date: "2020-10-03"
 original_url: https://tangosalbardo.blogspot.com/2020/10/quedemonos-aqui.html
 labels: ""
+tags: ["Libertad Lamarque", "Atilio Stampone", "Homero Expósito", "Floreal Ruiz", "José Basso"]
 ---
 
 Este tango de Homero Expósito y Héctor Stamponi fue creado por esos dos grosos del género en 1956. Unos años en que el tango todavía daba señales de vida, antes que fuera dejado de lado por las grabadoras, dándole prioridad a *El club del clan* y a aquellos intérpretes juveniles de música alegre. En aquel año cincuenta y seis, ese enorme poeta renovador del lenguaje tanguero crearía también temas como **Afiches** y **Maquillaje**, con Atilio Stampone y su hermano Virgilio, respectivamente.

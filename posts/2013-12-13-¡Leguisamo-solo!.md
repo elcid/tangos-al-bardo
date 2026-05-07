@@ -3,6 +3,7 @@ title: "¡Leguisamo solo!"
 date: "2013-12-13"
 original_url: https://tangosalbardo.blogspot.com/2013/12/leguisamo-solo.html
 labels: ""
+tags: ["Alfredo Le Pera", "Carlos Gardel", "Juan Maglio"]
 ---
 
 Este legendario jockey uruguayo, no sólo fue íntimo amigo de Carlos Gardel, sino que le corrió varios de su caballos. Además tiene un record impresionante. En su longeva actuación sobre el lomo de los *pur sangs*, corrió 12.700 carreras y en los hipódromos argentinos obtuvo 3.200 éxitos.

@@ -3,6 +3,7 @@ title: "El Flaco Morán"
 date: "2012-11-25"
 original_url: https://tangosalbardo.blogspot.com/2012/11/el-flaco-moran.html
 labels: ""
+tags: ["Enrique Dizeo", "Alberto Morán", "Lucio Demare", "Raúl Berón"]
 ---
 
 Imposible no traerlo a cada rato a la conversa o al recuerdo. Alberto Morán está instalado en mi época de milonguero a tiempo completo, cuando me recorría todos los templos porteños para dibujar en el piso, ya fuese de parqué o embaldosados.

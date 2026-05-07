@@ -3,6 +3,7 @@ title: "Cuarteto D'Coté"
 date: "2013-01-13"
 original_url: https://tangosalbardo.blogspot.com/2013/01/cuarteto-dcote.html
 labels: ""
+tags: ["Anselmo Aieta"]
 ---
 
 Es un conjunto de bronces creado por cuatro músicos argentinos en el año 1996 para ejecutar tangos en el estilo de las Orquestas Típicas. Se lo trabajaron y les salió un resultado original y creativo. Vienen a establecer un puente entre la tradición tanguera clásica y una formación instrumental característica de otro género: el jazz, que ha sabido convivir con la música porteña durante muchas décadas.

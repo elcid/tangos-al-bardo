@@ -3,6 +3,7 @@ title: "Troilo y Gobbi"
 date: "2014-06-23"
 original_url: https://tangosalbardo.blogspot.com/2014/06/troilo-y-gobbi.html
 labels: ""
+tags: ["Aníbal Troilo", "Julio De Caro", "Pedro Laurenz", "Alfredo Gobbi", "Héctor Varela", "Orlando Goñi"]
 ---
 
 Fueron amigos en la bohemia inicial y lo siguieron siendo hasta el final de Alfredo. Su triste final. También los unió la ternura de ambos y el coloquio perpetuo con la luna en aquellas madrugadas interminables. El primer y magistral pianista de la orquesta de Pichuco fue Orlando Goñi, compañero de aventuras de Alfredito Gobbi, en su corta vida.

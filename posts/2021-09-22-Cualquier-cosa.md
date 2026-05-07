@@ -3,6 +3,7 @@ title: "Cualquier cosa"
 date: "2021-09-22"
 original_url: https://tangosalbardo.blogspot.com/2021/09/cualquier-cosa.html
 labels: ""
+tags: ["Domingo Federico", "Ignacio Corsini", "Carlos Gardel", "Homero Manzi", "Ángel Vargas"]
 ---
 
 Hace unos días publiqué unas palabras de Homero Manzi, en las cuales significaba que todos sus temas provenían de experiencias, vivencias personales, porque no tenía la capacidad de inventar... Y eso, más que seguro, le sucedió en muchos casos a algunos poetas que también hilvanaron en sus versos historias reales, perfiles humanos, desencuentros, caminos de regreso, madrugadas filosas, desventuras, traiciones.

@@ -3,6 +3,7 @@ title: "Lucio Demare en la milonga"
 date: "2013-05-08"
 original_url: https://tangosalbardo.blogspot.com/2013/05/lucio-demare-en-la-milonga.html
 labels: ""
+tags: ["José María Contursi", "Carlos Di Sarli", "Julio De Caro", "Homero Manzi", "Lucio Demare", "Raúl Berón"]
 ---
 
 Increíblemente esta excelente orquesta no tuvo el eco merecido en la gran época de las milongas, que pululaban en todo Buenos Aires, arrastrando multitudes ansiosas de bailar. No contaban con él para esos increíbles bailes carnestolendos que garantizaban concurrencias fenomenales, porque tal vez consideraban que su tono no era el más apropiado para atraer a los milongueros de ambos sexos.

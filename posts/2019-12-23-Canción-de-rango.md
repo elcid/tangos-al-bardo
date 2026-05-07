@@ -3,6 +3,7 @@ title: "Canción de rango"
 date: "2019-12-23"
 original_url: https://tangosalbardo.blogspot.com/2019/12/cancion-de-rango.html
 labels: ""
+tags: ["Roberto Goyeneche", "Raúl Garello", "Raúl Kaplún"]
 ---
 
 Lindo tango. Para escuchar, para bailar. Es de esos que tenemos instalados en el bocho y en el cuore. El autor de los versos, José María Suñé, fue representante de orquestas, de cantores, cantantes y además mostró su paletá poética en varios tangos que siguen pegando fuerte en las milongas: **Una emoción, Decime que pasó, La mesa de un café, Yo quiero cantar un tango, Somos, Nos encontramos al pasar, Pincelada de arrabal, Viento malo, Muñequita rubia, Igual igual que ayer, No temas**, el que trato hoy y otros, con músicos muy conocidos y respetados.

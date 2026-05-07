@@ -3,6 +3,7 @@ title: "La vida es una milonga"
 date: "2015-10-24"
 original_url: https://tangosalbardo.blogspot.com/2015/10/la-vida-es-una-milonga.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Carlos Di Sarli", "Pedro Laurenz", "Agustín Bardi"]
 ---
 
 Yo no sé si Rodolfo Scianmarella (que fue inventor de los jingles modernos en España durante el exilio), sabía bailar tango, aunque escribió varios de muy buen gusto y el título de esta milonguita que cantaba Martín Podestá con la orquesta de Pedro Laurenz, nos pone otra vez, desde temprano en situación para darle con todo esta noche en **BIEN MILONGA**, la que hacemos los sábados y martes en la *Casa de Aragón* de Madrid.

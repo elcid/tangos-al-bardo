@@ -3,6 +3,7 @@ title: "El nácaru (Cuento navideño)"
 date: "2022-12-22"
 original_url: https://tangosalbardo.blogspot.com/2022/12/el-nacaru.html
 labels: ""
+tags: ["José María Otero"]
 ---
 
 De las duras entrañas de la tierra fueron emergiendo los mineros. El paisaje frío y nevado contrastaba con sus rostros ennegrecidos, aunque alegres por las *sidrinas *empinadas en la cueva como preámbulo de la Nochebuena en la aldea asturiana.

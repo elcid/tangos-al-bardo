@@ -3,6 +3,7 @@ title: "Pichuco entra a tallar"
 date: "2012-11-21"
 original_url: https://tangosalbardo.blogspot.com/2012/11/pichuco-entra-tallar.html
 labels: ""
+tags: ["Francisco Fiorentino", "Juan Carlos Cobián", "Agustín Bardi", "Orlando Goñi"]
 ---
 
 Esta petit historia me la narró Manuel Sojit *Corner*, un hombre bajito nacido de las entrañas radiofónicas de su hermano, el relator deportivo, Luis Elías Sojit, que fue muy importante en su momento, sobre todo por los éxitos de Fangio en Europa, pero por su adhesión al peronismo, con la Revolución del 55, debieron emigrar todos los hermanos.

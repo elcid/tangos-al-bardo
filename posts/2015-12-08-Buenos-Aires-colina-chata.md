@@ -3,6 +3,7 @@ title: "Buenos Aires colina chata"
 date: "2015-12-08"
 original_url: https://tangosalbardo.blogspot.com/2015/12/buenos-aires-colina-chata.html
 labels: ""
+tags: ["Sebastián Piana", "Homero Manzi"]
 ---
 
 Tenía que ser un poeta con la profundidad y el ingenio creativo de Homero Manzi, para transformar la Fundación de la Capital de la República Argentina, en unos versos que transmiten el amor por su ciudad. Porque, aunque Homero nació en un pueblo de Santiago del Estero, fue criado de chico en Buenos Aires, paseó los andurriales de Pompeya, el empedrado de Boedo y la cercanía de ese Riachuelo fuera *leit motiv* infinito del pintor Benito Quinquela Martín, y que separa la Capital de la Provincia.

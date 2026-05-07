@@ -3,6 +3,7 @@ title: "Tangos europeos con Sassone"
 date: "2013-02-10"
 original_url: https://tangosalbardo.blogspot.com/2013/02/tangos-europeos-con-sassone.html
 labels: ""
+tags: ["Florindo Sassone", "Osvaldo Fresedo", "Edmundo Rivero", "Horacio Salgán", "Aníbal Troilo", "Roberto Firpo", "Jorge Casal"]
 ---
 
 Florindo Sassone fue un tanguero de la cabeza a los pies. Recibido de profesor de violín, como buen porteño del barrio de Liniers, le tiraba el tango y a él se entregó desde el primer momento.

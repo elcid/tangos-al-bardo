@@ -3,6 +3,7 @@ title: "BIEN MILONGA"
 date: "2020-02-25"
 original_url: https://tangosalbardo.blogspot.com/2020/02/bien-milonga_25.html
 labels: ""
+tags: ["Francisco Canaro", "Teófilo Ibáñez"]
 ---
 
 Es mi expresión y es mi compás

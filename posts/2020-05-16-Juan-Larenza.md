@@ -3,6 +3,7 @@ title: "Juan Larenza"
 date: "2020-05-16"
 original_url: https://tangosalbardo.blogspot.com/2020/05/juan-larenza.html
 labels: ""
+tags: ["José María Aguilar", "Cátulo Castillo", "Teófilo Ibáñez", "Roberto Firpo", "Lito Bayardo"]
 ---
 
 Hoy toca recordar a este pianista que supo tocar en conjuntos tangueros tempranamente, que acompañó a figuras del cancionero popular, pero que destacó especialmente como compositor, dejando páginas que tuvieron mucha repercusión y lograron permanecer en la memoria de los aficionados, los milongueros y también en el repertorio de orquestas y cantores de modo recurrente.

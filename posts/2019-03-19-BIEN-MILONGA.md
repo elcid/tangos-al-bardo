@@ -3,6 +3,7 @@ title: "BIEN MILONGA"
 date: "2019-03-19"
 original_url: https://tangosalbardo.blogspot.com/2019/03/bien-milonga_19.html
 labels: ""
+tags: ["Juan D'Arienzo", "Julio De Caro", "Héctor Mauré"]
 ---
 
 *Buena como nadie, linda como el sol,*

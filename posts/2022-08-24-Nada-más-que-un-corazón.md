@@ -3,6 +3,7 @@ title: "Nada más que un corazón"
 date: "2022-08-24"
 original_url: https://tangosalbardo.blogspot.com/2022/08/nada-mas-que-un-corazon.html
 labels: ""
+tags: ["Roberto Goyeneche", "Osvaldo Pugliese", "Pedro Laurenz", "Raúl Garello", "Carlos Bahr"]
 ---
 
 He hablado de Carlos Bahr y publicado varias veces temas suyos que pegaron fuerte en pentagramas de orquestas y cantores. Ese poeta que arrancó con sus tangos a mediados de los años treinta y que se consolidaría definitivamente en los cuarenta con numerosos éxitos que lo consagrarían en el ambiente. Con Manolo Sucher (que fue quien me lo presentó en el Café que estaba frente a Radio El Mundo) crearon una ristra de tangos ganadores desde el arranque.

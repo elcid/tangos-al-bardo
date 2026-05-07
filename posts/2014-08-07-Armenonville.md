@@ -3,6 +3,7 @@ title: "Armenonville"
 date: "2014-08-07"
 original_url: https://tangosalbardo.blogspot.com/2014/08/armenonville.html
 labels: ""
+tags: ["Francisco Canaro", "Vicente Greco", "Julio De Caro", "Roberto Firpo", "Juan Maglio"]
 ---
 
 Este lujoso Restaurant - Teatro - Dancing, como lo presentaban, estaba ubicado en lo que sería hoy Avenida Libertador y Tagle. Por aquel enconces era la Avenida del Centenario 3360, se inauguró en la temporada de verano de 1911 y funcionó hasta finales de los años 20. Su edificio principal era un gran chalet de estilo inglés rodeado de jardines con un gran espacio verde realizado y cuidado por una renombrada floristería de la época.

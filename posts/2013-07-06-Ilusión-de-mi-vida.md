@@ -3,6 +3,7 @@ title: "Ilusión de mi vida"
 date: "2013-07-06"
 original_url: https://tangosalbardo.blogspot.com/2013/07/ilusion-de-mi-vida.html
 labels: ""
+tags: ["Feliciano Brunelli", "Francisco Canaro", "Horacio Salgán", "Aníbal Troilo"]
 ---
 
 Este vals juguetón de Feliciano Brunelli ha hecho girar a tantas parejas a lo largo de su historia, que vale la pena recordarlo. Además de que es muy lindo realmente y hasta Horacio Salgán le dio la bendición, grabándolo con su orquesta en 1952.

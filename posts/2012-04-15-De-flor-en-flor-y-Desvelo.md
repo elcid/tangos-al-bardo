@@ -3,6 +3,7 @@ title: "De flor en flor y Desvelo"
 date: "2012-04-15"
 original_url: https://tangosalbardo.blogspot.com/2012/04/dd-flor-en-flor-y-desvelo.html
 labels: ""
+tags: ["Enrique Cadícamo", "Osvaldo Pugliese", "Aníbal Troilo", "Carlos Gardel", "Alberto Morán", "Floreal Ruiz"]
 ---
 
 Hablé en otra oportunidad de esos tangos que tienen distinta letra. Incluso distinta temática. Existen numeros casos en la música rioplatense en los que, por distintos motivos, le cambian la poesía original al tango y la reemplazan por otra.

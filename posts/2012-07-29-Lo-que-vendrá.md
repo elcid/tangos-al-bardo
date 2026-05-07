@@ -3,6 +3,7 @@ title: "Lo que vendrá"
 date: "2012-07-29"
 original_url: https://tangosalbardo.blogspot.com/2012/07/lo-que-vendra.html
 labels: ""
+tags: ["Juan José Mosalini", "Aníbal Troilo"]
 ---
 
 Nunca pude olvidar ese momento.

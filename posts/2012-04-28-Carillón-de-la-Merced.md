@@ -3,6 +3,7 @@ title: "Carillón de la Merced"
 date: "2012-04-28"
 original_url: https://tangosalbardo.blogspot.com/2012/04/carillon-de-la-merced.html
 labels: ""
+tags: ["Osvaldo Fresedo", "Alfredo Le Pera", "Julián Centeya", "Teófilo Ibáñez"]
 ---
 
 Yo estaba en Santiago de Chile. Era la época de Allende y había ido a cubrir un evento deportivo.

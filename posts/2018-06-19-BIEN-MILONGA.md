@@ -3,6 +3,7 @@ title: "BIEN MILONGA"
 date: "2018-06-19"
 original_url: https://tangosalbardo.blogspot.com/2018/06/bien-milonga_19.html
 labels: ""
+tags: ["Francisco Canaro", "Juan D'Arienzo", "Alberto Marino", "Aníbal Troilo"]
 ---
 
 *Estar así... en una fuerte comunión*

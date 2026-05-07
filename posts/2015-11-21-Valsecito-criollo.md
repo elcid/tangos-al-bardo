@@ -3,6 +3,7 @@ title: "Valsecito criollo"
 date: "2015-11-21"
 original_url: https://tangosalbardo.blogspot.com/2015/11/valsecito-criollo.html
 labels: ""
+tags: ["Francisco García Jiménez", "Osvaldo Pugliese", "Juan D'Arienzo"]
 ---
 
 Los valsecitos son la alegría de la milonga. Tres minutos donde florecen los cuerpos y los pies. La historia de la danza del tango es tan linda, tan interesante en todos sus bosquejos, que los músicos y cantantes supieron adosarle la milonga y el valsecito a los atriles. Sobre parecidos supuestos bailables, aunque el vals se bailaba al principio con simples giros. Fue a comienzos de los años cincuenta cuando se lo aderezó con figuras de tango, alternando con los giros.

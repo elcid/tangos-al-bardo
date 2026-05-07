@@ -3,6 +3,7 @@ title: "Típica Select"
 date: "2016-08-17"
 original_url: https://tangosalbardo.blogspot.com/2016/08/tipica-select.html
 labels: ""
+tags: ["Francisco Canaro", "Osvaldo Fresedo", "Enrique Delfino", "Eduardo Arolas", "Juan D'Arienzo", "José Martínez", "Roberto Firpo"]
 ---
 
 Cuando las grabadoras se dieron cuenta de la importancia popular que tenía el tango, la firma Odeón tomó la delantera, lideró las ventas en Argentinas de orquestas como la de Roberto Firpo que grababa discos con increíble frecuencia y los mismos se vendían rápidamente. Había entonces otros sellos con menos posiblidades técnicas y crédito comercial, como Atlanta, que regentaba Alfredo Améndola -tío de Juan D'Arienzo-, en la cual grababa Francisco Canaro..

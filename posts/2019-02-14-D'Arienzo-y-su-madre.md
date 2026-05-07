@@ -3,6 +3,7 @@ title: "D'Arienzo y su madre"
 date: "2019-02-14"
 original_url: https://tangosalbardo.blogspot.com/2019/02/darienzo-y-su-madre.html
 labels: ""
+tags: ["Juan D'Arienzo", "Héctor Varela", "Carlos Waiss"]
 ---
 
 ¡Qué imagen! Juan D'Arienzo, con robe de chambre, y empilche y corbata debajo, tomando mate con su madre, Amalia Améndola, muy parecida físicamente a él. Los padres del que sería famoso músico popular, eran italianos y gozaban de muy buena posición económica, ya que su progenitor, Alberto, era representante de importantes firmas comerciales agropecuarias. Y quería para los hijos que siguieran su rumbo.

@@ -3,6 +3,7 @@ title: "Nido gaucho"
 date: "2024-03-16"
 original_url: https://tangosalbardo.blogspot.com/2024/03/nido-gaucho.html
 labels: ""
+tags: ["Francisco Canaro", "Osvaldo Pugliese", "Carlos Di Sarli", "Alberto Podestá", "Roberto Rufino", "Héctor Marcó", "Jorge Durán", "Miguel Caló"]
 ---
 
 La dupla Héctor Marcó-Carlos Di Sarli, fue muy fructífera y dejaron un tendal de temas que se pusieron de moda rápidamente, y perduran exitosamente en los discos, sacudiendo el flujo azaroso de la memoria. *Corazón, La capilla blanca, Porteño y bailarín, Con alma y vida, Así era mi novia, Cuatro vidas, Tangueando te quiero, En un beso la vida, Por qué le llaman amor, Bien frappé, Juan Porteño, Rosamel* son la muestra creadora de ese binomio tan especial que supo pulsar en el sentimiento tanguero.

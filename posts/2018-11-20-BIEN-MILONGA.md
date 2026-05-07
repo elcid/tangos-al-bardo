@@ -3,6 +3,7 @@ title: "BIEN MILONGA"
 date: "2018-11-20"
 original_url: https://tangosalbardo.blogspot.com/2018/11/bien-milonga_20.html
 labels: ""
+tags: ["Alfredo De Angelis", "Ricardo Tanturi", "Juan D'Arienzo", "Julio Martel", "Carlos Dante"]
 ---
 
 *¡Noche de tangos!*

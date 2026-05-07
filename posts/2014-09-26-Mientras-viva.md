@@ -3,6 +3,7 @@ title: "Mientras viva"
 date: "2014-09-26"
 original_url: https://tangosalbardo.blogspot.com/2014/09/mientras-viva.html
 labels: ""
+tags: ["Eduardo Del Piano", "Armando Pontier", "Sebastián Piana", "Edmundo Rivero", "José Colángelo", "Carlos García", "Héctor Mauré", "Lucio Demare"]
 ---
 
 Esta settimana se me dio por las letras de tango, acompañadas por una buena pauta musical. Y creo que debía dedicarle un espacio a Eugenio Majul, un poeta de fina pluma que ha dejado estampados un puñado grandote de versos tangueros que merecen ser tenidos en cuenta, aunque su nombre no tenga la rotundidad de los grandes del género.

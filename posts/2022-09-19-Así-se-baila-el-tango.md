@@ -3,6 +3,7 @@ title: "Así se baila el tango"
 date: "2022-09-19"
 original_url: https://tangosalbardo.blogspot.com/2022/09/asi-se-baila-el-tango.html
 labels: ""
+tags: ["Alberto Castillo", "Ricardo Tanturi"]
 ---
 
 Alberto Castillo rompió el molde del cantor de tango, cuando Ricardo Tanturi lo incorporó a su orquesta en 1939. Seguramente, el propio director ni se imaginó que con su decisión estaba a punto de consumar una revolución en la agenda e historia del tango. La yunta debuta en el Palermo Palace, de Godoy Cruz y Santa Fe, y una verdadera multitud se agolpó ante las puertas del salón, quedando numerosos bailarines frustrados por quedarse afuera. Era todo un síntoma de lo que se avecinaba.

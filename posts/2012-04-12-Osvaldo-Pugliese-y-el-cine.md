@@ -3,6 +3,7 @@ title: "Osvaldo Pugliese y el cine"
 date: "2012-04-12"
 original_url: https://tangosalbardo.blogspot.com/2012/04/osvaldo-pugliese-y-el-cine.html
 labels: ""
+tags: ["Francisco Canaro", "Osvaldo Pugliese", "Homero Expósito", "Daniel Binelli", "Enrique Dizeo"]
 ---
 
 En la película *Mis cinco hijos*, que dirigieron el actor Orestes Caviglia y Bernardo Spoliansky, se dió la curiosidad de que actuaron los cinco hermanos Alonso, artistas en la realidad: Tito, Mario, Iris, Héctor y Pola Alonso.

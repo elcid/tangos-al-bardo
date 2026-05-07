@@ -3,6 +3,7 @@ title: "Como se hace un tango"
 date: "2024-11-26"
 original_url: https://tangosalbardo.blogspot.com/2024/11/como-se-hace-un-tango.html
 labels: ""
+tags: ["Carlos Di Sarli", "Roberto Rufino", "Enrique Dizeo"]
 ---
 
 Siempre vale la pena recordar a ese contrabajista-guitarrista-poeta llamado Arturo Hércules Gallucci, aunque como tantos otros colegas, borró su segundo nombre para firmar tangos, milongas y valsecitos, que estribaron en el repertorio de orquestas típicas y cantantes. Nació en 1909 y luego de recorrer varios caminos musicales entabló una sólida relación con el maestro Carlos Di Sarli.

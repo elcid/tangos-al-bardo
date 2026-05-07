@@ -3,6 +3,7 @@ title: "Cacho Herrero"
 date: "2013-04-05"
 original_url: https://tangosalbardo.blogspot.com/2013/04/cacho-herrero.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Víctor Lavallén", "Alberto Morán", "Pedro Maffia", "Julián Plaza"]
 ---
 
 Fue un miembro destacado de la época de oro del tango, no sólo en carácter de integrante de la gran orquesta de Osvaldo Pugliese, sino como compositor, ya que aportó páginas brillantes e inoxidables al vademécum de la música ciudadana rioplatense.

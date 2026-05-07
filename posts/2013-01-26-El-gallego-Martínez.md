@@ -3,6 +3,7 @@ title: "El gallego Martínez"
 date: "2013-01-26"
 original_url: https://tangosalbardo.blogspot.com/2013/01/el-gallego-martinez.html
 labels: ""
+tags: ["Francisco Canaro", "Pascual Contursi", "Osvaldo Pugliese", "Carlos Di Sarli", "Juan D'Arienzo", "Alberto Morán", "José Martínez", "Raúl Berón"]
 ---
 
 Los porteños acostumbramos no sólo a poner motes a las personas, sino que incluso a las nacionalidades. Por eso un libanés es un turco, un checo es un ruso y así sucesivamente hasta los tanos y los gallegos que representan a italianos y españoles, las dos mayores colectividades de inmigrantes que poblaron la Argentina.

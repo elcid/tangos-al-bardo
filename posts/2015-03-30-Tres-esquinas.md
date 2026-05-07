@@ -3,6 +3,7 @@ title: "Tres esquinas"
 date: "2015-03-30"
 original_url: https://tangosalbardo.blogspot.com/2015/03/tres-esquinas.html
 labels: ""
+tags: ["Ángel Vargas"]
 ---
 
 Es de esos tangos que se quedan pegados a la piel para siempre, sobre todo a aquellos que anduvimos por esos barrios de Barracas, Parque Patricios, Pompeya, Boedo... Barracas era un barrio de fábricas, poblado por familias de trabajadores, especialmente, y que albergó a clubes donde también supimos milonguear, como Barracas Central, Terremoto de Barracas, el Deportivo Pereyra, Barracas Juniors y otros de la zona.

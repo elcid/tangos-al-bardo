@@ -3,6 +3,7 @@ title: "Moneda de cobre"
 date: "2024-02-12"
 original_url: https://tangosalbardo.blogspot.com/2024/02/moneda-de-cobre.html
 labels: ""
+tags: ["Alberto Castillo", "Ricardo Tanturi", "Héctor Varela", "Lucio Demare", "Ariel Ardit", "Raúl Berón"]
 ---
 
 Este tango lo compusieron en 1942 el poeta Horacio Sanguineti y el cantor-compositor Carlos Viván. dos creadores de fuste que dejaron su marca en grabaciones de orquestas y cantantes. Entre ambos crearon también los tangos* Amiga, El Barco María* y la* Milonga para Gardel*. Hay que tener en cuenta que la frondosa y exitosa obra de Sanguinetti la escribió en poco tiempo, dado que fallecíó a los 43 años.

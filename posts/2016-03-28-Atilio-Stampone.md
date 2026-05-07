@@ -3,6 +3,7 @@ title: "Atilio Stampone"
 date: "2016-03-28"
 original_url: https://tangosalbardo.blogspot.com/2016/03/atilio-stampone.html
 labels: ""
+tags: ["Leopoldo Federico", "Atilio Stampone", "Eduardo Arolas", "Susana Rinaldi", "Aníbal Troilo", "Carlos García", "Julio De Caro", "Pedro Maffia"]
 ---
 
 Gran figura del tango, de larga permanencia en los gustos del público, aún cuando su música no fuera estéticamente bailable, no sólo arrancó de pibe en la música popular, teniendo incluso una formación musical de alta escuela, sino que atravesó diferentes etapas de la historia tanguera y sigue vivito y coleando, a punto de cumplir los 90 años de edad.

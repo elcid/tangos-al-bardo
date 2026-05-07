@@ -3,6 +3,7 @@ title: "Las voces del tango"
 date: "2019-10-13"
 original_url: https://tangosalbardo.blogspot.com/2019/10/los-cantores.html
 labels: ""
+tags: ["José María Contursi", "Roberto Goyeneche", "Florindo Sassone", "Celedonio Flores", "Francisco Canaro", "Pascual Contursi", "Ignacio Corsini", "Alfredo Le Pera"]
 ---
 
 Es un aspecto muy importante del tango y hoy tengo ganas de hablar de ellos. En otro momento también hablaré de ellas. Con sólo mencionar lo que significó Carlos Gardel, la chapa internacional que le dió al género, su pinta galana, las películas que filmó en Francia y Estados Unidos, los casi mil registros discográficos que nos dejó, ya estaría inmortalizado. Pero además deberíamos recordar que fue el inventor del tango cantado. Y que, para más gloria suya, sin saber música, supo arreglárselas para firmar con Alfredo Le Pera, Battistella, Celedonio Flores, Razzano y otros, infinidad de tangos y piezas folklóricas que trascendieron a su época, componiendo la música..

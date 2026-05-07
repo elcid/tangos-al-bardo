@@ -3,6 +3,7 @@ title: "Bien milonga"
 date: "2017-04-25"
 original_url: https://tangosalbardo.blogspot.com/2017/04/bien-milonga_25.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Francisco Canaro", "Aníbal Troilo"]
 ---
 
 Isamel Spitalnik tituló así a su hermoso tango, pensando en los milongueros, para que pudieran recrearse bailándolo, tanto en la versión de Pugliese como en la de Troilo, en 1951. Incluso, este bandoneonista que reemplazara a Roberto Peppe en la orquesta de Osvaldo Pugliese, realizó numerosos arreglos para orquestas varias, incluida la del director de Villa Crespo, Aníbal Troilo, Francini-Pontier y otras formaciones.

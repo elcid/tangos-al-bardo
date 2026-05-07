@@ -3,6 +3,7 @@ title: "Argentina, patria del bandoneón"
 date: "2019-08-05"
 original_url: https://tangosalbardo.blogspot.com/2019/08/argentina-patria-del-bandoneon.html
 labels: ""
+tags: ["Enrique Santos Discépolo", "Pascual Contursi", "Vicente Greco", "Pedro Maffia", "Homero Manzi"]
 ---
 
 Este escrito de Homero Manzi fué terminado por Acho Manzi, en una solidaria necesidad de hacer saber, que, cada bandoneón que se vende al extranjero, es una voz más que perdemos, en nuestro ya casi selecto panorama de mutismo.

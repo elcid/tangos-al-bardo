@@ -3,6 +3,7 @@ title: "Adiós Buenos Aires"
 date: "2016-08-03"
 original_url: https://tangosalbardo.blogspot.com/2016/08/adios-buenos-aires.html
 labels: ""
+tags: ["Ángel Vargas", "Nelly Omar"]
 ---
 
 Qué hermosa versión de este tango, por la Típica Victor cantando Angelito Vargas. Qué bien suena en la pista de baile y cómo te impulsa. Aparte, la voz de ese cantorazo tiene ese no sé qué, ¿viste? Y te juro que me encanta. Además, uno se encuentra por el mundo, hoy día, con tantos porteños -y argentinos de las provincias, claro-, y si se detiene un ratito a pensar, te da vueltas la cabeza, por el país que debieron abandonar por distintos motivos, especialmente políticos, económicos, o debido a las dictaduras de turno.

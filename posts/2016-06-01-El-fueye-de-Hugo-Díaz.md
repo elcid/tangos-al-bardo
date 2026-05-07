@@ -3,6 +3,7 @@ title: "El fueye de Hugo Díaz"
 date: "2016-06-01"
 original_url: https://tangosalbardo.blogspot.com/2016/06/el-fueye-de-hugo-diaz.html
 labels: ""
+tags: ["José Colángelo", "Aníbal Troilo", "José Canet", "Hugo Díaz"]
 ---
 
 ###

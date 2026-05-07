@@ -3,6 +3,7 @@ title: "Alberto Echagüe"
 date: "2012-11-20"
 original_url: https://tangosalbardo.blogspot.com/2012/11/alberto-echague.html
 labels: ""
+tags: ["Alberto Echagüe", "Juan D'Arienzo", "Julio Martel", "Carlos Waiss", "Héctor Mauré"]
 ---
 
 Tal vez la historia del tango no haya sido muy justa con los méritos de este cantor rosarino que marcó toda una época en la orquesta de Juan D'Arienzo, y en el tiempo grande de la música de Buenos Aires.

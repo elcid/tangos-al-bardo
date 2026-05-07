@@ -3,6 +3,7 @@ title: "La garçonniere"
 date: "2016-09-09"
 original_url: https://tangosalbardo.blogspot.com/2016/09/la-garconniere.html
 labels: ""
+tags: ["Juan Andrés Caruso", "Francisco Canaro", "Carlos Gardel", "Ada Falcón", "Charlo"]
 ---
 
 El título de este tango refiere a un* bulo* o *cotorrito*, en francés, como también se estilaba hace años. Francisco Canaro y Juan Andrés Caruso, esa yunta que tantos éxitos aportó al cancionero porteño, crearon el tango que Carlos Gardel inmortalizó, llevándolo al disco, el 20 de abril de 1924, acompañado en la ocasión por la orquesta de *Pirincho* Canaro.

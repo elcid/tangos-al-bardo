@@ -3,6 +3,7 @@ title: "Jesús Hidalgo"
 date: "2015-11-30"
 original_url: https://tangosalbardo.blogspot.com/2015/11/jesus-hidalgo.html
 labels: ""
+tags: ["José María Contursi", "Juan Carlos Cobián", "Enrique Cadícamo", "Hugo del Carril", "Pedro Laurenz", "Floreal Ruiz", "Raúl Garello", "Aníbal Arias"]
 ---
 
 Afortunadamente, el tango siempre nos presenta rostros nuevos que le dan aire al género y lo recoloca entre los jóvenes. Valores como Jesús, que lleva ya unos cuantos años en el oficio de cantarlos, destacan entre el manojo de voces promisorias porque, aparte de sus estudios vocales, tiene esa pizca de sentimiento necesaria para interpretarlos, inyectándole savia nueva al viejo tango que estaba esperando el empujón de estos muchachos para seguir iluminando el imaginario colectivo.

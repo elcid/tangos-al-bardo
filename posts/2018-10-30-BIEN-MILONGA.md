@@ -3,6 +3,7 @@ title: "BIEN MILONGA"
 date: "2018-10-30"
 original_url: https://tangosalbardo.blogspot.com/2018/10/bien-milonga_30.html
 labels: ""
+tags: ["Alfredo De Angelis", "Francisco Canaro", "Aníbal Troilo", "Carlos Dante"]
 ---
 
 *¡Mirá, Juancito!, que termine esta locura.*

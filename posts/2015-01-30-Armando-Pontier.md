@@ -3,6 +3,7 @@ title: "Armando Pontier"
 date: "2015-01-30"
 original_url: https://tangosalbardo.blogspot.com/2015/01/armando-pontier.html
 labels: ""
+tags: ["José María Contursi", "Armando Pontier", "Alberto Podestá", "Homero Expósito", "Hugo del Carril", "Aníbal Troilo", "Miguel Caló", "Carlos Bahr"]
 ---
 
 Hoy vuelvo con este excelente instrumentista de bandoneón y enorme compositor que ha dejado un largo collar de perlas en la discoteca tanguera. Títulos que bastarían para ponerle el cartel definitivo de Grande. Es más, yo creo que no se le han reconocido totalmente sus enormes méritos en tal sentido, aunque sí se le haya enaltecido como músico, porque lo demostró sobradamente en la *Orquesta de las estrellas* de Miguel Caló, en la que formó con Enrique Mario Francini, en la suya propia, y en la que sirvió para acompañamiento y lucimiento de Julio Sosa, a quien apoyó cuando era un perfecto desconocido en Buenos Aires y lo descubrieron en un café del barrio de Chacarita por recomendación del poeta y recitador Raúl Hormaza, incorporándolo a la orquesta que formaba con Francini.

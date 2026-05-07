@@ -3,6 +3,7 @@ title: "Días de radio"
 date: "2021-03-20"
 original_url: https://tangosalbardo.blogspot.com/2021/03/dias-de-radio.html
 labels: ""
+tags: ["Alfredo De Angelis", "Libertad Lamarque", "Enrique Rodríguez", "Carlos Di Sarli", "Azucena Maizani", "Mercedes Simone", "Pedro Laurenz", "Julio Martel"]
 ---
 
 A lo largo de la historia, las emisoras radiales influyeron radicalmente en la proyección del tango, incorporando en sus espacios centrales a orquestas, cantantes de ambos géneros y conjuntos pequeños que se instalaron en la oreja y el corazón de la porteñidad. Desde las radios más potentes (El Mundo, Belgrano, Splendid) a las más pequeñas en potencia e influencia, sus directores supieron la importancia y llegada de la música popular y fueron decisivas en la difusión de la misma.

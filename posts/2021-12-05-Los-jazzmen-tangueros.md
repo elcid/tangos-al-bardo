@@ -3,6 +3,7 @@ title: "Los jazzmen tangueros"
 date: "2021-12-05"
 original_url: https://tangosalbardo.blogspot.com/2021/12/los-jazzmen-tangueros.html
 labels: ""
+tags: ["Feliciano Brunelli", "Eduardo Del Piano", "Enrique Rodríguez", "Francisco Canaro", "Adolfo Carabelli", "Eugenio Nóbile", "Juan D'Arienzo", "Edgardo Donato"]
 ---
 
 En aquellos años de fervor juvenilista, de milongas multitudinarias en los clubes de todos los barrios porteños, las veladas bailables eran amenizadas por orquestas de tango y de jazz, que alternaban en los escenarios. Esa costumbre también se extendería a las confiterías céntricas: Montecarlo, Nobel, L'Aiglon, Mi Club, Dominó y otras. Incluso en las principales emisoras radiales. El Mundo, Belgrano, Splendid, era costumbre presentar a unas y a otras.

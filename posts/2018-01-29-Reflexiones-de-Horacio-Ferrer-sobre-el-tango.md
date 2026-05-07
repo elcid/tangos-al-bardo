@@ -3,6 +3,7 @@ title: "Reflexiones de Horacio Ferrer sobre el tango"
 date: "2018-01-29"
 original_url: https://tangosalbardo.blogspot.com/2018/01/reflexiones-de-horacio-ferrer-sobre-el.html
 labels: ""
+tags: ["Roberto Goyeneche", "Horacio Ferrer", "Raúl Garello"]
 ---
 
 La consubstanciación de música, versos y canto es indisoluble en canciones en las cuales la palabra, lejos de ser un elemento rítmico, tiene otra trascendencia expresiva y poética. Así concebidos hay tangos de muy diverso contenido argumental y sentimental que encierran las virtudes de pequeñas obras lírico-dramáticas. es el caso de *Contramarca* (Rossi-Podestá), *Galleguita* (Pettorossi-Navarrine, *El metejón* (Goyeneche-Chiarello), *Tabaco* (Pontier-Contursi), *Volver* (Gardel-Le Pera), *Desencuentro *(Troilo-Castifllo), *Mensaje* (Discépolo-Castillo), *Vcntanita de arraba*l (Scatasso-Contursi), *Confesión* (Discépolo), en los que hay monólogos o diálogos tácitos.

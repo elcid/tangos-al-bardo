@@ -3,6 +3,7 @@ title: "Jovita Luna"
 date: "2017-04-10"
 original_url: https://tangosalbardo.blogspot.com/2017/04/jovita-luna.html
 labels: ""
+tags: ["Roberto Goyeneche", "Cátulo Castillo", "Horacio Salgán", "Ubaldo De Lío", "Manuel Romero", "Mariano Mores", "María Nieves", "Raúl Lavié"]
 ---
 
 Nació en una familia de artistas y pronto aprendería ballet. Su figura y belleza la ayudarían y Jovita Luna, *née* María Eugenia Luna, desarrollaría una gran carrera en los escenarios merced a sus conocimientos de baile y a su espléndido porte. Alfredo Alaria la escogió como primera figura para su ballet y la llevó a España y Francia, donde después de exhibirse con gran suceso la compañía en el Casino de París, llegaría ella a ser primera vedette del Lido.

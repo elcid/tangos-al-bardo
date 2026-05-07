@@ -3,6 +3,7 @@ title: "Miguel Zabala"
 date: "2017-09-01"
 original_url: https://tangosalbardo.blogspot.com/2017/09/miguel-zabala.html
 labels: ""
+tags: ["Juan D'Arienzo", "Roberto Firpo", "Agustín Bardi"]
 ---
 
 Me gusta recordar a aquellas orquestas con la que alguna vez bailé, o escuché sus discos, lo mismo que en las numerosas audiciones de radio donde actuaban estos conjuntos que albergaba la ciudad de Buenos Aires anhelante de tango, de temas nuevos, de cantores, poetas y músicos que conformaron una saga inextinguible. La que vuelve día y noche con sus temas y su rastro ahíto de nostalgia.

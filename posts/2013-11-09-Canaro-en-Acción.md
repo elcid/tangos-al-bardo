@@ -3,6 +3,7 @@ title: "Canaro en Acción"
 date: "2013-11-09"
 original_url: https://tangosalbardo.blogspot.com/2013/11/canaro-en-accion.html
 labels: ""
+tags: ["Francisco Canaro", "Homero Manzi"]
 ---
 
 Hoy hace un día primaveral en el otoño madrileño. Esta noche tengo Milonga (**Tango íntimo,** en la Casa de Aragón - Madrid), y para ir templando, los invito a ver a la orquesta de Francisco Canaro, con el gran Minotto (Minotti Di Cicco) al frente de la fila de bandoneones.

@@ -3,6 +3,7 @@ title: "Dino Saluzzi"
 date: "2015-01-26"
 original_url: https://tangosalbardo.blogspot.com/2015/01/dino-saluzzi.html
 labels: ""
+tags: ["Joaquín Do Reyes", "Vicente Greco", "Carlos García", "Pedro Laurenz", "Alfredo Gobbi", "Mariano Mores", "Héctor Varela", "Julio Pane"]
 ---
 
 Para varios expertos es el músico argentino vivo más importante y representatativo. Curiosamente, no es popular y en algunos países se lo reconoce mucho más que en el suyo propio. Su padre, conocido músico salteño, le regaló a Dino un bandoneón cuando éste tenía siete años y como sus hermanos, todos se impregnaron del espíritu del progenitor y estudiaron a fondo los diversos instrumentos, que les fueron confiados.

@@ -3,6 +3,7 @@ title: "Cecilia Castagneto "
 date: "2021-06-10"
 original_url: https://tangosalbardo.blogspot.com/2021/06/cecilia-castagneto.html
 labels: ""
+tags: ["Astor Piazzolla"]
 ---
 
 ** Una mujer que lleva la batuta**

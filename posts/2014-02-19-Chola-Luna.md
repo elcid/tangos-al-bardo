@@ -3,6 +3,7 @@ title: "Chola Luna"
 date: "2014-02-19"
 original_url: https://tangosalbardo.blogspot.com/2014/02/chola-luna.html
 labels: ""
+tags: ["Libertad Lamarque", "Francisco Canaro", "Francisco Lomuto", "Mercedes Simone", "Tita Merello", "Miguel Caló"]
 ---
 
 Durante años se hicieron todo tipo de chistes sobre la edad de Tania, la esposa de Discépolo. Fue un surtidor interminable para la vis cómica de Ciriaco Ortiz. Pero, afortunadamente el tango presenta una serie de cantantes longevas que han podido vivir muchos años. Hace menos de cuatro meses nos dejó María de la Fuente a los 95 años de edad. Libertad Lamarque falleció con 92. Mercedes Simone a los 86 o Tita Merello a sus 98 bien cumplidos.

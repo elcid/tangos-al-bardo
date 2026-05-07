@@ -3,6 +3,7 @@ title: "Bien milonga"
 date: "2018-02-13"
 original_url: https://tangosalbardo.blogspot.com/2018/02/bien-milonga_13.html
 labels: ""
+tags: ["Alberto Castillo", "Osvaldo Pugliese", "Ricardo Tanturi"]
 ---
 
 * Muchachita de rango *

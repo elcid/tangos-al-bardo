@@ -3,6 +3,7 @@ title: "Calor de hogar"
 date: "2022-10-26"
 original_url: https://tangosalbardo.blogspot.com/2022/10/calor-de-hogar.html
 labels: ""
+tags: ["Leopoldo Federico", "Domingo Federico", "José Libertella", "Carlos Gardel", "Alfredo Gobbi", "Julio Sosa"]
 ---
 
 Muchas veces se ha hablado en sentido crítico sobre las letras de tango porque hablan de la traición de una mujer, o la denigran, o pìntan *hazañas *de nocheros, cuando en realidad el género rebosa de versos de muy buen nivel, tratando sobre diversos temas. Una y otra vez repaso páginas de cierto calibre poético que nos instan a seguir escuchando determinados andares adventicios, pormenores íntimos, incluso argumentos triviales pero familiares, cercanos, que bien interpretados nos invitan a la meditación y a volver a escucharlos.

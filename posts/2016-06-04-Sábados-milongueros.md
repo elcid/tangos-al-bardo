@@ -3,6 +3,7 @@ title: "Sábados milongueros"
 date: "2016-06-04"
 original_url: https://tangosalbardo.blogspot.com/2016/06/sabados-milongueros.html
 labels: ""
+tags: ["Francisco Rotundo", "Carlos Di Sarli", "Enrique Campos", "Juan D'Arienzo", "Floreal Ruiz"]
 ---
 
 Siempre fue el día especial de la semana para bailar con una gran orquesta y maravillosos cantores, en la Buenos Aires del 40/50. Los clubes echaban el resto y contrataban a la dupla de orquestas tango y jazz, para atraer a las masas milongueras que siempre respondieron en forma masiva. Era un lujo que a la distancia resulta mayúsculo, porque las condiciones económicas de estos tiempos sólo permiten llevar a pequeñas formaciones. Y mirá que en aquellos años, lo que no sobraba era precisamente el dinero. Lo suplían con un entusiasmo y devoción irrefrenables.

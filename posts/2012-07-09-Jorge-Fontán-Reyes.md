@@ -3,6 +3,7 @@ title: "Jorge Fontán Reyes"
 date: "2012-07-09"
 original_url: https://tangosalbardo.blogspot.com/2012/07/tragedia-tanguera-ii.html
 labels: ""
+tags: ["José María Contursi", "Edgardo Donato", "Héctor Varela"]
 ---
 
 Estábamos en la redacción del Diario “La Razón” en 1965. Yo escribía una nota cuando se acerca un compañero de la sección Policiales y me dice:   -¿Viste el cantor de tango que está metido en el robo de San Fernando?  Me incorporo, veo el cable y ahí, efectivamente, estaba su nombre: Jorge Fontán Reyes.

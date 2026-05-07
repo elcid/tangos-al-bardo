@@ -3,6 +3,7 @@ title: "La cumparsita"
 date: "2024-02-03"
 original_url: https://tangosalbardo.blogspot.com/2024/02/la-cumparsita.html
 labels: ""
+tags: ["Alfredo De Angelis", "Leopoldo Federico", "Domingo Federico", "Alberto Castillo", "Francisco Canaro", "Osvaldo Pugliese", "Francisco Lomuto", "Mercedes Simone"]
 ---
 
 Anoche lo bailé una vez más a este tango inmortal de Gerardo Matos Rodríguez que te llega bien adentro. Tiene algo especial y por más que pasen los años seguirá haciéndole caricias a nuestros cuores y en la pista te llama de inmediato a formar... Cómo será su peso que las milongas cierran con el tango nacido en 1917, e interpretado por la orquesta de Roberto Firpo, en el café La Giralda, ese boliche montevideano que estaba ubicado en donde se levanta hoy el Palacio Salvo.

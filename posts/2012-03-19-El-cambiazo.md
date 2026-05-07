@@ -3,6 +3,7 @@ title: "El cambiazo"
 date: "2012-03-19"
 original_url: https://tangosalbardo.blogspot.com/2012/03/el-cambiazo.html
 labels: ""
+tags: ["Héctor Varela", "Julio De Caro"]
 ---
 
 A veces se da el hecho de que un tango pueda transformarse en milonga, gracias al olfato o acierto de los directores de orquesta y los arregladores, que pueden o no, tratarse de la misma persona. El resultado suele ser llamativo y ambas versiones de la misma pieza original, puedan ser perfectamente válidos, en su estructura bailable o simplemente para escuchar. En este caso traigo a la palestra el tango original del violinista Enrique Mónaco y Dante A. Linyera (Francisco Bautista Rímoli): *A la francesa.*

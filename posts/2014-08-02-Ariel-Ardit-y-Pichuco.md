@@ -3,6 +3,7 @@ title: "Ariel Ardit y Pichuco"
 date: "2014-08-02"
 original_url: https://tangosalbardo.blogspot.com/2014/08/ariel-ardit-y-pichuco.html
 labels: ""
+tags: ["Aníbal Troilo", "Ariel Ardit"]
 ---
 
 Lamentablemente no podré estar presente el próximo 17 de este mes en esta actuación de Mar del Plata en la que Ariel homenajea a Aníbal Troilo, dentro de la efemérides por el Centenario del nacimiento de Pichuco, que se cumplió el mes que terminó ayer.

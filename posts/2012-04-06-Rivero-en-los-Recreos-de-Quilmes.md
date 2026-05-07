@@ -3,6 +3,7 @@ title: "Rivero en los Recreos de Quilmes"
 date: "2012-04-06"
 original_url: https://tangosalbardo.blogspot.com/2012/04/rivero-en-los-recreos-de-quilmes.html
 labels: ""
+tags: ["Edmundo Rivero"]
 ---
 
 Coincidimos con el gran Edmundo Rivero y su esposa en Montecarlo, en ocasión de la última pelea de Carlos Monzón, cuando defendió su título ante el colombiano Rodrigo Valdez. Estuvimos allí una semana y hubo oportunidad para recordar viejas paradas. Rivero había contado en un libro lo que le sucedió en Quilmes en el recreo *El Rancho grande*.

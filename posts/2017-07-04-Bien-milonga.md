@@ -3,6 +3,7 @@ title: "Bien milonga"
 date: "2017-07-04"
 original_url: https://tangosalbardo.blogspot.com/2017/07/bien-milonga.html
 labels: ""
+tags: ["Francisco Canaro", "Lucio Demare", "Raúl Berón"]
 ---
 
 *Tango que sos un encanto *

@@ -3,6 +3,7 @@ title: "Cátulo Castillo boxeador"
 date: "2012-03-26"
 original_url: https://tangosalbardo.blogspot.com/2012/03/catulo-castillo-boxeador.html
 labels: ""
+tags: ["Sebastián Piana", "Cátulo Castillo", "Miguel Caló"]
 ---
 
 >  Este documento fotográfico encierra varias historias en sí mismo. Basta citar a los tres personajes que aparecen en el mismo en ocasión de un combate de boxeo. Los contrincantes son nada menos que **Cátulo Castillo** y Luis Rayo. El árbitro de la contienda, es el doctor Leopoldo Bard. Cátulo, con 16 años llevaba ganados 15 sobre 18 combates realizados. Era peso gallo (53 kilos) y terminaría siendo campeón liviano amateur.

@@ -3,6 +3,7 @@ title: "El piano milonguero"
 date: "2013-02-20"
 original_url: https://tangosalbardo.blogspot.com/2013/02/el-piano-milonguero.html
 labels: ""
+tags: ["Fulvio Salamanca", "Osvaldo Pugliese", "Carlos Di Sarli", "Alberto Echagüe", "Horacio Salgán", "Juan D'Arienzo", "José Colángelo", "Aníbal Troilo"]
 ---
 
 Confieso que cuando bailo tango, me guío generalmente por la marcación del piano que es el que me lleva. Es algo congénito, instintivo, que vivo en la milonga desde que me largué a las pistas, hace ya tantos añares.

@@ -3,6 +3,7 @@ title: "Un valsecito"
 date: "2014-08-10"
 original_url: https://tangosalbardo.blogspot.com/2014/08/un-valsecito.html
 labels: ""
+tags: ["Alfredo De Angelis", "Juan Carlos Cobián", "Ignacio Corsini", "Julio Martel", "Carlos Dante", "Juan Maglio"]
 ---
 
 Domingo asoleado y caluroso en Madrid. Tengo que darme manija para disfrutar de estas matinattas, y la mejor manera de entretenerme es escuchando unos valsecitos. De paso cañazo me los milongueo solito, y los transpiro para después combatir *il caldo*, en la piscina que me está esperando.

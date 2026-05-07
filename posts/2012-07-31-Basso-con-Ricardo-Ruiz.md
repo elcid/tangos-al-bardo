@@ -3,6 +3,7 @@ title: "Basso con Ricardo Ruiz"
 date: "2012-07-31"
 original_url: https://tangosalbardo.blogspot.com/2012/07/basso-con-ricardo-ruiz.html
 labels: ""
+tags: ["José María Contursi", "Osvaldo Fresedo", "Armando Pontier", "Aníbal Troilo", "Ricardo Ruiz", "José Basso"]
 ---
 
 [](http://www.blogger.com/%3Ciframe%20src=%22https://skydrive.live.com/embed?cid=090E4A1FC6851E29&resid=90E4A1FC6851E29%21110&authkey=AGwEx0JRXsCGBNU%22%20width=%2298%22%20height=%22120%22%20frameborder=%220%22%20scrolling=%22no%22%3E%3C/iframe%3E)Cuando en 1947, Pepe Basso dejó vacante el piano en la orquesta de Aníbal Troilo y formó su propio conjunto, despertó grandes expectativas. Tal era así que arrancó ganando, con actuaciones en Radio Belgrano, en el Dancing Ocean y en el Café Marzotto de la calle Corrientes.

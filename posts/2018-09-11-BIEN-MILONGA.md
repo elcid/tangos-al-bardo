@@ -3,6 +3,7 @@ title: "BIEN MILONGA"
 date: "2018-09-11"
 original_url: https://tangosalbardo.blogspot.com/2018/09/bien-milonga_11.html
 labels: ""
+tags: ["Alfredo De Angelis", "Francisco Canaro", "Julio Martel", "Carlos Dante"]
 ---
 
 *Con la cadencia de un tango*

@@ -3,6 +3,7 @@ title: "Pascual Mamone"
 date: "2022-08-17"
 original_url: https://tangosalbardo.blogspot.com/2022/08/pascual-mamone.html
 labels: ""
+tags: ["Leopoldo Federico", "Florindo Sassone", "Osvaldo Pugliese", "Atilio Stampone", "Hugo del Carril", "Alberto Marino", "Aníbal Troilo", "Alberto Morán"]
 ---
 
 Así como Troilo era Pichuco para todos, Biagi *Manos Bruja*s o Goyeneche *El Polaco* a este bandoneonista, compositor, director-arreglador, en el ambiente se lo conocía como El *Cholo* Mamone. Y lo cierto es que en la década del cincuenta ya empezó a mostrar sus uñas de guitarrero haciendo numerosos arreglos para orquestas importantes que confiaban en su gran talento para el *mettier*. Con sus sutilezas, abriendo trochas, sin caer en estereotipos ni clichés.

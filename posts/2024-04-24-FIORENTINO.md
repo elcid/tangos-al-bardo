@@ -3,6 +3,7 @@ title: "FIORENTINO"
 date: "2024-04-24"
 original_url: https://tangosalbardo.blogspot.com/2024/04/fiorentino.html
 labels: ""
+tags: ["Pedro Maffia"]
 ---
 
 El cuarteador, Fueye, Tinta roja

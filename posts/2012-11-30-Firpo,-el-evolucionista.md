@@ -3,6 +3,7 @@ title: "Firpo, el evolucionista"
 date: "2012-11-30"
 original_url: https://tangosalbardo.blogspot.com/2012/11/firpo-el-evolucionista.html
 labels: ""
+tags: ["Francisco Canaro", "Osvaldo Fresedo", "Eduardo Arolas", "Agustín Bardi", "José Martínez", "Roberto Firpo"]
 ---
 
 Los méritos contraídos por Roberto Firpo en el tango, son enormes. Fue quien introdujo el piano en la época arcaica del tango. El que cosificó el valsecito porteño, despojándolo del aire vienés y Boston que arrastraba; el que le dio conformación definitiva a *La cumparsita.* Y podríamos seguir hablando de los años que trajinó para que el tango creciera, de los músicos que formó a su lado, de la parva de temas compuestos y de su evolución constante. De las grandes orquestas que condujo juntamente con Canaro para los carnavales rosarinos o para actuar en el Teatro Colón bajo su mando.

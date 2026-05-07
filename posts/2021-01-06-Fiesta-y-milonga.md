@@ -3,6 +3,7 @@ title: "Fiesta y milonga"
 date: "2021-01-06"
 original_url: https://tangosalbardo.blogspot.com/2021/01/fiesta-y-milonga.html
 labels: ""
+tags: ["Eladia Blázquez"]
 ---
 
 En estos momentos pandémicos que estamos viviendo, lejos de nuestros lugares de encuentro, de los amigos, del café, de la charla, del cine y especialmente de la milonga que nos depara una satisfacción íntima, desbordante, acudimos una y otra vez a las fuentes para vivificarnos con la música. Esa que nos iluminó con su fosforescencia desde niños, nos entibió los días invernales desde la radio y nos ahormó en la milonga. En esa fiesta popular que se ha ido desparramando por el mundo con su sortilegio y la escenografía que es todo un trampolín para la imaginación, los sentimientos y para el cuore milonguero..

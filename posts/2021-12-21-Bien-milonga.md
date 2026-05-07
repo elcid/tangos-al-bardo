@@ -3,6 +3,7 @@ title: "Bien milonga"
 date: "2021-12-21"
 original_url: https://tangosalbardo.blogspot.com/2021/12/bien-milonga_21.html
 labels: ""
+tags: ["Alberto Castillo", "Ricardo Tanturi", "Juan D'Arienzo", "Julio De Caro"]
 ---
 
 [![](https://blogger.googleusercontent.com/img/a/AVvXsEh3bnLfuxQ0oobAyy6rtXEd_QBm85n9Ekae96Z9oOR2Y6I-_HVkeS0g_65yZHYAkVBQoYttYIMZx-3H0qUvg7IHoWEsKyhJVN3Lv52ZsCP3qvbsJoLm90UWxuAZhHcMdx0XR5jfOuB7k3dytqr69GiQ-UpWkRKQUaw383tn0KM7vzrZulJNsFsYXR41qQ=w200-h200)](https://blogger.googleusercontent.com/img/a/AVvXsEh3bnLfuxQ0oobAyy6rtXEd_QBm85n9Ekae96Z9oOR2Y6I-_HVkeS0g_65yZHYAkVBQoYttYIMZx-3H0qUvg7IHoWEsKyhJVN3Lv52ZsCP3qvbsJoLm90UWxuAZhHcMdx0XR5jfOuB7k3dytqr69GiQ-UpWkRKQUaw383tn0KM7vzrZulJNsFsYXR41qQ=s250)

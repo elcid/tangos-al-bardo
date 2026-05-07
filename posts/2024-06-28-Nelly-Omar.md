@@ -3,6 +3,7 @@ title: "Nelly Omar"
 date: "2024-06-28"
 original_url: https://tangosalbardo.blogspot.com/2024/06/nelly-omar.html
 labels: ""
+tags: ["Francisco Canaro", "Alberto Di Paulo", "Julián Centeya", "Carlos Gardel", "Ubaldo De Lío", "Roberto Grela", "Homero Manzi", "Tita Merello"]
 ---
 
 ** La voz dramática del tango**

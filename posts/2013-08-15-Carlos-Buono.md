@@ -3,6 +3,7 @@ title: "Carlos Buono"
 date: "2013-08-15"
 original_url: https://tangosalbardo.blogspot.com/2013/08/carlos-buono.html
 labels: ""
+tags: ["Libertad Lamarque", "Alberto Podestá", "Atilio Stampone", "Horacio Salgán", "Alfredo Gobbi", "Mariano Mores", "Julián Plaza", "María Graña"]
 ---
 
 Es increíble el mundo que lleva recorrido este bandoneonista de Junín que tiene un ángel en cada mano y que se ha presentado en las mejores plazas europeas y norteamericanas, aunque él siga añorando su pueblo bonaerense y la laguna donde iban a pescar con los amigos del barrio.

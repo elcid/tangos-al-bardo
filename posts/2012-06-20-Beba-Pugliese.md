@@ -3,6 +3,7 @@ title: "Beba Pugliese"
 date: "2012-06-20"
 original_url: https://tangosalbardo.blogspot.com/2012/06/beba-pugliese.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Alberto Echagüe", "Sebastián Piana", "Jorge Caldara", "Aníbal Arias"]
 ---
 
 El apellido es como una voz que restituye el clima de fervor milonguero, aquellas percepciones tangueras, el ambiente poblado de emociones inolvidables.

@@ -3,6 +3,7 @@ title: "ROTISERÍA ARGENTINA"
 date: "2024-02-18"
 original_url: https://tangosalbardo.blogspot.com/2024/02/rotiseria-argentina.html
 labels: ""
+tags: ["Juan Carlos Cobián", "Enrique Cadícamo"]
 ---
 
 (El entrepiso)

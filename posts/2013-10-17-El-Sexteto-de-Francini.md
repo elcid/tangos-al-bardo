@@ -3,6 +3,7 @@ title: "El Sexteto de Francini"
 date: "2013-10-17"
 original_url: https://tangosalbardo.blogspot.com/2013/10/el-sexteto-de-francini.html
 labels: ""
+tags: ["Fernando Suárez Paz", "Néstor Marconi", "Pedro Maffia"]
 ---
 
 Para muchos fue el mejor violinista de la historia del tango. Incluso en un asado que organizó el pianista y director Juan Antonio Morteo en su casa de Villa Pueyrredón con gente del tango, y adonde me agasajaron por llegar de visita desde Madrid, discutimos precisamente, a propuesta de otro grande del instrumento como Fabián Bertero, ¿quien había sido el mejor? ¿Vardaro o Francini?

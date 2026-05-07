@@ -3,6 +3,7 @@ title: "Rivero se va de la orquesta de Pichuco"
 date: "2014-09-15"
 original_url: https://tangosalbardo.blogspot.com/2014/09/rivero-se-despide-de-la-orquesta-de.html
 labels: ""
+tags: ["Celedonio Flores", "Alberto Marino", "Edmundo Rivero", "Horacio Salgán", "Roberto Grela", "Floreal Ruiz", "Homero Manzi"]
 ---
 
 Pichuco había desoído todos los consejos, desechado todas las advertencias, al decidir incluir una voz grave en su orquesta, la de Edmundo Rivero. La oreja de los tangueros no estaba acostumbrada a ese tipo de cantores y Horacio Salgán en su día lo había comprobado, cuando las grabadoras se negaban a admitir a Rivero en su orquesta, que también iba a contracorriente.

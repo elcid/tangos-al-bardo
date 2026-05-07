@@ -3,6 +3,7 @@ title: "Dos tangazos de Arolas"
 date: "2024-06-01"
 original_url: https://tangosalbardo.blogspot.com/2024/06/dos-tangazos-de-arolas.html
 labels: ""
+tags: ["Osvaldo Pugliese"]
 ---
 
 La obra que nos dejó *El Tigre del bandoneón* en su corta existencia está sobrada de calidad, de polenta musical y de ese toque que deben tener las obras que perduran en el tiempo. De entre todo ese material rescato otros dos tangos que compuso y que siguen sonando en las pistas milongueras.

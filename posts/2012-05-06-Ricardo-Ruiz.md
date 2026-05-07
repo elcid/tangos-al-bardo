@@ -3,6 +3,7 @@ title: "Ricardo Ruiz"
 date: "2012-05-06"
 original_url: https://tangosalbardo.blogspot.com/2012/05/ricardo-ruiz.html
 labels: ""
+tags: ["José María Contursi", "Francisco Canaro", "Osvaldo Fresedo", "Armando Pontier", "Aníbal Troilo", "Ricardo Ruiz", "José Basso"]
 ---
 
 Fue un excelente cantor, con una hermosa voz y un delicado estilo que realzaba la riqueza del poema musical.

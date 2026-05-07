@@ -3,6 +3,7 @@ title: "Medianoche"
 date: "2013-10-20"
 original_url: https://tangosalbardo.blogspot.com/2013/10/medianoche.html
 labels: ""
+tags: ["Alberto Podestá", "Aníbal Troilo", "Alberto Morán", "Raúl Berón", "Charlo"]
 ---
 
 Este tango, cuya letra la pertenece al popular poeta Héctor Gagliardi, fue el primero que realizó Aníbal Troilo y por eso cobra una relevancia muy especial. El mismo Gagliardi, cuyos libritos de versos recitábamos en los años de la escuela secundaria pasándonos los mismos entre los compañeros, le contó la historia del tema al comentarista Leonel Godoy en Radio El Mundo.

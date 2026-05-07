@@ -3,6 +3,7 @@ title: " MILONGA DEL CARTONERO"
 date: "2023-12-14"
 original_url: https://tangosalbardo.blogspot.com/2023/12/milonga-del-cartonero.html
 labels: ""
+tags: ["José María Otero"]
 ---
 
 [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiii59KQjePMCFb7j9JzUIpFI3mGkQoFH3W_dOdKeLLJkkWSVB8VdF0pT8a20exHzIbIaOi0Nx8aSJiu_l87xrGUaQC1VuPaOJhWtgVl_9KJnob3KFHhNip7TYyuH_tT4-jaC61k4H0XDrng8naW7oTj5zsd4kEA2Q_XgC8xXiu-_-0KHKreZaubX85iWxb/w400-h281/cartonero4-lores.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiii59KQjePMCFb7j9JzUIpFI3mGkQoFH3W_dOdKeLLJkkWSVB8VdF0pT8a20exHzIbIaOi0Nx8aSJiu_l87xrGUaQC1VuPaOJhWtgVl_9KJnob3KFHhNip7TYyuH_tT4-jaC61k4H0XDrng8naW7oTj5zsd4kEA2Q_XgC8xXiu-_-0KHKreZaubX85iWxb/s528/cartonero4-lores.jpg)

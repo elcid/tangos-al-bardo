@@ -3,6 +3,7 @@ title: "BIEN MILONGA"
 date: "2019-05-21"
 original_url: https://tangosalbardo.blogspot.com/2019/05/bien-milonga_21.html
 labels: ""
+tags: ["Juan D'Arienzo", "Alberto Marino", "Aníbal Troilo"]
 ---
 
 * Pero escuchá, fijate bien*

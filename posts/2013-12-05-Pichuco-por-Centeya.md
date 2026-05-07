@@ -3,6 +3,7 @@ title: "Pichuco por Centeya"
 date: "2013-12-05"
 original_url: https://tangosalbardo.blogspot.com/2013/12/pichuco-por-centeya.html
 labels: ""
+tags: ["Roberto Goyeneche", "Julián Centeya", "Aníbal Troilo"]
 ---
 
 Lo transcribo tal cual. El retrato poético que un tipo que fue mi amigo: Julián Centeya (Amleto EnricoVergiati) hizo de Aníbal Troilo.

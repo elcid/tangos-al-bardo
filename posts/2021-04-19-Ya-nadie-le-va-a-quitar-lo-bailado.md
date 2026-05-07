@@ -3,6 +3,7 @@ title: "Ya nadie le va a quitar lo bailado"
 date: "2021-04-19"
 original_url: https://tangosalbardo.blogspot.com/2021/04/ya-nadie-le-va-quitar-lo-bailado.html
 labels: ""
+tags: ["José María Contursi", "Alfredo De Angelis", "Juan Carlos Cobián", "Juan Carlos Copes", "Roberto Goyeneche", "Enrique Cadícamo", "Alberto Castillo", "Osvaldo Pugliese"]
 ---
 
 Murió Juan Carlos Copes. Era conmovedor verlo avanzar entre las sombras de un salón cualquiera. Los milongueros dejaban de bailar para aplaudirlo.

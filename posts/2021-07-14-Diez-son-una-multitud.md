@@ -3,6 +3,7 @@ title: "Diez son una multitud"
 date: "2021-07-14"
 original_url: https://tangosalbardo.blogspot.com/2021/07/diez-son-una-multitud.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Víctor Lavallén", "Astor Piazzolla", "Horacio Salgán", "Aníbal Troilo", "Alberto Morán", "Julián Plaza"]
 ---
 
 ** Presentación del Sexteto Tango **

@@ -3,6 +3,7 @@ title: "El motivo (Pobre paica)"
 date: "2013-04-24"
 original_url: https://tangosalbardo.blogspot.com/2013/04/el-motivo-pobre-paica.html
 labels: ""
+tags: ["José María Contursi", "Juan Carlos Cobián", "Enrique Cadícamo", "Pascual Contursi", "Osvaldo Pugliese", "Eduardo Arolas", "Alberto Marino", "Carlos Gardel"]
 ---
 
 Este hermosísimo tango de Juan Carlos Cobián y Pascual Contursi, lo creó como tango instrumental, el pianista bahiense. Cuando Pascual Contursi se dedicó a introducir la poesía en el tango y tuvo éxito con el primero: *Mi noche triste*; pasó a ser el principal proveedor de temas para Carlos Gardel.

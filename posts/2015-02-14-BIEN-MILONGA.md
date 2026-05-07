@@ -3,6 +3,7 @@ title: "BIEN MILONGA"
 date: "2015-02-14"
 original_url: https://tangosalbardo.blogspot.com/2015/02/bien-milonga_14.html
 labels: ""
+tags: ["Carlos Di Sarli"]
 ---
 
 Como todos los sábados y martes, le damos cuerda a nuestra pasión milonguera, en una sala con mucho encanto.

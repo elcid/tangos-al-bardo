@@ -3,6 +3,7 @@ title: "Paseo de Julio"
 date: "2013-07-02"
 original_url: https://tangosalbardo.blogspot.com/2013/07/paseo-de-julio.html
 labels: ""
+tags: ["Francisco Lomuto", "Osvaldo Fresedo", "Carlos Gardel"]
 ---
 
 Este tango del violinista y poeta Emilio Fresedo, evoca una época de la ciudad de Buenos Aires, en que empezaba a florecer su construcción. Esas alamedas que constituían los Paseos de la época virreinal en América, fueron durante mucho tiempo, el único espacio que se podía dedicar como uso público.

@@ -3,6 +3,7 @@ title: "Valseando que es gerundio"
 date: "2012-04-26"
 original_url: https://tangosalbardo.blogspot.com/2012/04/valseando-que-es-gerundio.html
 labels: ""
+tags: ["Francisco Canaro", "Eduardo Arolas"]
 ---
 
 Los valses vieneses llegaron a América de la mano de los inmigrantes.

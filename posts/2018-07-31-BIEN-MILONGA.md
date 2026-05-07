@@ -3,6 +3,7 @@ title: "BIEN MILONGA"
 date: "2018-07-31"
 original_url: https://tangosalbardo.blogspot.com/2018/07/bien-milonga_31.html
 labels: ""
+tags: ["Carlos Di Sarli", "Juan D'Arienzo"]
 ---
 
 *Con este tango retozón, tan juguetón... *

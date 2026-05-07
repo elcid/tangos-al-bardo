@@ -3,6 +3,7 @@ title: "El bulín de la calle Ayacucho"
 date: "2016-01-08"
 original_url: https://tangosalbardo.blogspot.com/2016/01/el-bulin-de-la-calle-ayacucho.html
 labels: ""
+tags: ["Aníbal Troilo", "Carlos Gardel"]
 ---
 
 He comentado algunas veces la barbaridad perpetrada por el gobierno militar de Pedro J. Ramírez, en 1943, cuando implantó la persecución radiofónica del lunfardo, dejando fuera de las audiencias, toda expresión de tango, milonga o vals, que tuviera una sola palabra del lenguaje de la calle. El 14 de octubre de 1943 se perpetró esa canallada mediante la resolución dictatorial nº 06869.

@@ -3,6 +3,7 @@ title: "El Mortero del Globito"
 date: "2012-07-17"
 original_url: https://tangosalbardo.blogspot.com/2012/07/el-mortero-del-globito.html
 labels: ""
+tags: ["Francisco García Jiménez", "Alberto Gómez", "Carlos Gardel"]
 ---
 
 El tango y el fútbol son pasiones hermanadas de los argentinos, especialmente de los porteños. Carlos Gardel registró varios temas futboleros, aunque él prefería otra cancha: la de los caballos de carrera.

@@ -3,6 +3,7 @@ title: "Entrevista a Juan Carlos Copes"
 date: "2019-06-14"
 original_url: https://tangosalbardo.blogspot.com/2019/06/entrevista-juan-carlos-copes.html
 labels: ""
+tags: ["Libertad Lamarque", "Juan Carlos Copes", "Francisco Canaro", "Alberto Castillo", "Homero Expósito", "Julián Plaza", "María Nieves"]
 ---
 
 **"El misterio del tango está en el abrazo"**

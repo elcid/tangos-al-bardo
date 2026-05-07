@@ -3,6 +3,7 @@ title: "El tango, el bandoneón y sus intérpretes"
 date: "2015-04-08"
 original_url: https://tangosalbardo.blogspot.com/2015/04/historia-del-bandoneon.html
 labels: ""
+tags: ["Pedro Laurenz", "Pedro Maffia"]
 ---
 
 Hoy tengo ganas de que se dén un atracón de fueye, ese instrumento germano que llegó a Buenos Aires para que lo recibiera como a tantos inmigrantes que arribaron a la Argentina, le diera un baño de ciudad, de potrero, de amores, de cabarute, de noche, de nostalgia, y lo injertaran en el tango, a ver si echaba raíces y frutos. ¡Y vaya si los echó!

@@ -3,6 +3,7 @@ title: "Héctor Mauré"
 date: "2014-03-23"
 original_url: https://tangosalbardo.blogspot.com/2014/03/hector-maure.html
 labels: ""
+tags: ["Celedonio Flores", "Fulvio Salamanca", "Cátulo Castillo", "Juan D'Arienzo", "Héctor Mauré"]
 ---
 
 Su nombre aparece revitalizado en las milongas de todo el orbe, gracias a los 50 temas que dejó impresos en el disco, con la orquesta de Juan D'Arienzo. Estuvo con el Rey del compás desde fines de 1940 hasta mediados del 44 y su timbre vocal pudo lucir con absoluta calidad y claridad, pese a que no era nada fácil destacar en ese momento, por el ritmo veloz que el el director había impuesto a su formación triunfal.

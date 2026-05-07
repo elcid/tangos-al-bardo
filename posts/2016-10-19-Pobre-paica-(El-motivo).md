@@ -3,6 +3,7 @@ title: "Pobre paica (El motivo)"
 date: "2016-10-19"
 original_url: https://tangosalbardo.blogspot.com/2016/10/pobre-paica-el-motivo.html
 labels: ""
+tags: ["José González Castillo", "Juan Carlos Cobián", "Eduardo Del Piano", "Pascual Contursi", "Osvaldo Pugliese", "Carlos Gardel", "Ángel Vargas"]
 ---
 
 Hay que retroceder hasta casi cien años atrás para encontrar el nacimiento de los versos introducidos en la música del tango, que había arrancado bailable y acunado en el fueye e inventiva de Arolas, el piano y la sabiduría de Bardi y otros creadores del primigenio género rioplatense. No hay duda alguna sobre el hecho de que fuera Pascual Contursi, el vate que pergeñó las primeras letras que acompañarían a las notas de esos grandes creadores.

@@ -3,6 +3,7 @@ title: "Las familias tangueras (2)"
 date: "2022-05-15"
 original_url: https://tangosalbardo.blogspot.com/2022/05/las-familias-tangueras-2.html
 labels: ""
+tags: ["Leopoldo Federico", "Roberto Goyeneche", "Florindo Sassone", "Pascual Contursi", "Osvaldo Pugliese", "Osvaldo Fresedo", "Roberto Pansera", "Horacio Salgán"]
 ---
 
 Pedro Laurenz fue uno de los más grandes bandoneonistas que tuvo el género. Tal vez el número uno, al menos para mí. Y no sólo destacó en el manejo del instrumento sino que incluso tuvo muy buena orquesta y fue un gran compositor de temas exitosos. Se llamaba en realidad Pedro Blanco. Estudió violín. Su madre había estado casada anteriormente con un señor apellidado Laurenz, con quien tuvo dos hijos: Eustaquio y Félix, radicados en Montevideo. Ambos eran bandoneonistas y actuaban en orquestas uruguayas. Cuando su madre llevó a Pedrito a Montevideo para pasar unos días, los hermanos le contagiaron el amor por el bandoneón y se olvidó del violín que había comenzado a estudiar. Tenía 14 años. Estuvo radicado en Uruguay un par de años y allí comenzó a trabajar en algunos medios. Al volver se enroló en la orquesta del pianista Roberto Goyeneche y comenzó su carrera hacia el gran éxito que le esperaba por sus enormes condiciones, de bandoneonista, músico, director y compositor. Con el paso de los años, su hija: María Cristina también luciría como cancionista.

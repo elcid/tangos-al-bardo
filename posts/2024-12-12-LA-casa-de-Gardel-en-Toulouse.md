@@ -3,6 +3,7 @@ title: "LA casa de Gardel en Toulouse"
 date: "2024-12-12"
 original_url: https://tangosalbardo.blogspot.com/2024/12/la-casa-de-gardel-en-toulouse.html
 labels: ""
+tags: ["Carlos Gardel", "Agustín Bardi"]
 ---
 
 Acá estoy golpeando el llamador de la casa donde vivió Carlos Gardel, en Toulouse, junto a su madre. Había nacido en el Hospital de la Grave, en esa misma ciudad, el 10 de diciembre de 1890. y al día siguiente lo bautizaron en en la capilla de dicho hospital.

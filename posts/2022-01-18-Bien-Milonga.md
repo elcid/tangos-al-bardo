@@ -3,6 +3,7 @@ title: "Bien Milonga"
 date: "2022-01-18"
 original_url: https://tangosalbardo.blogspot.com/2022/01/bien-milonga.html
 labels: ""
+tags: ["Alberto Castillo", "Osvaldo Pugliese"]
 ---
 
 ¡A bailar!...¡A Bailar!... que la orquesta se va

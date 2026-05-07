@@ -3,6 +3,7 @@ title: "El viejo vals"
 date: "2022-03-02"
 original_url: https://tangosalbardo.blogspot.com/2022/03/el-viejo-vals.html
 labels: ""
+tags: ["José González Castillo", "Francisco Rotundo", "Cátulo Castillo", "Enrique Campos", "Charlo"]
 ---
 
 Maravilla de valsecito creado por esos dos pesos pesado del tango que fueron José González Castillo y Charlo. Uno como poeta de primerísima línea y el otro como cantor, galán y gran compositor. Esta página nacida a comienzos de la década del treinta, mereció seguramente una mayor difusión por todo lo hermoso que contienen tanto los versos como la música.

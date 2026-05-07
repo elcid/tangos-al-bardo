@@ -3,6 +3,7 @@ title: "BIEN MILONGA"
 date: "2019-04-09"
 original_url: https://tangosalbardo.blogspot.com/2019/04/bien-milonga_9.html
 labels: ""
+tags: ["Ricardo Tanturi", "Juan D'Arienzo", "Héctor Mauré"]
 ---
 
 * Hermano te ha vencido el modernismo, *

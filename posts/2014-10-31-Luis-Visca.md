@@ -3,6 +3,7 @@ title: "Luis Visca"
 date: "2014-10-31"
 original_url: https://tangosalbardo.blogspot.com/2014/10/luis-visca.html
 labels: ""
+tags: ["Alfredo De Angelis", "Enrique Rodríguez", "Enrique Cadícamo", "Ricardo Tanturi", "Enrique Campos", "Juan D'Arienzo", "Carlos Gardel", "Anselmo Aieta"]
 ---
 
 Hoy tengo ganas de recordar a este pianista y compositor de tangos, por algunos de sus temas que suenan reiteradamente en las milongas, y que en ese sentido se han convertido en clásicos del género. Son, por ejemplo, los que compuso con Luis Rubistein: *Yo también* (grandes creaciones de Juan D'Arienzo y Rodolfo Biagi), *Dos palabras, por favor* que en 1943 fuera un golazo en la interpretación de Demare-Berón y Tanturi-Campos, o *No me lo digas*, registrado por D'Arienzo en forma instrumental en 1939 y por Enrique Rodríguez con la voz del *Muñeco* Moreno, un año más tarde.

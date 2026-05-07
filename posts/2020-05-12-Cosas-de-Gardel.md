@@ -3,6 +3,7 @@ title: "Cosas de Gardel"
 date: "2020-05-12"
 original_url: https://tangosalbardo.blogspot.com/2020/05/cosas-de-gardel.html
 labels: ""
+tags: ["Carlos Gardel"]
 ---
 
 Juan Cruz Mateo, violinista, pianista, bandoneonista, que fue también el más importante pintor futurista argentino y se había casado en París con una francesa, vino a Buenos Aires después de la segunda Guerra Mundial. Puede decirse que vino a morir aquí, ya que sufría de un cáncer de garganta, del que había sido operado.

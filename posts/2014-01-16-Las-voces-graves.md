@@ -3,6 +3,7 @@ title: "Las voces graves"
 date: "2014-01-16"
 original_url: https://tangosalbardo.blogspot.com/2014/01/las-voces-graves.html
 labels: ""
+tags: ["Leopoldo Federico", "Armando Pontier", "Alberto Podestá", "Edmundo Rivero", "Aníbal Troilo", "José Basso"]
 ---
 
 Fue el gran Edmundo Rivero el que le abrió la puerta a los cantores con registro de bajo en el tango. Hasta entonces se imponían otro tipo de voces y a Rivero le costó sangre, sudor y lágrimas llegar al estrellato, debido a la *sordera* de los directores artísticos de sellos grabadores y hasta de la radio.

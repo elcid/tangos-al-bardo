@@ -3,6 +3,7 @@ title: "Las comedias musicales de Canaro"
 date: "2012-10-29"
 original_url: https://tangosalbardo.blogspot.com/2012/10/las-comedias-musicales-de-canaro.html
 labels: ""
+tags: ["José González Castillo", "Luis César Amadori", "Francisco Canaro", "Ignacio Corsini", "Carlos Gardel", "Tita Merello", "Ivo Pelay"]
 ---
 
 Francisco Canaro fue un adelantado en numerosos aspectos relacionados con el tango. Estuvo entre los aventureros que intentaron seducir a los europeos con nuestra música ciudadana. Llegó a tener cinco orquestas bajo su mando, que fue confiando a sus hermanos progresivamente.

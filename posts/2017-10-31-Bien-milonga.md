@@ -3,6 +3,7 @@ title: "Bien milonga"
 date: "2017-10-31"
 original_url: https://tangosalbardo.blogspot.com/2017/10/bien-milonga_31.html
 labels: ""
+tags: ["Enrique Cadícamo", "Ismael Spitalnik", "Arturo De Bassi", "Juan D'Arienzo"]
 ---
 
 *Marcando una candombeada** *

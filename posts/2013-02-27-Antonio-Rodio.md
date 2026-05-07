@@ -3,6 +3,7 @@ title: "Antonio Rodio"
 date: "2013-02-27"
 original_url: https://tangosalbardo.blogspot.com/2013/02/antonio-rodio.html
 labels: ""
+tags: ["Francisco Fiorentino", "José María Contursi", "Libertad Lamarque", "Francisco Rotundo", "Enrique Rodríguez", "Carlos Gardel", "Alberto Serna", "Pedro Laurenz"]
 ---
 
 Muy buen músico, exquisito compositor, notable violinista, el rastro de este hombre del tango se va esfumando del otro lado de la Cordillera, donde se radicó, alejándose del centro de gravedad de este género, cuando precisamente estaba en el apogeo del gusto popular.

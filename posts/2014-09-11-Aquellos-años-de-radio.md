@@ -3,6 +3,7 @@ title: "Aquellos años de radio"
 date: "2014-09-11"
 original_url: https://tangosalbardo.blogspot.com/2014/09/aquellos-anos-de-radio.html
 labels: ""
+tags: ["Francisco García Jiménez", "Cátulo Castillo", "Horacio Salgán", "Julio De Caro", "Héctor Mauré"]
 ---
 
 El receptor radial era lo que unía a las familias en su torno. Había programas que tenían una enorme llegada. Las grandes emisoras: El Mundo, Belgrano, Splendid se afanaban en tener los mejores radioteatros, las orquestas más populares, los grandes actores cómicos. Pero también los locutores y locutoras que eran un pilar importante en las presentaciones de programas, emisiones en los mensajes publicitarios, en la lectura de los boletines informativos y demás.

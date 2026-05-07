@@ -3,6 +3,7 @@ title: "\"Pugliese fue también un romántico\""
 date: "2021-09-26"
 original_url: https://tangosalbardo.blogspot.com/2021/09/pugliese-fue-tambien-un-romantico.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Mario Demarco"]
 ---
 
 *Este es el último reportaje a Osvaldo Manzi, unos de los grandes pianistas del tango, pieza clave de formaciones que marcaron época: Troilo, Pugliese y Piazzolla. Ahora Osvaldo Manzi no está. Se fue abruptamente. Es tremendamente triste, pero también es lindo que sus últimas palabras grabadas sean sobre la lección del maestro Pugliese.*

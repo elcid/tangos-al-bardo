@@ -3,6 +3,7 @@ title: "De la familia del vals"
 date: "2013-11-03"
 original_url: https://tangosalbardo.blogspot.com/2013/11/de-la-familia-del-vals.html
 labels: ""
+tags: ["Roberto Firpo", "Homero Manzi"]
 ---
 
 En mi libro, publicado en España por Editorial Renacimiento, titulado "*La llamada del tango- Una danza mágica"*, entre muchos otros ítems, le dedico un capítulo al valsecito porteño. En un tiempo se le denominó "*Vals criollo*", pero casi todo los tipos de valses que han ido proliferando en América y que parten de la raíz austríaca, y se remonta al siglo XVIII, se denominan *vals criollo* y son bastante distintos para bailarlos.

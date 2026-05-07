@@ -3,6 +3,7 @@ title: "La violeta"
 date: "2021-10-01"
 original_url: https://tangosalbardo.blogspot.com/2021/10/la-violeta.html
 labels: ""
+tags: ["Roberto Goyeneche", "Cátulo Castillo", "Aníbal Troilo", "Carlos Gardel", "Jorge Casal"]
 ---
 
 Un tango entrañable, sentido, descriptivo, lleno de sentimiento. Era la época de la gran inmigración que llegaba en barcos atiborrados de italianos, españoles y otras nacionalidades que arribaban con sus escasas pertenencias al puerto porteño. La nostalgia, la morriña, las lejanías familiares, los amigos, todo ello provocaba sensaciones pesarosas en los habitantes de la nueva tierra donde echarían semillas y se radicarían para siempre.

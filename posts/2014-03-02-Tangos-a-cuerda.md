@@ -3,6 +3,7 @@ title: "Tangos a cuerda"
 date: "2014-03-02"
 original_url: https://tangosalbardo.blogspot.com/2014/03/tangos-cuerda.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Aníbal Troilo", "Julián Plaza"]
 ---
 
 Unos músicos de la Orquesta Sinfónica de Mar del Plata han formado este Cuarteto de cuerdas que ejecuta tangos. Es bueno descubrir que en "La Feliz", está volviendo a florecer nuestra música ciudadana y hay diversos emprendimientos en tal sentido, como recientemente demostré, con la Orquesta Municipal de Tango de dicha ciudad.

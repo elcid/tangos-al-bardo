@@ -3,6 +3,7 @@ title: "La perlita: TRAS CARTÓN"
 date: "2012-03-17"
 original_url: https://tangosalbardo.blogspot.com/2012/03/la-perlita-tras-carton.html
 labels: ""
+tags: ["Francisco Canaro", "Carlos Gardel", "Anselmo Aieta"]
 ---
 
 Hace unos días hablábamos sobre cosas autorales y otras yerbas, y es bastante sabido, que en los escarceos iniciales del tango se regalaban las obras o se vendían, o no se las patentaba.

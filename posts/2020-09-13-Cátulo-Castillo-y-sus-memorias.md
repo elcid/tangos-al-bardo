@@ -3,6 +3,7 @@ title: "Cátulo Castillo y sus memorias"
 date: "2020-09-13"
 original_url: https://tangosalbardo.blogspot.com/2020/09/catulo-castillo-y-sus-memorias.html
 labels: ""
+tags: ["José González Castillo", "Cátulo Castillo", "Azucena Maizani", "Sebastián Piana", "Homero Manzi"]
 ---
 
 Mi casa fue también reducto de payadores, desfilaron todos, y recuerdo a Betinotti, delgado, medio rubión, con una calvicie incipiente, me daba la sensación, quizás por mi edad, que era pretencioso, se conducía ostensiblemente. A mi casa venía con sus escritos para que mi padre les diera el visto bueno o sugiriera alguna corrección. Otro fue Luis Acosta García que me propuso acompañarlo con piano o violín, que ya dominaba bastante, en sus giras por glorietas y teatros. Ocurrió sólo algunas veces, yo en el piano, Jerónimo Sureda en bandoneón y un muchacho Furloni.

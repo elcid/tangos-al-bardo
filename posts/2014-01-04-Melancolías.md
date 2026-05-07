@@ -3,6 +3,7 @@ title: "Melancolías"
 date: "2014-01-04"
 original_url: https://tangosalbardo.blogspot.com/2014/01/melancolias.html
 labels: ""
+tags: ["Edmundo Rivero"]
 ---
 
 Cuando cae el agua sin cesar durante varios días y el cielo es plomizo y no deja asomar al sol en este invierno madrileño, las gotas caen en el charco de mi alma, como decía Cadícamo en el tangazo que armaron con Pichuco: *Garúa*.

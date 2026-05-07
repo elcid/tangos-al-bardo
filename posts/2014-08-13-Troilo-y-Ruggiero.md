@@ -3,6 +3,7 @@ title: "Troilo y Ruggiero"
 date: "2014-08-13"
 original_url: https://tangosalbardo.blogspot.com/2014/08/troilo-y-ruggiero.html
 labels: ""
+tags: ["José María Contursi", "Osvaldo Pugliese", "Julián Centeya", "Aníbal Troilo", "Pedro Laurenz", "Jorge Caldara", "Pedro Maffia"]
 ---
 
 ¡Qué pareja de fueyes! Aunque nunca actuaron juntos, uno no puede menos que imaginarse lo que sería. El toque acariciante de Pichuco y la polenta milonguera del Tano. Los dos llevaban el tango en las entrañas y nosotros nos extasiábamos contemplándolos y oyéndolos.

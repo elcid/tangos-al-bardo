@@ -3,6 +3,7 @@ title: "Carnaval de mi barrio"
 date: "2023-11-08"
 original_url: https://tangosalbardo.blogspot.com/2023/11/carnaval-de-mi-barrio.html
 labels: ""
+tags: ["Mercedes Simone", "Oscar Alemán"]
 ---
 
 Los que hemos vivido aquellos carnavales no los pudimos olvidar nunca. Claro, éramos pibes y la fiesta nos atrapaba desde temprano cuando comenzaban las batallas del agua. La cuestión era sorprender a algún vecino o vecina y sacudirles un baldazo de agua inesperado, con las carcajadas posteriores inevitables y el mal rato de la persona inundada.

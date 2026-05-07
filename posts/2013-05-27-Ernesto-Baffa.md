@@ -3,6 +3,7 @@ title: "Ernesto Baffa"
 date: "2013-05-27"
 original_url: https://tangosalbardo.blogspot.com/2013/05/ernesto-baffa.html
 labels: ""
+tags: ["Leopoldo Federico", "Alberto Marino", "Horacio Salgán", "Héctor Varela", "Alberto Morán", "Pedro Laurenz", "Ernesto Baffa", "Alfredo Gobbi"]
 ---
 
 Si este excelente bandoneonista no estuvo en los primeros planos, es simplemente porque no dirigió orquestas en la gran época del tango. Pero en el ambiente siempre será reconocido por su lustrosa trayectoria y su manejo del instrumento.

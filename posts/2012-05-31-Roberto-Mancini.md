@@ -3,6 +3,7 @@ title: "Roberto Mancini"
 date: "2012-05-31"
 original_url: https://tangosalbardo.blogspot.com/2012/05/roberto-mancini.html
 labels: ""
+tags: ["José María Contursi", "Alfredo De Angelis", "Aníbal Troilo", "Miguel Caló"]
 ---
 
 Fue una de las mejores voces que surgieron en la década del cincuenta.

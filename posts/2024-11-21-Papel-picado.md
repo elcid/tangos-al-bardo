@@ -3,6 +3,7 @@ title: "Papel picado"
 date: "2024-11-21"
 original_url: https://tangosalbardo.blogspot.com/2024/11/papel-picado.html
 labels: ""
+tags: ["José González Castillo", "Cátulo Castillo", "Ricardo Tanturi"]
 ---
 
 Este tango de padre e hijo (José González Castillo y Cátulo Castillo), siempre me llegó, me gustó, le encuentro algo especial. En parte porque de niño viví esos carnavales, las serpentinas, el papel picado, la fiesta en sí misma. Los versos de González Castillo desgranan restos de memorias simbolizadas en reconocibles huellas sociales en las cuales está reconsiderando el fracaso amoroso.

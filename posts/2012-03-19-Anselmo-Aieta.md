@@ -3,6 +3,7 @@ title: "Anselmo Aieta"
 date: "2012-03-19"
 original_url: https://tangosalbardo.blogspot.com/2012/03/anselmo-aieta.html
 labels: ""
+tags: ["Enrique Delfino", "Eduardo Arolas", "Dante Linyera", "Anselmo Aieta", "Carlos Dante", "Charlo"]
 ---
 
 Y era orejero…

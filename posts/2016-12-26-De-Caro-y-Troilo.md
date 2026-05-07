@@ -3,6 +3,7 @@ title: "De Caro y Troilo"
 date: "2016-12-26"
 original_url: https://tangosalbardo.blogspot.com/2016/12/de-caro-y-troilo.html
 labels: ""
+tags: ["Aníbal Troilo", "Pedro Laurenz", "Julio De Caro"]
 ---
 
 En el año 1932, Julio De Caro con su orquesta, fue contratado para presentarse en la sala del Cine-Teatro Astor, de la Calle Corrientes 746. El conjunto estaba en pleno apogeo por su evidente participación en la evolución del tango y atraía a numerosa cantidad de público y músicos en general. Llamó mucho la atención de que acoplara para su orquesta a un bandoneonista jovencito de 18 años, llamado Aníbal Troilo, que ya había asomado su talento en otros formaciones.

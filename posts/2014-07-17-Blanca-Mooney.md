@@ -3,6 +3,7 @@ title: "Blanca Mooney"
 date: "2014-07-17"
 original_url: https://tangosalbardo.blogspot.com/2014/07/blanca-mooney.html
 labels: ""
+tags: ["José María Contursi", "Osvaldo Fresedo", "Mariano Mores", "Héctor Varela", "Carlos Bahr", "Julio Sosa", "Luis Stazo"]
 ---
 
 Se habían ido aquellos años feraces en que la cosecha de tangos frescos, nuevos, vitales, sin fecha de caducidad se habían instalado para siempre en el vademécum del pueblo. Manzi nos había dejado a comienzos de los cincuenta y Cátulo lo recordaba en tango con unas estrofas impecables.También se había espiantado Discepolín hacia lejanos cielos y a mitad de esa década reinaban Julio Sosa y Héctor Varela con sus cantores, resitiendo la embestida de otros géneros y la desidia de las autoridades culturales y dictaduras de turno.

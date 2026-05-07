@@ -3,6 +3,7 @@ title: "Piazzolla: La época romántica"
 date: "2015-10-29"
 original_url: https://tangosalbardo.blogspot.com/2015/10/piazzolla-la-epoca-romantica.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Horacio Salgán", "Edmundo Rivero", "Aníbal Troilo", "Julio De Caro", "Pedro Laurenz", "Alfredo Gobbi", "José Bragato"]
 ---
 
 En el año 1965 comienza la relación de Átor Piazzolla con los directivos del sello Polydor y dejaría grabados con ellos dos elepés y un EP. el primero es el Concierto en el Philarmonic Hall de New York con su quinteto. A continuación con Orquesta y Quinteto dejará en el disco: El Tango. Jorge Luis Borges-Ástor Piazzolla (canta Edmundo Rivero y recita Luis Medina Castro). Y con el Quinteto deja grabados cuatro temas suyos.

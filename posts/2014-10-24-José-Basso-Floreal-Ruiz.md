@@ -3,6 +3,7 @@ title: "José Basso-Floreal Ruiz"
 date: "2014-10-24"
 original_url: https://tangosalbardo.blogspot.com/2014/10/jose-basso-floreal-ruiz.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Hugo del Carril", "Roberto Rufino", "Alberto Marino", "Aníbal Troilo", "Orlando Goñi", "Floreal Ruiz", "José Basso"]
 ---
 
 Construyeron juntos una hermosa etapa, de la cual quedó el fruto de cuarenta grabaciones, en las cuales se puede apreciar, tanto el talento pianístico y de dirección por parte de Basso, como la voz inconfundible, creadora, fraseadora y con esa gama de matices que sabía aplicar el *Tata* a cada tema, ya fuese de envergadura sentimental o dramática. Fue sin duda uno de los más grandes en el canto.

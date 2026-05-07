@@ -3,6 +3,7 @@ title: "Merceditas"
 date: "2013-07-03"
 original_url: https://tangosalbardo.blogspot.com/2013/07/merceditas.html
 labels: ""
+tags: ["José María Contursi", "Ubaldo De Lío"]
 ---
 
 Los versos de tango muchas veces relatan historias extraídas de la realidad y lo mismo sucede con otros temas del cancionero popular. La larga novela de amor que vivieron José María Contursi y Grisel queda dibujada en unos treinta tangos y valsecitos que son realmente maravillosos. Historias de vida, flecos de amores y desamores, de vidas marcadas que se reflejan en esas páginas.

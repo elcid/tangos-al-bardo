@@ -3,6 +3,7 @@ title: "Cuando el tango cambió de ritmo"
 date: "2019-07-28"
 original_url: https://tangosalbardo.blogspot.com/2019/07/cuando-el-tango-cambio-de-ritmo.html
 labels: ""
+tags: ["Eduardo Arolas", "Roberto Firpo", "Agustín Bardi", "Julio De Caro"]
 ---
 
 **Del 2x4 al 4x8**

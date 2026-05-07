@@ -3,6 +3,7 @@ title: "El Tigre Millán"
 date: "2013-11-25"
 original_url: https://tangosalbardo.blogspot.com/2013/11/el-tigre-millan.html
 labels: ""
+tags: ["Francisco Canaro", "Alberto Echagüe", "Juan D'Arienzo", "Ivo Pelay"]
 ---
 
 Muchas versiones han corrido sobre la personalidad del hombre que refleja en su tango, Francisco Canaro. Los guapos u hombres de acción, han sido hasta admirados por Jorge Luis Borges, que ha escrito imborrables páginas sobre algunos de ellos. En Argentina se le endilga el mote de *guapo*, al que se juega en todo momento, al que desafía las grandes dificultades, al que no le teme al riesgo ni a la pelea en inferioridad de condiciones. Normalmente en España, el adjetivo ya fuere masculino o femenino, se dedica coloquialmente a los bellos y bellas.

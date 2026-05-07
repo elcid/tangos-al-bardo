@@ -3,6 +3,7 @@ title: " Roberto Rufino "
 date: "2020-02-21"
 original_url: https://tangosalbardo.blogspot.com/2020/02/roberto-rufino.html
 labels: ""
+tags: ["Antonio Bonavena", "Carlos Di Sarli", "Alberto Podestá", "Alberto Echagüe", "Roberto Rufino", "Alberto Marino", "Néstor Fabián"]
 ---
 
 "Soy el último romántico del tango"

@@ -3,6 +3,7 @@ title: "Caserón de tejas"
 date: "2020-03-13"
 original_url: https://tangosalbardo.blogspot.com/2020/03/caseron-de-tejas.html
 labels: ""
+tags: ["José González Castillo", "Libertad Lamarque", "Cátulo Castillo", "Sebastián Piana", "Susana Rinaldi", "Carlos Gardel", "Pedro Maffia", "Homero Manzi"]
 ---
 
 Aquel grupo del barrio de Boedo que presidía, sin quererlo, el patriarca del clan, José González Castillo fue un baluarte del tango durante años y sus integrantes crearon numerosas páginas que embellecieron aún más el vademécum tanguero. Sebastián Piana, Cátulo Castillo (Hijo de don José), Homero Manzi y Pedro Maffia no tuvieron intención seguramente de unirse para crear, pero así se dio la cosa y la historia es testigo de tantas páginas salidas de aquella cofradía familiar y amistosa.

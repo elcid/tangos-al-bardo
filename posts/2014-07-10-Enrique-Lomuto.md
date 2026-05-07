@@ -3,6 +3,7 @@ title: "Enrique Lomuto"
 date: "2014-07-10"
 original_url: https://tangosalbardo.blogspot.com/2014/07/enrique-lomuto.html
 labels: ""
+tags: ["Enrique Cadícamo", "Francisco Lomuto"]
 ---
 
 Víctor Lomuto, calabrés, y Rosalía Narducci, napolitana, llegaron como tantos inmigrantes que huían de las guerras y miseria europeas, se conocieron en Buenos Aires, se casaron y se establecieron en la calle Cochabamba y Rioja, en el barrio porteño de Parque Patricios. Aunque formaron una familia pobre, con todos los problemas de aquella época y del idioma, tuvieron nada menos que doce hijos, de los cuales dos fallecerían tempranamente, debido a las epidemias de la época..

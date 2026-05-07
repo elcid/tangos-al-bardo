@@ -3,6 +3,7 @@ title: "Nocturno a mi barrio"
 date: "2013-04-17"
 original_url: https://tangosalbardo.blogspot.com/2013/04/nocturno-mi-barrio.html
 labels: ""
+tags: ["Florindo Sassone", "Julián Centeya", "Edmundo Rivero", "Horacio Salgán", "Aníbal Troilo", "Ubaldo De Lío", "Aníbal Arias"]
 ---
 
 Este poema tan difundido de Aníbal Troilo, lo escribió Pichuco en 1956. Pensaba estrenarlo en Radio El Mundo con su orquesta, acompañando al actor Santiago Arrieta.

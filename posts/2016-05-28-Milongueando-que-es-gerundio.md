@@ -3,6 +3,7 @@ title: "Milongueando que es gerundio"
 date: "2016-05-28"
 original_url: https://tangosalbardo.blogspot.com/2016/05/milongueando-que-es-gerundio.html
 labels: ""
+tags: ["Juan Carlos Copes", "Osvaldo Fresedo", "Ángel Vargas"]
 ---
 
 Casualmente, esta noche no tenemos la milonga de los sábados en la casa de Aragón de Madrid por razones de organización, pero volvemos el martes con tutti: música para revolear los camambuses y las polleritas cortonas, aupadas a unos tacos de aguja alucinantes. Los que marcan el compás en la hermosa pisa de madera lustradita que se nos ofrece para darle gusto al cuerpo. Un descansito sabatino nos viene bien para reponer fuerzas y hurgar en la discoteca buscando esa música maravillosa que nos moviliza.

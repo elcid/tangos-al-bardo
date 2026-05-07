@@ -3,6 +3,7 @@ title: "Romeo Gavioli"
 date: "2013-05-15"
 original_url: https://tangosalbardo.blogspot.com/2013/05/romeo-gavioli.html
 labels: ""
+tags: ["Edgardo Donato", "Romeo Gavioli", "Pedro Laurenz", "Ricardo Ruiz"]
 ---
 
 Triste destino el de este mozo guapo uruguayo, violinista y cantor de fuste que supo gozar de las mieles del triunfo y caería abatido por problemas sentimentales, cuando estaba en plenitud de sus capacidades musciales y canoras.

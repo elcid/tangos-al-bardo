@@ -3,6 +3,7 @@ title: "Las últimas lluvias de marzo"
 date: "2017-03-02"
 original_url: https://tangosalbardo.blogspot.com/2017/03/las-ultimas-lluvias-de-marzo.html
 labels: ""
+tags: ["Leopoldo Federico", "Ismael Spitalnik", "Osvaldo Pugliese", "Carlos García", "Néstor Fabián", "Raúl Garello"]
 ---
 
 No sé si será porque hoy Madrid amaneció envuelta en una niebla plúmbea que pinta de gris todos los rincones de las calles, pero lo cierto es que este valsecito que realizaron Juan Carlos Tavera y Adrián Posse, me viene de perillas también para ilustrar mi ánimo neblinoso por culpas del tiempo. Siempre me gustó este tema porque es nostálgico, algo tristón, pero describe muy bien los sentimientos asociados a los vaivenes del tiempo.

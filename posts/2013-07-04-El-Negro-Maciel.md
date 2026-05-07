@@ -3,6 +3,7 @@ title: "El Negro Maciel"
 date: "2013-07-04"
 original_url: https://tangosalbardo.blogspot.com/2013/07/el-negro-maciel.html
 labels: ""
+tags: ["Mario Battistella", "Celedonio Flores", "Enrique Cadícamo", "Ignacio Corsini", "Edmundo Rivero", "Aníbal Troilo", "Enrique Dizeo"]
 ---
 
 Digno continuador de aquellos afroargentinos que fundaron el tango y dejaron páginas de gran calidad, Enrique Maciel fue un músico con mayúsculas, tanto en su faceta de compositor como de ejecutante de bandoneón, armonio y guitarra.

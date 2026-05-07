@@ -3,6 +3,7 @@ title: "Perón y el tango"
 date: "2022-11-25"
 original_url: https://tangosalbardo.blogspot.com/2022/11/peron-y-el-tango.html
 labels: ""
+tags: ["José María Contursi", "Libertad Lamarque", "Edmundo Rivero", "Carlos Gardel"]
 ---
 
 Para dar comienzo a esta nota, me remito a las versiones documentales publicadas por Tomás Eloy Martínez en el semanario "*El periodista"*, y que titulara: "*La novela de Perón*", entre los años 1984 y 1985. Ahí pudimos leer su versión personal del que fuera Presidente de Argentina en tres añadas de 1946 a 1955 y de 1973 a 1974, en que falleciera.

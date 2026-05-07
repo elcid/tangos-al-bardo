@@ -3,6 +3,7 @@ title: "La eterna milonga"
 date: "2015-07-04"
 original_url: https://tangosalbardo.blogspot.com/2015/07/la-eterna-milonga.html
 labels: ""
+tags: ["Francisco Canaro", "Alberto Echagüe", "Juan D'Arienzo", "Roberto Firpo"]
 ---
 
 Como en este tango que grabara Roberto Firpo en 1929, nosotros seguimos dándole cuerda a los remos y al cuore. Y nos refugiamos del extremo calor que azota Madrid y toda España, en la sala con aire acondicionado y pisito que no puso Maple pero que está de diez. Y de madera para lucirse bailando mientras las tabas nos dén con qué.

@@ -3,6 +3,7 @@ title: "El Chino Hidalgo"
 date: "2013-06-25"
 original_url: https://tangosalbardo.blogspot.com/2013/06/el-chino-hidalgo.html
 labels: ""
+tags: ["Fulvio Salamanca", "Carlos Di Sarli", "Armando Pontier", "Homero Expósito", "Edmundo Rivero", "Alberto Morán", "Ángel Vargas", "Julio Sosa"]
 ---
 
 Hoy lo traigo al Blog a mi amigo, Alberto Hidalgo. Le dicen *El Chino* desde siempre, pero es más gallego que yo. Si se llama en realidad Juan José Morandeira y nació en el Bajo Flores. Cantaba desde la cuna, y se lucía en cumpleaños y fiestitas infantiles a los diez.

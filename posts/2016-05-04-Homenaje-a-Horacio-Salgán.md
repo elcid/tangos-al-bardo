@@ -3,6 +3,7 @@ title: "Homenaje a Horacio Salgán"
 date: "2016-05-04"
 original_url: https://tangosalbardo.blogspot.com/2016/05/homenaje-horacio-salgan.html
 labels: ""
+tags: ["Leopoldo Federico", "Roberto Goyeneche", "Florindo Sassone", "Edmundo Rivero", "Horacio Salgán", "Aníbal Troilo", "Ubaldo De Lío", "Pedro Laurenz"]
 ---
 
 Se merecía largamente el gran maestro del tango, esta fiesta de homenaje que se le brindó el sábado 3 de marzo de 2012 en el gran Teatro Colón, donde él con su madre, y contando apenas 6 años, concurría a presenciar y escuchar las óperas que luego influirían en su enorme talento musical. Porque, cuando tocaba con su orquesta, en los años 40, su hinchada estaba compuesta por músicos de tango que iban a presenciar sus actuaciones, por todo lo nuevo que aportaba al género. Por eso fue tan respetado a lo largo de su carrera, pese a todas las zancadillas que le pusieron en las grabadoras, emisoras de radio y televisión.

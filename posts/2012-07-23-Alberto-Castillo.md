@@ -3,6 +3,7 @@ title: "Alberto Castillo"
 date: "2012-07-23"
 original_url: https://tangosalbardo.blogspot.com/2012/07/alberto-castillo.html
 labels: ""
+tags: ["Alberto Castillo"]
 ---
 
 Hoy se cumplen diez años de la desaparición de este gran cantor que congregó multitudes.

@@ -3,6 +3,7 @@ title: "BIEN MILONGA"
 date: "2019-12-26"
 original_url: https://tangosalbardo.blogspot.com/2019/12/bien-milonga_26.html
 labels: ""
+tags: ["Osvaldo Pugliese"]
 ---
 
 Quiero bailar este tango,

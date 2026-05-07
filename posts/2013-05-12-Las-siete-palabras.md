@@ -3,6 +3,7 @@ title: "Las siete palabras"
 date: "2013-05-12"
 original_url: https://tangosalbardo.blogspot.com/2013/05/las-siete-palabras.html
 labels: ""
+tags: ["Carlos Di Sarli", "Eduardo Arolas", "Juan Maglio"]
 ---
 
 Tango de la guardia vieja que dió lugar a numerosos comentarios. Algunos utilizaron su título para referirlo a temas sexuales u orgánicos. Pero, lo más importante y extraño es que, siendo uno de los primeros tangos que se compusieron, tuvieron partitura y se llevaron al disco, los autores del mismo son Prudencio Aragón, por un lado y Juan Maglio *Pacho*, por el otro.

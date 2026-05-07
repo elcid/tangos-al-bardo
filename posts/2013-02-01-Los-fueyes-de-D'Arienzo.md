@@ -3,6 +3,7 @@ title: "Los fueyes de D'Arienzo"
 date: "2013-02-01"
 original_url: https://tangosalbardo.blogspot.com/2013/02/los-fueyes-de-darienzo.html
 labels: ""
+tags: ["Leopoldo Federico", "Fulvio Salamanca", "Daniel Binelli", "Juan D'Arienzo", "Vicente Greco", "Mario Demarco", "Héctor Varela", "Juan Maglio"]
 ---
 
 Los que echamos ancla en el tango desde la adolescencia, sabemos cuales fueron los grandes fueyes de la historia. Los creadores, los que hicieron escuela, los carismáticos, los suaves, los desbordantes. Todos.

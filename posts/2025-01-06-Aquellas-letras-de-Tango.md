@@ -3,6 +3,7 @@ title: "Aquellas letras de Tango..."
 date: "2025-01-06"
 original_url: https://tangosalbardo.blogspot.com/2025/01/aquellas-letras-de-tango.html
 labels: ""
+tags: ["Enrique Santos Discépolo", "José María Contursi", "Mario Battistella", "Cátulo Castillo", "Alfredo Le Pera", "Homero Manzi", "Héctor Marcó", "Carlos Bahr"]
 ---
 
 "Café La Humedad, billar y reunión... sábado con trampas. ¡Qué linda función! Yo simplemente te agradezco las poesías que la escuela de las noches le enseñaron a mis días". Cacho Castaña.

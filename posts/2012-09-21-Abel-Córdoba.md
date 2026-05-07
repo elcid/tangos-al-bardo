@@ -3,6 +3,7 @@ title: "Abel Córdoba"
 date: "2012-09-21"
 original_url: https://tangosalbardo.blogspot.com/2012/09/abel-cordoba.html
 labels: ""
+tags: ["José Basso"]
 ---
 
 Algunos sábados jugábamos al fútbol, los periodistas de "El Gráfico" contra el cuerpo técnico de Ferro Carril Oeste en la cancha del barrio de Caballito, pero de Fútbol 7. Abel jugaba para los técnicos de Ferro y nos cruzábamos. Después venía el asadito y las anécdotas.

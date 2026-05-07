@@ -3,6 +3,7 @@ title: "Yo quiero cantar un tango"
 date: "2023-09-15"
 original_url: https://tangosalbardo.blogspot.com/2023/09/yo-quiero-cantar-un-tango.html
 labels: ""
+tags: ["Alberto Podestá", "Juan D'Arienzo", "Pedro Laurenz", "Héctor Mauré"]
 ---
 
 Día viernes, preámbulo de un sábado lluvioso, y esas ganas de milonguear que me atacan los findes de cada semanita. Sobre todo cuando el ordenata comienza a despachar esos tangos que uno tiene atrapados en el cuore. Sí, suenan como si volvieras a aquella juventud luminosa cuando todo pasaba rápido y te quedabas con ganas de más y más...

@@ -3,6 +3,7 @@ title: "JUAN DEL DISTURBIO"
 date: "2020-12-22"
 original_url: https://tangosalbardo.blogspot.com/2020/12/juan-del-disturbio.html
 labels: ""
+tags: ["Homero Manzi"]
 ---
 
 Ritmo de tango repicadito. Guitarra. Fueye. Flauta y violín. Compás que se hace más compadrito si se recalca con el botín.  Soplo con alma del novecientos  barre la tierra del corralón. El baile acorta los miramientos y acorta el brazo de la intención.

@@ -3,6 +3,7 @@ title: "Los que Troilo no grabó (2)"
 date: "2021-12-11"
 original_url: https://tangosalbardo.blogspot.com/2021/12/los-que-troilo-no-grabo-2.html
 labels: ""
+tags: ["Francisco García Jiménez", "José María Contursi", "José María Aguilar", "Juan Andrés Caruso", "Juan Carlos Cobián", "Enrique Cadícamo", "Celedonio Flores", "Francisco Canaro"]
 ---
 
 Para terminar con las lista de los temas que Aníbal Troilo con sus cantores tuvo en el repertorio de los distintos años de su orquesta, incluyendo los instrumentales, continúo detallando aquellos que hoy día se van reviviendo como inéditos en distintas grabaciones, radiales y en registros discográficos que no salieron a la venta. Muchos de ellos están en discos de larga duración, algunos mejor guardados que otros.

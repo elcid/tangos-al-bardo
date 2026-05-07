@@ -3,6 +3,7 @@ title: "Los cantores de Caló"
 date: "2025-11-11"
 original_url: https://tangosalbardo.blogspot.com/2025/11/los-cantores-de-calo.html
 labels: ""
+tags: ["José María Contursi", "Domingo Federico", "Alberto Podestá", "Homero Expósito", "Carlos Dante", "Lucio Demare", "Miguel Caló", "Raúl Berón"]
 ---
 
 La historia registra el hecho de que la orquesta que mayor número de cantores enroló, fue la de Miguel Caló. Desde el pibe amigo del barrio, Carlos Dante en el inicio -que dejó 18 versiones grabadas-, su hermano Roberto Caló -luego director y pinta de galán-, Rufino, Dalton, Arrieta, Ortiz, Roldán, Tito Reyes o cancionistas como Chola Luna, entre otras.

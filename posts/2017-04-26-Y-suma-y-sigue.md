@@ -3,6 +3,7 @@ title: "Y suma y sigue"
 date: "2017-04-26"
 original_url: https://tangosalbardo.blogspot.com/2017/04/y-suma-y-sigue.html
 labels: ""
+tags: ["Fulvio Salamanca", "Alberto Echagüe", "Juan D'Arienzo", "Carlos Bahr"]
 ---
 
 Hoy me la agarré con este tango, porque uno ve la primera página de la prensa diaria, o escucha los informativos radiales, ve los telediarios y piensa que Carlos Bahr, sintentizó algunos de los males de este mundo, pocas veces tan extendidos como en estos días. Cuando vemos a políticos "chorizos", enfangados como rateros, con cuentas en paraísos fiscales, offshores y negando tajantemente los "rumores" que afectan su credibilidad, aunque finalmente se van descubriendo los chanchullos. realmente no queda otra que indignarnos y esperar el castigo que llega tarde y mal, muchas veces.

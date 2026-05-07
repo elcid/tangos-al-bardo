@@ -3,6 +3,7 @@ title: "Te llaman malevo"
 date: "2013-01-11"
 original_url: https://tangosalbardo.blogspot.com/2013/01/te-llaman-malevo.html
 labels: ""
+tags: ["Virgilio Expósito", "Homero Expósito", "Aníbal Troilo"]
 ---
 
 Esta bella página que pinta las peripecias del desamor, desde el ángulo del tangamente caricaturizado malevo, está en minoría dentro de la estilística de Homero Expósito, y contiene a su vez una intrahistoria, por la anécdota de su sociedad con Aníbal Troilo, en la concreción de la misma.

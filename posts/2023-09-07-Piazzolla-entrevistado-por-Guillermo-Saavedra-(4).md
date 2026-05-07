@@ -3,6 +3,7 @@ title: "Piazzolla entrevistado por Guillermo Saavedra (4)"
 date: "2023-09-07"
 original_url: https://tangosalbardo.blogspot.com/2023/09/piazzolla-entrevistado-por-guillermo_7.html
 labels: ""
+tags: ["Osvaldo Pugliese"]
 ---
 
 Por supuesto, los tangueros ultraconservadores no me soportaban. En una época que se pasaba tango en todas las emisoras de radio, mi música era sistemática ignorada y yo acusado de asesino del tango, traidor a no sé que causa. En fin, había una pequeña élite que entendía lo que yo estaba haciendo. Mi música siempre fue para una elite: en ese momentos ería cinco mil personas, en los '60 serían diez mil, ahora serán un millón de personas, pero sigue siendo una elite.

@@ -3,6 +3,7 @@ title: "BIEN MILONGA"
 date: "2015-01-31"
 original_url: https://tangosalbardo.blogspot.com/2015/01/bien-milonga_31.html
 labels: ""
+tags: ["Alfredo De Angelis", "Manuel Romero"]
 ---
 
 El tango nació como danza, antes de que se consolidara la música del género como tal. Eran los bailarines quienes impulsaban a los empíricos músicos de la primera época, para que siguiesen con ritmo sus evoluciones danzantes. La poesía del tango llegó dos décadas más tarde, incluso, cuando Pascual Constursi la instituyó con *Mi noche triste*.

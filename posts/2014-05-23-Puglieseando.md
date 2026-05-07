@@ -3,6 +3,7 @@ title: "Puglieseando"
 date: "2014-05-23"
 original_url: https://tangosalbardo.blogspot.com/2014/05/puglieseando.html
 labels: ""
+tags: ["Luis César Amadori", "Libertad Lamarque", "Francisco Canaro", "Osvaldo Pugliese", "Cátulo Castillo", "Hugo del Carril", "Carlos Gardel", "Julio De Caro"]
 ---
 
 Alguna vez la Cultura argentina y los gobernantes comprenderán el valor impresionante que ha tenido y tiene nuestro tango, por su arraigo popular y por la enorme difusión que ha llegado a alcanzar en otros países y continentes. Y que incluso les han llevado a realizar películas y documentales sobre el Tango argentino y rioplatense..

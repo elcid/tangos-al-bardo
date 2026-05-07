@@ -3,6 +3,7 @@ title: "Ave de paso"
 date: "2012-03-23"
 original_url: https://tangosalbardo.blogspot.com/2012/03/ave-de-paso.html
 labels: ""
+tags: ["Enrique Cadícamo", "Charlo"]
 ---
 
 Contaba Enrique Cadícamo que en 1937, el gran cantor Charlo (Carlos José Pérez Urdinola), fue contratado para cantar varias semanas en el Casino Urca, de Río de Janeiro, y le pidó encarecidamente que lo acompañara. Hacía allí embarcaron en el Conte Biancamano, con José Razzano, que había sido recomendado por el propio Cadícamo para representar al galán cantor. En el lujoso trasatlántico viajaban las famosas hermanas portuguesas Miranda, que regresaban de actuar en Buenos Aires. Durante la semana de travesía Charlo vivió un fogoso romance con Carmen, que luego sería estrella de Hollywood con sus bailes y aquellos sombreros llenos de frutas.

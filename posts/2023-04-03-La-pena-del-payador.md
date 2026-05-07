@@ -3,6 +3,7 @@ title: "La pena del payador"
 date: "2023-04-03"
 original_url: https://tangosalbardo.blogspot.com/2023/04/la-pena-del-payador.html
 labels: ""
+tags: ["Juan D'Arienzo", "Héctor Mauré", "Julio Sosa"]
 ---
 
 Estoy escuchando este valsecito campero con toda su carga de tradición, de colores imprevistos, con creciente lirismo que me trae tantos recuerdos. Sobre todo, pensando en aquellas noches del café del barrio en que era muy común que pasara algún guitarrero-cantor que se mandaba tres o cuatro temas y luego *pasaba el platito*, juntaba unas monedas, para a continuación saludar y continuar su ruta noctámbula.

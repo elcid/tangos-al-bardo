@@ -3,6 +3,7 @@ title: "Graciano Gómez"
 date: "2018-02-05"
 original_url: https://tangosalbardo.blogspot.com/2018/02/graciano-gomez.html
 labels: ""
+tags: ["Libertad Lamarque", "Francisco Canaro", "Osvaldo Pugliese", "Carlos Di Sarli", "Roberto Rufino", "Enrique Campos", "Julio De Caro", "Alfredo Gobbi"]
 ---
 
 Creo que este bandoneonista, director y compositor merece una mención en el blog, por varios motivos, especialmente por algunas de las páginas que compuso y que siguen teniendo cuerda para rato. Su orquesta fue una de las tantas que alternaron en espacios radiales y en clubes y confiterías donde se milongueaba. Hubo infinidad de orquestas que no alcanzaron el esplendor de las grandes pero que contribuyeron a la expansión y difusión del tango. La de Graciano Gómez fue una de ellas.

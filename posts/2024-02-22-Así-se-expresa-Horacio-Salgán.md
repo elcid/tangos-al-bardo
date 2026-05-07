@@ -3,6 +3,7 @@ title: "Así se expresa Horacio Salgán"
 date: "2024-02-22"
 original_url: https://tangosalbardo.blogspot.com/2024/02/asi-se-expresa-horacio-salgan.html
 labels: ""
+tags: ["Horacio Salgán"]
 ---
 
 en el Prólogo de su "Curso de Tango" 2001:

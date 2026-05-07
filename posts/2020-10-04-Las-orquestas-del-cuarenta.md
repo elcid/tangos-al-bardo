@@ -3,6 +3,7 @@ title: "Las orquestas del cuarenta"
 date: "2020-10-04"
 original_url: https://tangosalbardo.blogspot.com/2020/10/las-orquestas-del-cuarenta.html
 labels: ""
+tags: ["Enrique Rodríguez"]
 ---
 
 Tal vez no terminemos de valorar en su justa perspectiva lo que fueron aquella tremendas orquestas típicas de los años treinta/cuarenta/cincuenta, que las representamos como si solamente hubieran destacado en los años cuarenta. Cuando en realidad todas las grandes comenzaron en distintos momentos de los años treinta y siguieron llenando clubes, teatros, en los cincuenta. Creando éxitos, vendiendo discos a paladas, luciendo en televisión, batiendo récords en los clubes.

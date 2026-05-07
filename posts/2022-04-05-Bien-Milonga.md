@@ -3,6 +3,7 @@ title: "Bien Milonga"
 date: "2022-04-05"
 original_url: https://tangosalbardo.blogspot.com/2022/04/bien-milonga.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Francisco Canaro"]
 ---
 
 Compás floreado de tango

@@ -3,6 +3,7 @@ title: "Orlando Goñi"
 date: "2015-11-26"
 original_url: https://tangosalbardo.blogspot.com/2015/11/orlando-goni.html
 labels: ""
+tags: ["Francisco Fiorentino", "Juan Carlos Cobián", "Aníbal Troilo", "Alfredo Gobbi", "Anselmo Aieta", "Pedro Maffia", "Orlando Goñi", "Manuel Buzón"]
 ---
 
 La otra noche estábamos en la milonga y salí a bailar con una mujer. Apenas nos abrazamos para arrancar, y dimos los dos o tres primeros pasos, ella me susurró en la oreja:

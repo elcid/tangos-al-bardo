@@ -3,6 +3,7 @@ title: "Grela recuerda a Troilo..."
 date: "2024-01-21"
 original_url: https://tangosalbardo.blogspot.com/2024/01/grela-recuerda-troilo.html
 labels: ""
+tags: ["Enrique Santos Discépolo", "Francisco Gorrindo", "Leopoldo Federico", "Azucena Maizani", "Carlos García", "Roberto Grela", "Héctor Marcó"]
 ---
 
 ...**y canta**

@@ -3,6 +3,7 @@ title: "Miguel Ángel Zotto"
 date: "2012-11-11"
 original_url: https://tangosalbardo.blogspot.com/2012/11/miguel-angel-zotto.html
 labels: ""
+tags: ["Juan Carlos Copes", "Pepito Avellaneda", "Antonio Todaro", "Virulazo"]
 ---
 
 Es un grande del tango y entrará en la historia con letras destacadas. Su hoja de servicios acredita que en el futuro quedará eternamente como un referente, como lo pudieron ser en su respectiva época El cachafaz o Juan Carlos Copes.

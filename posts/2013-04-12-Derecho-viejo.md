@@ -3,6 +3,7 @@ title: "Derecho viejo"
 date: "2013-04-12"
 original_url: https://tangosalbardo.blogspot.com/2013/04/derecho-viejo.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Eduardo Arolas", "Teófilo Ibáñez", "Juan D'Arienzo", "Julio De Caro", "Pedro Laurenz", "José Canet", "Nelly Omar"]
 ---
 
 Este maravilloso tema, lleno de polenta milonguera, lo escribió mi admiradísimo Eduardo Arolas, de quien no me cansaría de escribir o de escuchar sus obras que siguen fertilizándose en las distintas generaciones que le sucedieron, como si le encontrasen permanentemente otros matices.

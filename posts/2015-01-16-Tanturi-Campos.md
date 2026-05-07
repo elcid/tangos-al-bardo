@@ -3,6 +3,7 @@ title: "Tanturi-Campos"
 date: "2015-01-16"
 original_url: https://tangosalbardo.blogspot.com/2015/01/tanturi-campos.html
 labels: ""
+tags: ["Alberto Castillo", "Enrique Campos", "Alfredo Gobbi", "Ricardo Ruiz"]
 ---
 
 La dupla Tanturi-Castillo fue todo un bombazo. Es cuando aparece el "*Cabeza*" cantando en la orquesta y con su estilo bien de barrio y una voz afinada como pocas, va metiendo impacto tras impacto y las grabaciones de la orquesta con este cantor de Mataderos apellidado De Lucca, sirven para alimentar los pies de los bailarines. Y de los tangueros, que, sorprendidos ante ese estilo tan distinto que fue su "marca en el orillo", vivieron sorprendidos y admirados ante el cantor que revolucionó el ambiente por su total desenfado ante los micrófonos.

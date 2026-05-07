@@ -3,6 +3,7 @@ title: "Tango brujo"
 date: "2015-10-31"
 original_url: https://tangosalbardo.blogspot.com/2015/10/tango-brujo.html
 labels: ""
+tags: ["Mario Battistella", "Juan D'Arienzo", "Manuel Romero"]
 ---
 
 Muchas veces en mis charlas y conferencias tangueras hablo de la expansión de esta música maravillosa por todo el planeta. Hace muchos años, Carancancunfa se hizo al mar con su bandera y fueron los Pizarro, los Canaro, los Bachicha, Los Bianco, los Orlando, Pettorossi, Arolas y tantos otros, quienes iniciaron la avanzada del tango y su expansión gambeteando las fronteras. El bandoneón dejó su huella mágica y Gardel retornado al pago natal, y con su gola, embrujó a los franceses. No habría vuelta atrás, salvo los paréntesis obligado por las guerras.

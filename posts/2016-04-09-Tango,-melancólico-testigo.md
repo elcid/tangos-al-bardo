@@ -3,6 +3,7 @@ title: "Tango, melancólico testigo"
 date: "2016-04-09"
 original_url: https://tangosalbardo.blogspot.com/2016/04/tango-melancolico-testigo.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Osvaldo Zotto", "Homero Manzi"]
 ---
 
 Hoy es noche de fandango, como decía Homero Manzi en su gotán: *Ché Bandoneón*, y puedo confesarte la verdad... ¡Y que querés que te diga!.. Cuando pienso en la milonga, en todos los bailarines y bailarinas que he visto en mis rondines por aquellos fabulosas recintos porteños, en los clubes y confiterías, en los bailes con las grandes orquestas, siento como una morriña inquieta, ¿viste? y me dan ganas de calzarme los charoles, poner la marcha atrás y... qué sé yo...

@@ -3,6 +3,7 @@ title: "Carlos Di Sarli - Testimonios"
 date: "2018-01-27"
 original_url: https://tangosalbardo.blogspot.com/2018/01/carlos-di-sarli-testimonios.html
 labels: ""
+tags: ["Osvaldo Fresedo", "Carlos Di Sarli", "Aníbal Troilo", "Julio De Caro", "Julián Plaza"]
 ---
 
 ** Carlos Di Sarli, una leyenda**

@@ -3,6 +3,7 @@ title: "Los Cava Bengal"
 date: "2014-12-05"
 original_url: https://tangosalbardo.blogspot.com/2014/12/los-cava-bengal.html
 labels: ""
+tags: ["Enrique Cadícamo", "Armando Pontier", "Homero Expósito", "Carlos Bahr", "Julio Sosa"]
 ---
 
 Fueron todo un suceso allá por los años sesenta. Hacían un tango abolerado pero era época de vacas flacas y supieron conquistar a la juventud de la época que los siguió en numerosos locales nocturnos y en televisión. Buenos músicos, voces melódicas bien timbradas y el correcto acompañamiento de las guitarras le dieron el tono justo para brillar en ese momento de oscuridad tanguera.

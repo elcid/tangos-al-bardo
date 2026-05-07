@@ -3,6 +3,7 @@ title: "Autenticidad para el exterior"
 date: "2025-05-31"
 original_url: https://tangosalbardo.blogspot.com/2025/05/autenticidad-para-el-exterior.html
 labels: ""
+tags: ["Horacio Salgán"]
 ---
 
 ** HORACIO SALGÁN**

@@ -3,6 +3,7 @@ title: "Tango y Copas (Documental)"
 date: "2021-05-23"
 original_url: https://tangosalbardo.blogspot.com/2021/05/tango-y-copas-documental.html
 labels: ""
+tags: ["Aníbal Troilo", "Jorge Casal"]
 ---
 
 Este documental es, realmente, una delicia para los tangueros. . Nos permite recordar una época maravillosa del tango. Los inicios de la orquesta de Aníbal Troilo relatado en directo por sus músicos y compañeros de aventuras tangueras. Análisis de su estilo, de otras orquestas, anécdotas.

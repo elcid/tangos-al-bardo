@@ -3,6 +3,7 @@ title: "Sebastián Piana"
 date: "2013-12-03"
 original_url: https://tangosalbardo.blogspot.com/2013/12/sebastian-piana.html
 labels: ""
+tags: ["José González Castillo", "Feliciano Brunelli", "Cátulo Castillo", "Sebastián Piana", "Pedro Maffia", "Homero Manzi"]
 ---
 
 Lo increíble de este tanguero hecho y derecho es que llegó casi sin darse cuenta a este género que florecía en su barrio de Boedo, para terminar siendo el creador de infinidad de clásicos que perduran a través de los años con la misma frescura de su nacimiento.

@@ -3,6 +3,7 @@ title: "Mario Demarco"
 date: "2013-01-28"
 original_url: https://tangosalbardo.blogspot.com/2013/01/mario-demarco.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Roberto Rufino", "Edmundo Rivero", "Julio De Caro", "Alfredo Gobbi", "Jorge Caldara", "Mario Demarco"]
 ---
 
 Su nombre está injustamente difuminado entre tantos grandes bandoneonistas que fueron germinando a lo largo de la fecunda década del cuarenta. Pero debería, por sus méritos, haber tenido mucha mayor repercusión, quizás, si hubiera sido más constante como Director de orquesta.

@@ -3,6 +3,7 @@ title: "Aves del mismo plumaje"
 date: "2014-08-18"
 original_url: https://tangosalbardo.blogspot.com/2014/08/aves-del-mismo-plumaje.html
 labels: ""
+tags: ["Mercedes Simone", "Roberto Firpo", "Carlos García", "Vicente Greco"]
 ---
 
 Con este título tan significativo, se metieron en una sala de grabación el pianista, director y compositor Carlos García y el bandoneonista Osvaldo *Marinero* Montes, para rescatar entre ambos antiguas piezas tangueras, que a juicio del fueye rosarino, "*estaban hechas a vuelapluma, sin mayores alardes"*. Pero, claro, habían dejado un poso importante en la historia.

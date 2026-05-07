@@ -3,6 +3,7 @@ title: "Perón y el tango"
 date: "2013-01-15"
 original_url: https://tangosalbardo.blogspot.com/2013/01/peron-y-el-tango.html
 labels: ""
+tags: ["José María Aguilar", "Libertad Lamarque", "Celedonio Flores", "Osvaldo Fresedo", "Edmundo Rivero", "Carlos Gardel", "Jorge Durán", "José Basso"]
 ---
 
 La mayoría de los presidentes argentinos de los siglos XIX y XX, le dieron olímpicamente la espalda al tango. Procedentes la mayoría de ellos de la burguesía nacional, opuesta a todo lo que oliese a popular, su incomprensión, derivó en la orfandad de apoyo mediático y gubernamental para el tango.

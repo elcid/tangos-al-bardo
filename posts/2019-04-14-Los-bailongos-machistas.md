@@ -3,6 +3,7 @@ title: "Los bailongos machistas"
 date: "2019-04-14"
 original_url: https://tangosalbardo.blogspot.com/2019/04/los-bailongos-machistas.html
 labels: ""
+tags: ["Edmundo Rivero", "Roberto Firpo", "Carlos Gardel", "Julio De Caro"]
 ---
 
 Es cierto que en esa década del treinta, aquí o allá, en una radio o en un salón, en un set de filmación o en una grabadora, iba a tener oportunidad de conocer a la mayoría de los famosos. pero aun así, la verdad... la verdad, yo los iba a conocer a ellos, pero ellos a mí todavía no tanto.

@@ -3,6 +3,7 @@ title: "Goyeneche: “A veces el tango me dice gracias”"
 date: "2021-07-10"
 original_url: https://tangosalbardo.blogspot.com/2021/07/goyeneche-veces-el-tango-me-dice-gracias.html
 labels: ""
+tags: ["José María Contursi", "Antonio Bonavena", "Homero Expósito", "Horacio Salgán", "Aníbal Troilo", "Raúl Kaplún", "Jorge Durán"]
 ---
 
 Contra los que afirman que el cantor de tangos vive clavado como una mariposa contra el papel amarillado por el tiempo, el "Polaco" Goyeneche mantiene su vigencia merced a la elección de repertorio que lleva su sello inconfundible. Su fraseo va tejiendo una historia de vida, que comenzó cuando aquel pibe de pantalones cortos colgaba tangos en todos los rincones de su casa. En esta "historia", que se recorta contra el fondo de un fuelle abierto, desfilan también Homero Expósito, Aníbal Troilo, Horacio Salgán y otros personajes cobijados por la noche tanguera.

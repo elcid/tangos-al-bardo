@@ -3,6 +3,7 @@ title: "Federico Silva"
 date: "2023-02-04"
 original_url: https://tangosalbardo.blogspot.com/2023/02/federico-silva.html
 labels: ""
+tags: ["Roberto Goyeneche", "Armando Pontier", "Sebastián Piana", "Homero Expósito", "Juan D'Arienzo", "Edmundo Rivero", "Horacio Salgán", "Carlos Gardel"]
 ---
 
 Afortunadamente para el tango, este periodista uruguayo, también comentarista radial, redactor deportivo, colaborador y luego Director de la revista "*Cine, Radio Actualidad"*, Director también del programa *Motivos populares* que estuvo durante veinte años en las emisoras Sport, el Espectador y Montecarlo, supo injertarse en el género musical del Río de la Plata, en el cual mostraría todo su talento poético.

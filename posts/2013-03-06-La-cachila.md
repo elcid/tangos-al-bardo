@@ -3,6 +3,7 @@ title: "La cachila"
 date: "2013-03-06"
 original_url: https://tangosalbardo.blogspot.com/2013/03/la-cachila.html
 labels: ""
+tags: ["Lidia Borda", "Julio Pane"]
 ---
 
 Esta belleza que vemos a continuación pertenece a un documental filmado en Buenos Aires en el año 2005 por el Director Arne Birkenstock, nacido en 1967 en Siegen, Nordrhein-Westfalen, Alemania.

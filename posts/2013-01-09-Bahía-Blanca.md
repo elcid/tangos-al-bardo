@@ -3,6 +3,7 @@ title: "Bahía Blanca"
 date: "2013-01-09"
 original_url: https://tangosalbardo.blogspot.com/2013/01/bahia-blanca.html
 labels: ""
+tags: ["Juan Carlos Cobián", "Carlos Di Sarli"]
 ---
 
 Esta obra del maestro Carlos Di Sarli (nacido en 1903 como Cayetano Di Sarli Rusomanno) es la culminación a una trayectoria maravillosa que está para siempre insertada con letras de oro en la historia del tango.

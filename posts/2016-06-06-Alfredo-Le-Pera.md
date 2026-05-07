@@ -3,6 +3,7 @@ title: "Alfredo Le Pera"
 date: "2016-06-06"
 original_url: https://tangosalbardo.blogspot.com/2016/06/alfredo-le-pera.html
 labels: ""
+tags: ["Roberto Goyeneche", "Alfredo Le Pera", "Julián Centeya", "Aníbal Troilo", "Carlos Gardel"]
 ---
 
 En este mes de Junio se recuerda siempre el trágico final del gran Carlos Gardel, tanto en Argentina como en otros países de América. Y me parece injusto que se haya olvidado con tanta facilidad al resto de las víctimas de aquel fatal accidente aéreo en Medellín -Colombia- Aparte de los músicos del cantor que cayeron y otras personas acompañantes, estaba el creador de los temas que inundaron el mundo en aquellas películas filmadas por Gardel en Francia y Estados Unidos y que tanto carretel dieran en forma de discos, artículos y comentarios.

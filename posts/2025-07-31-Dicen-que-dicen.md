@@ -3,6 +3,7 @@ title: "Dicen que dicen"
 date: "2025-07-31"
 original_url: https://tangosalbardo.blogspot.com/2025/07/dicen-que-dicen.html
 labels: ""
+tags: ["Leopoldo Federico", "Enrique Delfino", "Carlos Gardel", "Manuel Romero", "Roberto Firpo", "Julio Sosa"]
 ---
 
 Este tango tiene un título llamativo. Es como un chimento que se expande por el barrrio y va saltando a la oficina, a la tienda, al café de la esquina... Y le viene muy bien al autor, Alberto Ballestero para sentar plaza en la cofradía tanguera, ya que nació en un pueblo de la localidad uruguaya de Artigas y se instaló tempranamente en Buenos Aires como periodista y comediógrafo teatral.

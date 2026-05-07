@@ -3,6 +3,7 @@ title: "Edmundo Rivero"
 date: "2017-01-30"
 original_url: https://tangosalbardo.blogspot.com/2017/01/edmundo-rivero.html
 labels: ""
+tags: ["Edmundo Rivero", "Aníbal Troilo", "Carlos Gardel", "Homero Manzi"]
 ---
 
 -Bueno, no voy a decir que soy un tipo lindo. La napia siempre me anduvo delante de los pies, el mentón tirando a prominente y al ver las fotos uno comprende el paso de los años. Aunque ni los años ni la fealdad me preocuparon nunca. Cuando me inicié en esto de darle voz al tango no era necesario ser un galancete; por el contrario, entonces se apreciaba el porte de varón. Tampoco digo que por ser fiero uno es más macho o mejor cantor. Eso lo desmiente el único que las tuvo todas, Carlos Gardel. Después de él, cada uno se defendió como pudo. Hoy me veo y pienso que detrás de cada arruga hay una historia, entonces la vida no es una herida absurda para quien se abrió camino en el mundo de la noche.

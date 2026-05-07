@@ -3,6 +3,7 @@ title: "BIEN MILONGA"
 date: "2019-07-16"
 original_url: https://tangosalbardo.blogspot.com/2019/07/bien-milonga.html
 labels: ""
+tags: ["Francisco Canaro", "Juan D'Arienzo", "Aníbal Troilo", "Floreal Ruiz"]
 ---
 
 El tango es el tango... no hay vuelta que darle

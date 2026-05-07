@@ -3,6 +3,7 @@ title: "Emilio Balcarce"
 date: "2017-06-26"
 original_url: https://tangosalbardo.blogspot.com/2017/06/emilio-balcarce.html
 labels: ""
+tags: ["Leopoldo Federico", "Alberto Castillo", "Osvaldo Pugliese", "Ricardo Tanturi", "Alberto Marino", "Edgardo Donato", "Aníbal Troilo", "Alfredo Gobbi"]
 ---
 
 Tocar el violín durante veinte años con Osvaldo Pugliese no sería tan destacable, si no se tratase de unas de las orquestas más geniales que ha dado el tango y que renace cada noche en las pistas milongueras del mundo. Emilio Balcarce se llamaba en realidad Emilio Juan Sitano y aunque cargaba 93 años en sus espaldas, seguía dirigiendo la Orquesta Escuela de Tango y formando jóvenes músicos para ejecutar la música rioplatense, cuando lo sorprendió el adiós a este mundo.

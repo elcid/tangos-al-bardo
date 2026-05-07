@@ -3,6 +3,7 @@ title: "Horacio Godoy: Dj.organizador-bailarín"
 date: "2014-05-31"
 original_url: https://tangosalbardo.blogspot.com/2014/05/horacio-godoy-discjockey-organizador-y.html
 labels: ""
+tags: ["Pepito Avellaneda", "Roberto Goyeneche", "Carlos Di Sarli", "Aníbal Troilo", "Carlos Gardel", "Hugo Díaz"]
 ---
 
 Hoy he decidido subir al Blog esta nota que le hicieron a todo un hombre de tango como es Horacio Godoy. Reúne varias facetas que lo distinguen y su ejemplo puede servirle a mucha gente que quiere aprender a bailar bien el tango o a pasar música. El reportaje lo escribió **Muriel Rébori **y lo publicó la Revista: **La Milonga argentina**. Además me placer ver bailar a Godoy con mi amiga Cecilia Berra que pasó un tiempo viviendo y milongueando en Madrid. Siempre tuvo unas condiciones notables para bailar tango y lo hacía y lo hace de forma natural, sin esfuerzo.

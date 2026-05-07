@@ -3,6 +3,7 @@ title: "El Sexteto de Elvino Vardaro"
 date: "2012-05-20"
 original_url: https://tangosalbardo.blogspot.com/2012/05/el-sexteto-de-emilio-vardaro.html
 labels: ""
+tags: ["Aníbal Troilo", "Julio De Caro"]
 ---
 
 En 1933, el enorme violinista Elvino Vardaro -Para mí el mejor de la historia del tango-, que venía de tirar la toalla con el Sexteto Vardaro-Pugliese por falta de contratos, decidió volver a formar conjunto propio. Así nació el increíblemente célebre -para los entendidos- **Sexteto de Elvino Vardaro**.

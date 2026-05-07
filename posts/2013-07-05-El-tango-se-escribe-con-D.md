@@ -3,6 +3,7 @@ title: "El tango se escribe con D"
 date: "2013-07-05"
 original_url: https://tangosalbardo.blogspot.com/2013/07/el-tango-se-escribe-con-de.html
 labels: ""
+tags: ["Alberto Echagüe", "Juan D'Arienzo", "Carlos Gardel", "Héctor Mauré", "Lucio Demare", "Juan Maglio", "Raúl Berón"]
 ---
 
 ¡Y qué nenes! D'agostino, D'Arienzo y Demare fueron y son puntos altos de la música ciudadana de Buenos Aires y hoy dan la vuelta al mundo con sus grabaciones para que nuevas generaciones bailen esos temas invencibles.

@@ -3,6 +3,7 @@ title: "Rodolfo Scianmarella"
 date: "2014-04-30"
 original_url: https://tangosalbardo.blogspot.com/2014/04/rodolfo-scianmarella.html
 labels: ""
+tags: ["Francisco Canaro", "Alberto Castillo", "Osvaldo Fresedo", "Agustín Magaldi", "Ricardo Tanturi", "Ignacio Corsini", "Julio Camilloni", "Julián Centeya"]
 ---
 
 Me lo presentó mi compañero Coco D'Agostino en el Café Tortoni. Como sabía que yo era muy tanguero, me llamó y me invitó a tomar un café con él. Acababa de llegar de España, adonde había recalado durante 12 años, huyendo de la dictadura que derribó al gobierno constitucional de Juan Domingo Perón, al que Scianmarella había adherido fervientemente. Incluso fue el autor de *Evita capitana*, una marcha partidaria que pasaban en las canchas durante los intervalos de los partidos de fútbol.

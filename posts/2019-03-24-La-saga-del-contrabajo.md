@@ -3,6 +3,7 @@ title: "La saga del contrabajo"
 date: "2019-03-24"
 original_url: https://tangosalbardo.blogspot.com/2019/03/la-saga-del-contrabajo.html
 labels: ""
+tags: ["Florindo Sassone", "Osvaldo Pugliese", "Víctor Lavallén", "Aníbal Troilo", "Alberto Morán", "Alfredo Gobbi", "Julián Plaza", "José Basso"]
 ---
 
 Don Aniceto quedó inmortalizado en el tango de Esteban Gilardi que grabó la orquesta de Osvaldo Pugliese el 26 de julio de 1950. Él había comenzado tocando el violoncello, dado que la música imperaba en su hogar, porque su padre ya tocaba el contrabajo, que al final sería su instrumento. Sí, Aniceto Rossi fue uno de los pilares de la orquesta del maestro de Villa Crespo.

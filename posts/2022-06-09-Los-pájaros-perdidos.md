@@ -3,6 +3,7 @@ title: "Los pájaros perdidos"
 date: "2022-06-09"
 original_url: https://tangosalbardo.blogspot.com/2022/06/los-pajaros-perdidos.html
 labels: ""
+tags: ["Astor Piazzolla", "Susana Rinaldi", "Julio De Caro", "Raúl Lavié"]
 ---
 
 En varias charlas (hechas también de silencios) que tuvimos con **Mario Trejo** en su casa de Almagro, fue contando partes de su larga, mítica historia.

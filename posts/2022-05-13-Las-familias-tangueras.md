@@ -3,6 +3,7 @@ title: "Las familias tangueras"
 date: "2022-05-13"
 original_url: https://tangosalbardo.blogspot.com/2022/05/las-familias-tangueras.html
 labels: ""
+tags: ["José González Castillo", "Libertad Lamarque", "Francisco Canaro", "Francisco Lomuto", "Cátulo Castillo", "Julio De Caro", "Orlando Goñi", "Homero Manzi"]
 ---
 
 A veces buscamos acotar el territorio de la identidad tanguera y es entonces cuando vamos descubriendo como este género musical porteño se fue introduciendo en las capas familiares, en una ciudad y una época histórica. Y esos retazos familiares enhebraron gran parte de la historia del tango como podemos comprobar recordando en simples trazos algunos de esos lazos tangueros.

@@ -3,6 +3,7 @@ title: "Reportaje a Julio de Caro"
 date: "2021-09-05"
 original_url: https://tangosalbardo.blogspot.com/2021/09/reportaje-julio-de-caro.html
 labels: ""
+tags: ["Francisco Canaro", "Astor Piazzolla", "Horacio Salgán", "Carlos Gardel", "Julio De Caro"]
 ---
 
 -Por qué se baila cada vez menos el tango?

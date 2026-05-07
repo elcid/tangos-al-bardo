@@ -3,6 +3,7 @@ title: "Aire al Tango"
 date: "2020-09-30"
 original_url: https://tangosalbardo.blogspot.com/2020/09/aire-al-tango.html
 labels: ""
+tags: ["Francisco Fiorentino", "Leopoldo Federico", "Francisco Canaro", "Alberto Castillo", "Carlos Di Sarli", "Osvaldo Fresedo", "Ricardo Tanturi", "Roberto Rufino"]
 ---
 
 Durante la década del 40 y hasta mediados de la del 60, el tango en vivo fue protagonista de la radio argentina. La historia de un romance que siempre tiene esperanzas de volver.

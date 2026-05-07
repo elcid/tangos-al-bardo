@@ -3,6 +3,7 @@ title: "Oscar Rubens"
 date: "2015-05-18"
 original_url: https://tangosalbardo.blogspot.com/2015/05/oscar-rubens.html
 labels: ""
+tags: ["Francisco Canaro", "Alberto Castillo", "Carlos Di Sarli", "Armando Pontier", "Alberto Podestá", "Ricardo Tanturi", "Roberto Rufino", "Enrique Campos"]
 ---
 
 Alguna vez he hablado de este integrante de la familia de los Rubistein, que tanto aportaron al catastro tanguero, como autores de temas importantes, e incluso en otras facetas de la vida artística, como, por ejemplo, el caso de Oscar que fuera el fundador de Ediciones Select, una Editorial que le dió cancha a numerosos autores que pugnaban por abrirse paso en aquellos años febriles. Y allí se editaron éxitos como: *Nada, Tarde, Trenzas, Milongueando en el 40, Pedacito de cielo, Flor de lino* y otros temas de distintos letristas y compositores.

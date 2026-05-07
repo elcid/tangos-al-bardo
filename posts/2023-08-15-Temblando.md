@@ -3,6 +3,7 @@ title: "Temblando"
 date: "2023-08-15"
 original_url: https://tangosalbardo.blogspot.com/2023/08/temblando.html
 labels: ""
+tags: ["Armando Pontier", "Alberto Podestá", "Ignacio Corsini", "Aníbal Troilo", "Pedro Laurenz"]
 ---
 
 Este valsecito gaucho, o criollo en su alma campera, se ha ganado un lugar en las interpretaciones de cantores, orquestas, tanto en las típicas como en conjuntos folklóricos y sus cantantes diversos. Realmente tiene ese sabor campestre en sus vasos comunicantes y la geografía emotiva con su poso melancólico, por la diseminación de encantos y perplejidades.

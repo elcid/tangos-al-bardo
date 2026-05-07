@@ -3,6 +3,7 @@ title: "Tinta roja"
 date: "2020-07-24"
 original_url: https://tangosalbardo.blogspot.com/2020/07/tinta-roja.html
 labels: ""
+tags: ["José González Castillo", "Cátulo Castillo", "Sebastián Piana", "Susana Rinaldi", "Aníbal Troilo"]
 ---
 
 Pocos géneros musicales han albergado en sus filas a poetas de la talla que ha tenido el tango. Los Manzi, Expósito, Cadícamo, Discépolo, Le Pera, los Contursi, González Castillo, Celedonio, Cátulo, son una muestra palpable de la calidad de estos vates que nos han legado verdaderas joyas envueltas en música. Y han trascendido largamente las fronteras rioplatenses y hoy siguen mostrando sus laureles incólumes en infinidad de paises de todo el mundo.

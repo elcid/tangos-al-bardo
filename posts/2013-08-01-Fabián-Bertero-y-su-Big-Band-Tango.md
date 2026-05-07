@@ -3,6 +3,7 @@ title: "Fabián Bertero y su Big Band Tango"
 date: "2013-08-01"
 original_url: https://tangosalbardo.blogspot.com/2013/08/fabian-bertero-y-su-big-band-tango.html
 labels: ""
+tags: ["Fernando Suárez Paz", "Leopoldo Federico", "Libertad Lamarque", "Daniel Binelli", "Horacio Ferrer", "Carlos García", "Julio De Caro", "Antonio Agri"]
 ---
 
 Es la orquesta dirigida por este violinista, compositor, arreglador, con un concepto renovador y a la vez clásico, respetuoso de los grandes que hicieron el camino. Da verdadero gusto ver y escuchar a Fabián Bertero manejando su instrumento y codeándose con próceres de la cuerda.

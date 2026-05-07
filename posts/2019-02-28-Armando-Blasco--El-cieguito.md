@@ -3,6 +3,7 @@ title: "Armando Blasco \"El cieguito\""
 date: "2019-02-28"
 original_url: https://tangosalbardo.blogspot.com/2019/02/armando-blasco-el-cieguito.html
 labels: ""
+tags: ["Sebastián Piana", "Pedro Laurenz", "Julio De Caro", "Pedro Maffia"]
 ---
 
 SU INCLUSIÓN EN MI ORQUESTA

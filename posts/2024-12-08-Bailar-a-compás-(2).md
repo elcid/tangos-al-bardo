@@ -3,6 +3,7 @@ title: "Bailar a compás (2)"
 date: "2024-12-08"
 original_url: https://tangosalbardo.blogspot.com/2024/12/bailar-compas-2.html
 labels: ""
+tags: ["Juan D'Arienzo"]
 ---
 
 ...En cierta oportunidad que me invitaron a disertar en un Festival de Tango en Francia, me propusieron que hablara sobre la historia de esta danza, desde su nacimiento y evolución hasta nuestros días. Al final de la misma traté de explicar las diferentes propuestas que transmiten las orquestas, sus estilos, y escogí ejemplos, los grandes: Troilo, Di Sarli, D'Arienzo y Pugliese. Puse un tema de cada una y los bailé con cuatro mujeres distintas, elegidas al azar.

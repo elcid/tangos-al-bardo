@@ -3,6 +3,7 @@ title: "Triste paica"
 date: "2015-08-18"
 original_url: https://tangosalbardo.blogspot.com/2015/08/triste-paica.html
 labels: ""
+tags: ["Celedonio Flores", "Francisco Canaro", "Pascual Contursi", "Carlos Waiss", "Homero Manzi", "Charlo"]
 ---
 
 Vale la pena recordar este tango que no ha sido muy difundido, por la letra, que le pertenece a Homero Manzi, y porque curiosamente hay muchas palabras lunfardas incrustadas en el poema, cuando es bien sabido que Homero muy raramente usaba vocablos de este tipo. En cambio se daban muy bien en los tangos de Pascual Contursi, Celedonio Flores, Carlos Waiss, Eduardo Escaris Méndez y otros autores.

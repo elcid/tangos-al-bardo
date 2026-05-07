@@ -3,6 +3,7 @@ title: "Solamente ella"
 date: "2012-07-13"
 original_url: https://tangosalbardo.blogspot.com/2012/07/solamente-ella.html
 labels: ""
+tags: ["José María Contursi", "Roberto Goyeneche", "Fulvio Salamanca", "Armando Pontier", "Juan D'Arienzo", "Julián Centeya", "Héctor Varela", "Homero Manzi"]
 ---
 
 Homero Manzi fue uno de los más grandes poetas que tuvimos la suerte de contarlo en las filas tangueras, más allá de su producción intelectual en cine, radio, periodismo, y política.

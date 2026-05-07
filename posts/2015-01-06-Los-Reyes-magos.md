@@ -3,6 +3,7 @@ title: "Los Reyes magos"
 date: "2015-01-06"
 original_url: https://tangosalbardo.blogspot.com/2015/01/los-reyes-magos.html
 labels: ""
+tags: ["Sebastián Piana", "Edmundo Rivero", "Aníbal Troilo", "Roberto Grela", "Pedro Maffia", "Homero Manzi"]
 ---
 
 Hoy es el Día de los niños. Con leyendas, con mitos, con cuentos, pero con una carga de felicidad para los chicos. Porque todos lo fuimos. Y sabemos del insomnio en la noche previa, de los zapatitos al pie de la ventana o de la puerta, del pedido que en muchos hogares, no se cumplían porque era imposible que arribaran los camellos con sus tres ocupantes. Los que venimos de cuna humilde sabemos el valor que tienen esos regalos para no sufrir de envidia ante otros niños, aunque también descubriremos el sacrificio que comporta para los padres el cumplimentar esos pedidos inocentes.

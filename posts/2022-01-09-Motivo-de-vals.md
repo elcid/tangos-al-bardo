@@ -3,6 +3,7 @@ title: "Motivo de vals"
 date: "2022-01-09"
 original_url: https://tangosalbardo.blogspot.com/2022/01/motivo-de-vals.html
 labels: ""
+tags: ["Roberto Goyeneche", "Horacio Salgán", "Ariel Ardit", "Carlos Bahr", "José Basso"]
 ---
 
 Sin duda alguna, Carlos Bahr fue una figura destacada entre los poetas del tango. Su extensa obra logró gran significación en los atriles de numerosas orquestas y cantantes, y muchos de sus temas alcanzaron y siguen teniendo, gran repercusión, por su nivel musical y poético. Los concretó con compositores como Roberto Garza, Manolo Sucher, Enrique Francini, Piazzolla, Argentino Galván, Guichandut, Artola, José Basso, Biagi, Laurenz, Hugo Gutiérrez, Elías Randall, Féliz Lipesker, Eladio Blanco, Horacio Salgán, y tantos otros.

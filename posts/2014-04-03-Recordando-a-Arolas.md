@@ -3,6 +3,7 @@ title: "Recordando a Arolas"
 date: "2014-04-03"
 original_url: https://tangosalbardo.blogspot.com/2014/04/recordando-arolas.html
 labels: ""
+tags: ["Luis Adolfo Sierra", "Francisco Canaro", "Eduardo Arolas", "Agustín Bardi", "Roberto Firpo"]
 ---
 
 Lo admiré tempranamente y a mis veinte años carnavaleros escribí una tesis sobre su personalidad y su obra para un compañero de la milicia que tenía una revista variopinta. La figura de este prócer del tango: Eduardo Arolas o Lorenzo Arola -su verdadero nombre-, merece ser recordada permanentemente porque su obra es para mí fundamento de la parte instrumental del género, en su evolución y en carácter de compositor.

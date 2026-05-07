@@ -3,6 +3,7 @@ title: "Día Nacional del Tango"
 date: "2013-12-11"
 original_url: https://tangosalbardo.blogspot.com/2013/12/dia-nacional-del-tango.html
 labels: ""
+tags: ["Luis Bayón Herrera", "Carlos Gardel", "Julio De Caro", "Pedro Laurenz", "Manuel Romero", "Pedro Maffia"]
 ---
 
 Siempre tiene que haber una iniciativa particular en Argentina para sacar adelante proyectos que patenten efemérides, recordando y festejando fechas que atañen a la cultura popular. Esas que las clases gobernantes tardan años en asimilar como patrimonio cultural, precisamente.

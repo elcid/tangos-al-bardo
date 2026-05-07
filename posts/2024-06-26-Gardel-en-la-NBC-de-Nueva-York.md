@@ -3,6 +3,7 @@ title: "Gardel en la NBC de Nueva York"
 date: "2024-06-26"
 original_url: https://tangosalbardo.blogspot.com/2024/06/gardel-en-la-nbc-de-nueva-york.html
 labels: ""
+tags: ["Alfredo Le Pera"]
 ---
 
 Fue en oportunidad de filmarse un pasacalle que pretendía ser un lugar de la Boca. En este pasacalle parecían haberse dado cita todos los vendedores ambulantes del mundo: aquí un italiano vendiendo fainá, allá una mujer gorda ofreciendo helados. Por ahí un vendedor de pescado frito, otro con castañas asadas, un turco con un fardo de toallas y otro -que era el que hacía más bochinche- vendiendo maníes.

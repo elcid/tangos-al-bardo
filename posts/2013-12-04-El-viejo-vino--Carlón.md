@@ -3,6 +3,7 @@ title: "El viejo vino \"Carlón\""
 date: "2013-12-04"
 original_url: https://tangosalbardo.blogspot.com/2013/12/el-viejo-vino-carlon.html
 labels: ""
+tags: ["Cátulo Castillo", "Edmundo Rivero", "Aníbal Troilo", "Carlos Gardel", "Jorge Casal"]
 ---
 
 Cuántas veces lo habremos tomado en las antiguas cantinas y fondines. Pero la historia de este vino se remonta muy lejos, a la época de la colonia y aseguran que incluso san Martín al llegar a Chile, tras cruzar la cordillera, en la gran gesta libertadora, brindó con sus soldados con viejo vino Carlón.

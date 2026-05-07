@@ -3,6 +3,7 @@ title: "Frente al mar"
 date: "2014-08-23"
 original_url: https://tangosalbardo.blogspot.com/2014/08/frene-al-mar.html
 labels: ""
+tags: ["Adolfo Carabelli", "Enrique Delfino", "Roberto Rufino", "Aníbal Troilo", "Mariano Mores"]
 ---
 
 Bueno, puse proa hacia las aguas cálidas del Mediterráneo y por unos días los dejo con todo este material guardado en **Tangos al bardo**. En Setiembre arranco con renovadas energías, un gran archivo, recuerdos cachuzos, grabaciones,videos y todo el arsenal que vive en la gran historia del tango.

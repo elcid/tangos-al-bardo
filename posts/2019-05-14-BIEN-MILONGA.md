@@ -3,6 +3,7 @@ title: "BIEN MILONGA"
 date: "2019-05-14"
 original_url: https://tangosalbardo.blogspot.com/2019/05/bien-milonga_14.html
 labels: ""
+tags: ["Enrique Cadícamo", "Francisco Canaro", "Alberto Castillo", "Carlos Di Sarli", "Ricardo Tanturi"]
 ---
 
 * Ella, es una sombra*

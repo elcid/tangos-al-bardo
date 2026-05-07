@@ -3,6 +3,7 @@ title: "Juan José Mosalini"
 date: "2016-10-21"
 original_url: https://tangosalbardo.blogspot.com/2016/10/juan-jose-mosalini.html
 labels: ""
+tags: ["Juan José Mosalini", "Leopoldo Federico", "Osvaldo Pugliese", "Ricardo Tanturi", "Rodolfo Mederos", "Daniel Binelli", "Susana Rinaldi", "Néstor Marconi"]
 ---
 
 En aquella época que músicos y cantantes de tango se trasladaban en plan aventurero a París para tratar de imponer este género argentino, ni se imaginaban la trascendencia que tendrían en el futuro, y en la historia del tango mismo. Pero fueron quienes sembraron las semillas que luego germinarían y permitirían la llegada de numerosos compatriotas que conquistarían al público de la Ciudad luz e implantarían definitivamente nuestra música en el viejo continente.

@@ -3,6 +3,7 @@ title: "Juan Sánchez Gorio"
 date: "2017-03-27"
 original_url: https://tangosalbardo.blogspot.com/2017/03/juan-sanchez-gorio.html
 labels: ""
+tags: ["Osvaldo Fresedo", "Reinaldo Yiso", "Miguel Caló", "José Basso"]
 ---
 
 En aquella época de gran auge del tango, las orquestas se daban cita en las emisoras radiales a toda hora y mis orejas disfrutaban y guardaban las letanías de tantos nombres que siguen repiqueteándonos en el cuore, aunque los haya ido borrando el paso del tiempo. Nuestro hombre de hoy, con su orquesta sonaba por radio Splendid o radio El Mundo -en horas del mediodía- cuando estábamos almorzando y nuestros padres atendían los reclamos de mi hermano y nos dejaban sintonizarlo.

@@ -3,6 +3,7 @@ title: "El testamento de Sebastián Piana"
 date: "2017-01-27"
 original_url: https://tangosalbardo.blogspot.com/2017/01/el-testamento-de-sebastian-piana.html
 labels: ""
+tags: ["José González Castillo", "Juan Carlos Cobián", "Francisco Canaro", "Cátulo Castillo", "Azucena Maizani", "Osvaldo Fresedo", "Ignacio Corsini", "Mercedes Simone"]
 ---
 
 Sin la menor duda, Sebastián Piana, es uno de los más grandes creadores que ha tenido el tango en su historia. En este reportaje, realizado en su casa del barrio de Almagro, un mes antes de su muerte, por su sobrino, el periodista Fernando Piana y el historiador y periodista Rodolfo Barrese, Piana repasa aspectos fundamentales de su obra, como así también las distintas sensaciones de sus creaciones y las orquestas que tuvo, o los cantantes que acompañó. Para "Desmemoria", uno de sus directores Miguel Unamuno, encargó el siguiente reportaje que fué publicado en dicha revista, en la edición octubre-noviembre de 1994.

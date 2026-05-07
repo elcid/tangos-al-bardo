@@ -3,6 +3,7 @@ title: "Tu pálido final"
 date: "2016-07-06"
 original_url: https://tangosalbardo.blogspot.com/2016/07/tu-palido-final.html
 labels: ""
+tags: ["Alberto Castillo", "Vicente Demarco", "Edmundo Rivero", "Aníbal Troilo", "Héctor Mauré", "Jorge Ortiz", "Julio Sosa"]
 ---
 
 Este tango, embellecido en la versión que hiciera del mismo Aníbal Troilo con Edmundo Rivero en 1947, es una muestra de la tendencia renovadora que siempre fue experimentando el género a lo largo de su historia. La letra de Alfredo Faustino Roldán pinta un drama que se presenta magistral en la interpretación que hiciera Rivero, aunque hubo otros cantores como Julio Sosa, Héctor Mauré, Jorge Ortiz o Alberto Castillo que lo agregaron a su repertorio y lo grabaron.

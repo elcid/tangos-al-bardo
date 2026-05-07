@@ -3,6 +3,7 @@ title: "Manuel Romero"
 date: "2015-02-11"
 original_url: https://tangosalbardo.blogspot.com/2015/02/manuel-romero.html
 labels: ""
+tags: ["Francisco Pracánico", "Luis Bayón Herrera", "Francisco Canaro", "Osvaldo Pugliese", "Francisco Lomuto", "Azucena Maizani", "Hugo del Carril", "Ignacio Corsini"]
 ---
 
 Lo llamaban *el gallego*, por ser hijo de inmigrantes andaluces, pero era más porteño que el Obelisco, o el pomo en los carnavales. Sus hermanos y primos se destacarían como hábiles artesanos gráficos, pero él enfiló otros horizontes que lo llevarían al periodismo, la crítica teatral, el tango, el arte de Talía y el cine. Hombre múltiple al que parecía que nunca le alcanzaba el tiempo, filmó y estrenó películas en tiempo record, y su comienzo fue al irse interiorizando de lo que sucedía en escenarios teatrales y entre bambalinas, donde destacaría primero como un prolífico autor y productor.

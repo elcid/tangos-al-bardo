@@ -3,6 +3,7 @@ title: "Piana y Manzi"
 date: "2018-08-09"
 original_url: https://tangosalbardo.blogspot.com/2018/08/piana-y-manzi.html
 labels: ""
+tags: ["Enrique Santos Discépolo", "José González Castillo", "Carlos Di Sarli", "Cátulo Castillo", "Mercedes Simone", "Roberto Rufino", "Carlos Gardel", "Pedro Maffia"]
 ---
 
 Constituyen una de las duplas más geniales que ha tenido el tango. Hay otras famosas como las de Cobián-Cadícamo, Aieta-García Giménez, que sin duda han dejado profunda huella en el género, pero hoy me toca revisitar a estos próceres del tango, la milonga y el valsecito porteño, que tanto han inluído en la música popular rioplatense. Sobre todo como creadores de la definitiva milonga, tan distinta de la anterior, que era una especie de payada pueblerina, con versos octosílabos que se acompañaban con rasguidos monódicos de guitarra.

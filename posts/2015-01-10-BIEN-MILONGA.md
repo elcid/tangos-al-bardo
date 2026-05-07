@@ -3,6 +3,7 @@ title: "BIEN MILONGA"
 date: "2015-01-10"
 original_url: https://tangosalbardo.blogspot.com/2015/01/bien-milonga_10.html
 labels: ""
+tags: ["Osvaldo Pugliese"]
 ---
 
 Además de la música, del canto, de la historia, de los grandes monstruos que fecundaron el tango, están las milongas diarias donde le damos rienda suelta a nuestra afición milonguera. La mía lleva muchos años. He bailado en los grandes templos del cincuenta: clubes, salones y confiterías céntricas. Me he llenado de tango y he aprendido a bailar con aquellas hermosas barras que no eran bravas nada más que como cofradía, para compartir sentimientos.

@@ -3,6 +3,7 @@ title: "LA MUSA POPULAR"
 date: "2025-10-14"
 original_url: https://tangosalbardo.blogspot.com/2025/10/la-musa-popular.html
 labels: ""
+tags: ["Enrique Cadícamo"]
 ---
 
 ** L**a Musa Popular tenía sus poetas

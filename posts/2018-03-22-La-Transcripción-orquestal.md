@@ -3,6 +3,7 @@ title: "La Transcripción orquestal"
 date: "2018-03-22"
 original_url: https://tangosalbardo.blogspot.com/2018/03/la-transcripcion-orquestal.html
 labels: ""
+tags: ["Alberto Podestá"]
 ---
 
 Transcribir música es emprender un viaje al pasado.

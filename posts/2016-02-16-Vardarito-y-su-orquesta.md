@@ -3,6 +3,7 @@ title: "Vardarito y su orquesta"
 date: "2016-02-16"
 original_url: https://tangosalbardo.blogspot.com/2016/02/vardarito-y-su-orquesta.html
 labels: ""
+tags: ["Juan Carlos Cobián", "Joaquín Do Reyes", "Osvaldo Pugliese", "Carlos Di Sarli", "Agustín Bardi", "Pedro Maffia", "Juan Maglio"]
 ---
 
 Ya he hablado en algunas oportunidades, dentro del blog, de este maravilloso violinista que recorrió gran parte de la historia del tango con su instrumento, y que fue un verdadero lujo para la música popular. Porque estudió música de pequeño, con grandes profesores y estaba destinado a lo que hizo al final de su carrera: la música clásica. Pero el tango, por fortuna para todos nosotros lo atrapó, merced al oportuno llamado de Juan Maglio Pacho en 1921.

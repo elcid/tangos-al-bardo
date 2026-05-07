@@ -3,6 +3,7 @@ title: "El Negro Cobos"
 date: "2013-07-19"
 original_url: https://tangosalbardo.blogspot.com/2013/07/el-negro-cobos.html
 labels: ""
+tags: ["José María Aguilar", "Osvaldo Pugliese", "Alfredo Gobbi", "Pedro Maffia", "Miguel Caló"]
 ---
 
 Este muchacho morocho, fuerte, de rostro amable y sonriente, corrió con la dura tarea de reemplazar a Jorge Vidal en la gran orquesta de Osvaldo Pugliese, a comienzos de los años cincuenta. Con la misma coloratura de voz de Vidal, barítono, grave, tuvo una breve pero muy aplaudida performance en la orquesta que llenaba todos los clubes de Buenos Aires donde se presentaba.

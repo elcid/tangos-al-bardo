@@ -3,6 +3,7 @@ title: "Juan Carlos Thorry"
 date: "2017-07-01"
 original_url: https://tangosalbardo.blogspot.com/2017/07/juan-carlos-thorry.html
 labels: ""
+tags: ["Francisco Canaro", "Osvaldo Pugliese", "Osvaldo Fresedo", "Ricardo Tanturi", "Alberto Echagüe", "Edgardo Donato", "Julio De Caro", "Ricardo Ruiz"]
 ---
 
 Fue muchísimo más famoso por sus dotes de comediante, por la cantidad impresionante de películas que filmó, generalmente comedias, en la cual fungía de galán-protagonista, casi siempre, que como cantor o autor de temas de éxito. Su periplo cinematografíco abarca cincuenta años, desde su debut en *El caballo del pueblo* (1935), donde interpretó el papel que estaba destinado a Gardel. Incluso dirigió varios filmes, actuó en teatro, fue conductor en Televisión. Alternó en Comedias musicales de éxito, cantó en Estados Unidos, filmó en Venezuela, México, España.

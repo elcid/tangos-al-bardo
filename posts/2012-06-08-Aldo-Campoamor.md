@@ -3,6 +3,7 @@ title: "Aldo Campoamor"
 date: "2012-06-08"
 original_url: https://tangosalbardo.blogspot.com/2012/06/aldo-campoamor.html
 labels: ""
+tags: ["Libertad Lamarque", "Astor Piazzolla", "Cátulo Castillo", "Mariano Mores", "Pedro Maffia"]
 ---
 
 En un programa de radio que yo tenía en Buenos Aires, le pregunté, entre otras cosas, en cierta oportunidad a Astor Piazzolla:

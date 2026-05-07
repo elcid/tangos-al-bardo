@@ -3,6 +3,7 @@ title: "Milonga porteña"
 date: "2015-12-14"
 original_url: https://tangosalbardo.blogspot.com/2015/12/milonga-portena.html
 labels: ""
+tags: ["Carlos Dante", "Miguel Caló"]
 ---
 
 Este tango tiene una pequeña historia porque fue el primero de los 363 registros que dejó grabados Miguel Caló con su orquesta. En la otra faz del disco de 78 rpm, tenía el vals *Amarguras*, de Miguel Nijensohn y Jaime de los Hoyos, aunque a la hora de la impresión aparecerá este último con el número uno de la lista. *Milonga porteña* fue creado por Miguel Caló y Luis Brighenti (autor de ese hermoso tango: *Ensueños*) en la música, y los versos son de Mario C. Gomila.

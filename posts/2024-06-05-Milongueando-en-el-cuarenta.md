@@ -3,6 +3,7 @@ title: "Milongueando en el cuarenta"
 date: "2024-06-05"
 original_url: https://tangosalbardo.blogspot.com/2024/06/milongueando-en-el-cuarenta.html
 labels: ""
+tags: ["José Libertella", "Armando Pontier", "Hugo del Carril"]
 ---
 
 **GLORIA Y EDUARDO**

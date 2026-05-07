@@ -3,6 +3,7 @@ title: "Roberto Firpo"
 date: "2013-06-21"
 original_url: https://tangosalbardo.blogspot.com/2013/06/roberto-firpo.html
 labels: ""
+tags: ["José María Contursi", "Osvaldo Pugliese", "Enrique Cadícamo", "Horacio Salgán", "Carlos García", "Roberto Firpo", "Pedro Maffia"]
 ---
 
 Cada tanto hay que volver a escuchar a la orquesta de Don Roberto Firpo, para comprobar su musicalidad, su sentido del tango siempre melódico y su temperamento romántico. El que lo llevó a componer una impresionante lista de temas -127- en los que el buen gusto y la tanguidad sabiamente expresada denotan su jerarquía musical.

@@ -3,6 +3,7 @@ title: "Roberto Rufino recuerda a Pichuco"
 date: "2023-05-14"
 original_url: https://tangosalbardo.blogspot.com/2023/05/roberto-rufino-recuerda-pichuco.html
 labels: ""
+tags: ["Carlos Di Sarli", "Roberto Rufino"]
 ---
 
 Troilo vivía a dos cuadras de mi casa, en Cabrera y Agüero, donde nació. Un día me mandó llamar y me hizo cantar *Farolito de papel*. Yo canté y cuando terminé, le preguntó a la madre si le gustaba. Así empezó mi relación con Pichuco.

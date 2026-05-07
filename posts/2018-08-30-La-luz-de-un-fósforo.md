@@ -3,6 +3,7 @@ title: "La luz de un fósforo"
 date: "2018-08-30"
 original_url: https://tangosalbardo.blogspot.com/2018/08/la-luz-de-un-fosforo.html
 labels: ""
+tags: ["Juan Carlos Cobián", "Libertad Lamarque", "Enrique Cadícamo", "Alberto Marino", "Aníbal Troilo", "Mariano Mores", "Ariel Ardit"]
 ---
 
 Me satisface poder comunicar que han pasado de novecientas mil las visitas a este blog tanguero y milonguero que arrancó, modestamente, en febrero de 2012 y que hoy se ve en muchos países del mundo. Al día de hoy hay más de 1550 entradas. Todo ello me impulsa a seguir contando historias tangueras, algunas de las cuales he vivido de cerca y en otras me explayo a partir del sentimiento y de anécdotas y hechos que abundan en el género y que me permito revivir.

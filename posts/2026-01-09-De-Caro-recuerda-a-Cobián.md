@@ -3,6 +3,7 @@ title: "De Caro recuerda a Cobián"
 date: "2026-01-09"
 original_url: https://tangosalbardo.blogspot.com/2026/01/de-caro-recuerda-cobian.html
 labels: ""
+tags: ["Juan Carlos Cobián", "Julio De Caro", "Pedro Maffia"]
 ---
 
 -Corre el año 1922.

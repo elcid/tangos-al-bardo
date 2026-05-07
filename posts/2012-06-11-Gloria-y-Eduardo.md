@@ -3,6 +3,7 @@ title: "Gloria y Eduardo"
 date: "2012-06-11"
 original_url: https://tangosalbardo.blogspot.com/2012/06/gloria-y-eduardo.html
 labels: ""
+tags: ["Francisco García Jiménez", "Francisco Canaro", "Floreal Ruiz"]
 ---
 
 ¡Cuántas parejas que se formaron en los barrios porteños habrán vivido esta historia!

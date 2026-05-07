@@ -3,6 +3,7 @@ title: "Ángel Vargas"
 date: "2023-02-19"
 original_url: https://tangosalbardo.blogspot.com/2023/02/angel-vargas.html
 labels: ""
+tags: ["Eduardo Del Piano", "Alberto Castillo", "Astor Piazzolla", "Ricardo Tanturi", "José Libertella", "Enrique Campos", "Alberto Marino", "Rosita Quiroga"]
 ---
 
 ## La voz confidencial de un cantor perfumado de glicinas

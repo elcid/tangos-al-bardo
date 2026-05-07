@@ -3,6 +3,7 @@ title: "Leopoldo Federico:"
 date: "2019-11-30"
 original_url: https://tangosalbardo.blogspot.com/2019/11/leopoldo-federico.html
 labels: ""
+tags: ["Leopoldo Federico", "Carlos García", "Raúl Garello"]
 ---
 
 **Mi tercer pulmón**

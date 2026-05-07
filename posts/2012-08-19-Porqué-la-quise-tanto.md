@@ -3,6 +3,7 @@ title: "Porqué la quise tanto"
 date: "2012-08-19"
 original_url: https://tangosalbardo.blogspot.com/2012/08/porque-la-quise-tango.html
 labels: ""
+tags: ["Leopoldo Federico", "Osvaldo Fresedo", "Hugo del Carril", "Mariano Mores"]
 ---
 
 [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhnHl8jfIyEbyLSe-CW8KzYbtOt-8HKc9ChwC1NmfidZpu0XLKSS0ERgiPYW8xUjb7IXPiz1ICeK5Abu7OrbEpcnRuCLoiMdCwqhNNDhQSs1ZDxfgVpXDq7m5iKCKB6-9brtnBjM74j7JZm/s320/Porqu%C3%A9+la+quise+tango.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhnHl8jfIyEbyLSe-CW8KzYbtOt-8HKc9ChwC1NmfidZpu0XLKSS0ERgiPYW8xUjb7IXPiz1ICeK5Abu7OrbEpcnRuCLoiMdCwqhNNDhQSs1ZDxfgVpXDq7m5iKCKB6-9brtnBjM74j7JZm/s1600/Porqu%C3%A9+la+quise+tango.jpg)Esta es una hermosa composición del maestro Mariano Mores (Mariano Alberto Martínez) y el poeta Rodolfo Taboada. La compusieron en 1961 y la estrenó en setiembre de ese año Hugo del Carril con su tremenda voz, en el espectáculo: "*Estrellas*", en el Teatro Avenida de la Avenida de Mayo.

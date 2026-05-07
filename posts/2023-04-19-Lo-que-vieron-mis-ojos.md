@@ -3,6 +3,7 @@ title: "Lo que vieron mis ojos"
 date: "2023-04-19"
 original_url: https://tangosalbardo.blogspot.com/2023/04/lo-que-vieron-mis-ojos.html
 labels: ""
+tags: ["Francisco Canaro", "Francisco Lomuto", "Ignacio Corsini", "Mercedes Simone", "Ada Falcón"]
 ---
 
 La sentimentalidad del tango se ha contagiado a otras ramas del mismo, como el valsecito, que tan bien ha encajado en la urdimbre tanguera dándole ese aire de algarabía familiar. Y en esa telaraña emocional, flirteando con la fantasía, se ha apuntado innumerables porotos. Incluso sobreviven una grosa cantidad de ellos, asomando la emoción de su plasmación sonora en las milongas de medio mundo, que te arrean al rondín de la pista de baile.

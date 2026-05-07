@@ -3,6 +3,7 @@ title: "Tango y bolero"
 date: "2013-04-14"
 original_url: https://tangosalbardo.blogspot.com/2013/04/tango-y-bolero.html
 labels: ""
+tags: ["Francisco Canaro", "Roberto Yanés", "Miguel Caló"]
 ---
 
 Se han hermanado muchas veces estos ritmos nacidos en las fecundas tierras de América. Cuántos tangos han sido trasladados a partituras aboleradas y los han entonado grandes cantantes mexicanos, ecuatorianos, caribeños, *e anche piú*.

@@ -3,6 +3,7 @@ title: "BIEN MILONGA"
 date: "2020-02-18"
 original_url: https://tangosalbardo.blogspot.com/2020/02/bien-milonga_18.html
 labels: ""
+tags: ["Alberto Echagüe", "Alberto Podestá", "Juan D'Arienzo", "Pedro Laurenz"]
 ---
 
 Fugaz

@@ -3,6 +3,7 @@ title: "Quinteto Marcelli"
 date: "2014-04-27"
 original_url: https://tangosalbardo.blogspot.com/2014/04/quinteto-marcelli.html
 labels: ""
+tags: ["Leopoldo Federico", "Osvaldo Pugliese", "Atilio Stampone", "Homero Expósito", "Aníbal Troilo", "Agustín Bardi", "Miguel Caló", "Cacho Tirao"]
 ---
 
 Este violinista de larga trayectoria en los rieles del tango, que integra la *Orquesta Estable del Teatro Colón *como primer atril de su instrumento, desde 1984, sustituyó a Cacho Herrero en la orquesta de Osvaldo Pugliese junto a quien estuvo seis años, como arreglador y primer violín. Tiene una carrera impresionante y ha viajado por todo el mundo con distintas orquestas y con su propio conjunto.

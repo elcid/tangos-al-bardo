@@ -3,6 +3,7 @@ title: "Viento que lleva y trae"
 date: "2020-12-19"
 original_url: https://tangosalbardo.blogspot.com/2020/12/viento-que-lleva-y-trae.html
 labels: ""
+tags: ["Enrique Cadícamo"]
 ---
 
 Vientos del novecientos que hicieron girar las veletas y silbaron en los pararrayos de las primeras residencias señoriales de Flores, Belgrano y Recoleta...

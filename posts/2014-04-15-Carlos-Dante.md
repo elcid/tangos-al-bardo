@@ -3,6 +3,7 @@ title: "Carlos Dante"
 date: "2014-04-15"
 original_url: https://tangosalbardo.blogspot.com/2014/04/carlos-dante.html
 labels: ""
+tags: ["Francisco Pracánico", "Alfredo De Angelis", "Francisco Canaro", "Agustín Magaldi", "Cátulo Castillo", "Julio Martel", "Pedro Maffia", "Floreal Ruiz"]
 ---
 
 Fue otra de las celebridades tangueras que emergieron del porteño barrio de Boedo para trascender no sólo en la calle Corrientes que diplomaba definitvamente a los artistas populares, sino incluso en Europa. Hacia allí viajaría empujado por Francisco Canaro para que se enrolara en la orquesta de su hermano Rafael, que era una especie de sucursal de las de Pirincho.

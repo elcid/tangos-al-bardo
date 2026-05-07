@@ -3,6 +3,7 @@ title: "El Chula Clausi"
 date: "2013-01-29"
 original_url: https://tangosalbardo.blogspot.com/2013/01/el-chula-clausi.html
 labels: ""
+tags: ["Arturo De Bassi", "Eduardo Arolas", "Edgardo Donato", "Vicente Greco", "Julio De Caro", "Pedro Laurenz", "Pedro Maffia"]
 ---
 
 Le faltaron 18 meses para llegar a centenario, porque había nacido en 1911, el año en que Vicente Greco grababa por primera vez dos tangos bajo la denominación de *Orquesta típica*. Falleció en febrero de 2010 y en la despedida hubo gente de varias generaciones que lo respetaban y lo querían.

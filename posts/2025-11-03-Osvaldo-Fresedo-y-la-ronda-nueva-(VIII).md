@@ -3,6 +3,7 @@ title: "Osvaldo Fresedo y la ronda nueva (VIII)"
 date: "2025-11-03"
 original_url: https://tangosalbardo.blogspot.com/2025/11/osvaldo-fresedo-y-la-ronda-nueva-viii.html
 labels: ""
+tags: ["Osvaldo Fresedo", "Luis Petrucelli"]
 ---
 
 Cantor: esporádicamente en el 35 Ricardo Ruíz –quien luego volvió en la década del cuarenta-. En esta ocasión grabó solo un tema, la rumba de Lecuona “*Canto Siboney*”, disco Victor Nº 37751 del 5 de abril de 1935. También intervino ese año Roberto Díaz, dejando impreso el tango de José María Rizzuti y Santiago Giordano “*Retazo*”, disco Victor Nº 37733 del 22 de marzo del mismo año. En las restantes grabaciones, el estribillista fue Roberto Ray.

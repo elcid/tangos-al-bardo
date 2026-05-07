@@ -3,6 +3,7 @@ title: "Noches porteñas"
 date: "2013-10-14"
 original_url: https://tangosalbardo.blogspot.com/2013/10/noches-portenas.html
 labels: ""
+tags: ["José María Otero", "Celedonio Flores"]
 ---
 
 * "Rumores de milonga es toda mi fortuna"*

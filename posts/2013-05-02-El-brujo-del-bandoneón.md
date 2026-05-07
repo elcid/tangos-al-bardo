@@ -3,6 +3,7 @@ title: "El brujo del bandoneón"
 date: "2013-05-02"
 original_url: https://tangosalbardo.blogspot.com/2013/05/el-brujo-del-bandoneon.html
 labels: ""
+tags: ["Francisco García Jiménez", "Alfredo De Angelis", "Enrique Delfino", "Eduardo Arolas", "Juan D'Arienzo", "Alfredo Gobbi", "Anselmo Aieta", "Luis Stazo"]
 ---
 
 Así lo denominaron a Anselmo Aieta, en una época de grandes fueyes, como Maffia, Laurenz, Ciriaco Ortiz, Petrucelli, Minotto, Marcuci y otros que cimentaron la preeminencia del bandoneón en la leyenda que venía forjando el tango.

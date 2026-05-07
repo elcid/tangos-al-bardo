@@ -3,6 +3,7 @@ title: "Me están sobrando las penas"
 date: "2015-11-04"
 original_url: https://tangosalbardo.blogspot.com/2015/11/me-estan-sobrando-las-penas.html
 labels: ""
+tags: ["Fulvio Salamanca", "Alberto Marino", "Aníbal Troilo", "Pedro Laurenz", "Floreal Ruiz", "Carlos Bahr", "José Basso"]
 ---
 
 Anoche, en un momento dado de la milonga, puse este tema de Carlos Bahr, Argentino Galván y José Basso, en la magnífica versión de Pedro Laurenz con el cantor Carlos Bermúdez. El tango lo grabó Troilo con Alberto Marino, José Basso con Carlos Rossi, Miguel Montero con Armando Cupo entre otros. La versión de Laurenz del 7 de agosto de 1944, me parece realmente deliciosa, sin desmerecer a las restantes nombradas, que también están muy logradas.

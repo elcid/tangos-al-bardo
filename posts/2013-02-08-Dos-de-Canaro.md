@@ -3,6 +3,7 @@ title: "Dos de Canaro"
 date: "2013-02-08"
 original_url: https://tangosalbardo.blogspot.com/2013/02/dos-de-canaro.html
 labels: ""
+tags: ["José María Contursi", "Francisco Canaro", "Aníbal Troilo"]
 ---
 
 Cuando estoy en el ordenata o haciendo algo en el escritorio, a veces me sobrevuelan por la cabeza algunos temas que disfruté o disfruto a cuore pleno en la milonga, a lo largo de tantos años.

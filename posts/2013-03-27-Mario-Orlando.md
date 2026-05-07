@@ -3,6 +3,7 @@ title: "Mario Orlando"
 date: "2013-03-27"
 original_url: https://tangosalbardo.blogspot.com/2013/03/mario-orlando.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Francisco Canaro", "Vicente Greco", "Julio De Caro"]
 ---
 
 Es uno de los mejores musicalidores o disc jockeys del mundo. Estamos hablando de tango, por supuesto. Hace muchos años que lo conozco, he bailado con su música en numerosas milongas a lo largo de los años, y me lo he encontrado en diferentes sitios, siempre impecable en su cometido.

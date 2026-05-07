@@ -3,6 +3,7 @@ title: "Messi baila con la Copa"
 date: "2022-12-22"
 original_url: https://tangosalbardo.blogspot.com/2022/12/messi-baila-con-la-copa.html
 labels: ""
+tags: ["Homero Expósito"]
 ---
 
 ¡A bailar!.. ¡A bailar que la orquesta se va! Sobre el fino garabato de un tango nervioso y lerdo se irá borrando el recuerdo... ¡A bailar, a bailar que la orquesta se va!

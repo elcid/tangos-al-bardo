@@ -3,6 +3,7 @@ title: "¡Felices Fiestas!"
 date: "2013-12-22"
 original_url: https://tangosalbardo.blogspot.com/2013/12/felices-fiestas.html
 labels: ""
+tags: ["Osvaldo Pugliese"]
 ---
 
 A todos los queridos amigos y amigas que visitaron **Tangos al bardo** durante todo este tiempo que nos ha unido tangamente, les mando un abrazo solidario y bien tanguanguero y les deseo que tengan una linda Navidad y un 2014 lleno de regalos lindos y venturosos. Especialmente en el rubro salud.

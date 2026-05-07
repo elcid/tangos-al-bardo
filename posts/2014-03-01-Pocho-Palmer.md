@@ -3,6 +3,7 @@ title: "Pocho Palmer"
 date: "2014-03-01"
 original_url: https://tangosalbardo.blogspot.com/2014/03/pocho-palmer.html
 labels: ""
+tags: ["Leopoldo Federico", "Osvaldo Pugliese", "Alberto Podestá", "Aníbal Troilo", "Lidia Borda", "María Graña"]
 ---
 
 Me acaba de llamar desde Buenos Aires, el violinista y Director de orquesta, Fabián Bertero, para darme la triste noticia: Ha fallecido el notable bandoneonista Pocho Palmer, que, entre otras muchas cosas, era pieza fundamental de su formidable orquesta.

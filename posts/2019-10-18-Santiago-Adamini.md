@@ -3,6 +3,7 @@ title: "Santiago Adamini"
 date: "2019-10-18"
 original_url: https://tangosalbardo.blogspot.com/2019/10/santiago-adamini.html
 labels: ""
+tags: ["Carlos Gardel", "Julio De Caro", "Jorge Caldara", "Anselmo Aieta", "Miguel Caló", "Jorge Ortiz"]
 ---
 
 Es como una deuda personal que tengo con este personaje del tango. Porque allá en mi lontana juventud cantaba, silbaba y bailaba varios de sus temas que estaban de moda y me gustaban mucho. No está recordado en relación a sus méritos, quizás, en la historia del tango y por eso me place evocarlo, porque no sólo quedó instalado en los capullos de mi memoria, sino que recuerdo a aquellos comentaristas de tango anunciando un tema y sus correspondientes autores. Eran también las viejas costumbres de barrio, con la oreja atenta al aparato. Y su nombre era reiterado en los anuncios.

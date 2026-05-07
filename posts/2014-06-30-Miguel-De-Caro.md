@@ -3,6 +3,7 @@ title: "Miguel De Caro"
 date: "2014-06-30"
 original_url: https://tangosalbardo.blogspot.com/2014/06/miguel-de-caro.html
 labels: ""
+tags: ["Francisco García Jiménez", "Osvaldo Pugliese", "Julio De Caro", "Julián Plaza", "Raúl Garello"]
 ---
 
 El apellido lo condicionó de salida. La dinastía llevaba el emblema que marcó una época decisiva y triunfal para el tango. Era sobrino nieto de Julio De Caro y en su barrio natal de San Telmo lucía chapa de tanguero, por el apellido. Además en su casa se escuchaba permanentemente a Osvaldo Pugliese. Una música que se le iba haciendo familiar. Y con cinco años apenas decidió ser músico.

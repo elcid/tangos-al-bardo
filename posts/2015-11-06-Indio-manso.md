@@ -3,6 +3,7 @@ title: "Indio manso"
 date: "2015-11-06"
 original_url: https://tangosalbardo.blogspot.com/2015/11/indio-manso.html
 labels: ""
+tags: ["Francisco Lomuto", "Carlos Di Sarli", "Carlos Gardel"]
 ---
 
 Este tango de Héctor Quesada no ha tenido un gran recorrido, no ha estado en los atriles de las orquestas típicas, pero lo grabó Carlos Di Sarli en 1958 y fue una pegada tan grande, que aún hoy suena en las milongas y nos despierta un cúmulo de sensaciones internas que empuja a los bailarines y los lleva a navegar con esa música maravillosa que sale del disco.

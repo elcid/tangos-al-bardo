@@ -3,6 +3,7 @@ title: "Augusto Pedro Berto"
 date: "2018-04-02"
 original_url: https://tangosalbardo.blogspot.com/2018/04/augusto-pedro-berto.html
 labels: ""
+tags: ["Francisco Canaro", "Juan D'Arienzo", "José Martínez", "Pedro Maffia"]
 ---
 
 Fue guitarrero, mandolinista y violinista, antes de dedicarse con éxito al bandoneón, que lo sedujo y que aprendería a tocar con su maestro *Pepín* Piazza, el mismo que le enseñaría los primeros secretos del fueye a Pedro Maffia. Con este instrumento dejaría una huella grande en el tango, alternando en tríos, cuartetos, quintetos y orquesta, bajo su mando.

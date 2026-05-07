@@ -3,6 +3,7 @@ title: "El hombre tango"
 date: "2021-09-08"
 original_url: https://tangosalbardo.blogspot.com/2021/09/el-hombre-tango.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Francisco Canaro", "Horacio Ferrer", "Edmundo Rivero"]
 ---
 
 **Corazón grandote, garganta de pájaro**

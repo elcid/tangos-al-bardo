@@ -3,6 +3,7 @@ title: "     \" A LA URUGUAYA\""
 date: "2024-08-13"
 original_url: https://tangosalbardo.blogspot.com/2024/08/la-uruguaya.html
 labels: ""
+tags: ["Carlos Gardel"]
 ---
 
 FOTOS CON HISTORIA

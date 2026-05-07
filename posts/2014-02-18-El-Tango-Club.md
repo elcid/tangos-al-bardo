@@ -3,6 +3,7 @@ title: "El Tango Club"
 date: "2014-02-18"
 original_url: https://tangosalbardo.blogspot.com/2014/02/el-tango-club.html
 labels: ""
+tags: ["Francisco García Jiménez", "Alfredo De Angelis", "Florindo Sassone", "Miguel Caló"]
 ---
 
 Se fundó por una iniciativa de ese cantor que brilló en las orquestas de Miguel Caló y Alfredo De Angelis en sus juveniles comienzos: Roberto Mancini (Brandy). Se radicó un tiempo en Colombia donde se casaría incluso, y a su regreso siguió grabando con diferentes orquestas y actuando en televisión y lugares públicos.

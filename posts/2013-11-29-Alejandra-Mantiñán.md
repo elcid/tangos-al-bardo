@@ -3,6 +3,7 @@ title: "Alejandra Mantiñán"
 date: "2013-11-29"
 original_url: https://tangosalbardo.blogspot.com/2013/11/alejandra-mantinan.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Alberto Echagüe", "Juan D'Arienzo"]
 ---
 
 Los milongueros necesitamos, aparte de bailar permanentemente para tener aceitadas las tabas y sentir esa emoción que se escenifica cuando el ritmo de la orquesta nos calienta el cuore y los remos, ver a los buenos bailarines, a los grandes, a los que marcan época, en acción.

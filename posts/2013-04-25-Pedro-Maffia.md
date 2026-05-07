@@ -3,6 +3,7 @@ title: "Pedro Maffia"
 date: "2013-04-25"
 original_url: https://tangosalbardo.blogspot.com/2013/04/pedro-maffia.html
 labels: ""
+tags: ["Luis Petrucelli", "Aníbal Troilo", "Julio De Caro", "Pedro Laurenz", "Enrique Dizeo", "Pedro Maffia"]
 ---
 
 Su nombre impone un antes y un después en la historia del tango. Por todo lo que representó su enorme talento para manejar el bandoneón, y un estilo que fue básico para tantos bandoneonistas que vinieron detrás suyo en el tiempo, como el caso de Aníbal Troilo.

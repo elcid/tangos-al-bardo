@@ -3,6 +3,7 @@ title: "Maruja Pacheco Huergo"
 date: "2013-02-03"
 original_url: https://tangosalbardo.blogspot.com/2013/02/maruja-pacheco-huergo.html
 labels: ""
+tags: ["Francisco Canaro", "Ignacio Corsini", "Hugo del Carril", "Edgardo Donato", "Ángel Vargas"]
 ---
 
 Con decir que es la compositora del bellísimo tango* El adiós*, ya alcanza para presentar a una figura de prestigio en las filas del tango. Sobre todo teniendo en cuenta que lo realizó en 1937, una época en que no era frecuente la presencia de damas en la creación de tangos.

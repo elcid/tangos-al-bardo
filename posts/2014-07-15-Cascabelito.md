@@ -3,6 +3,7 @@ title: "Cascabelito "
 date: "2014-07-15"
 original_url: https://tangosalbardo.blogspot.com/2014/07/cascabelito-tangos-al-bardo.html
 labels: ""
+tags: ["Juan Andrés Caruso", "Francisco Canaro", "Francisco Lomuto", "Carlos Di Sarli", "Azucena Maizani", "Roberto Rufino", "Ada Falcón"]
 ---
 
 Este tango de lunga fama e interminable suceso, nació allá por el año 1923, cuando el alemán-chileno-argentino José Bohr (Yopes Elzer Böhr), lo creó como regalo a un español que tenía un negocio millonario en Punta Arenas (sur de Chile). Lo tituló entonces *Feria franca*.

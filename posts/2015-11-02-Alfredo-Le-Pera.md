@@ -3,6 +3,7 @@ title: "Alfredo Le Pera"
 date: "2015-11-02"
 original_url: https://tangosalbardo.blogspot.com/2015/11/alfredo-le-pera.html
 labels: ""
+tags: ["Mario Battistella", "Alfredo Le Pera", "Julián Centeya", "Carlos Gardel"]
 ---
 
 En mi libro **ABC del Tango-Biografías de grandes figuras,** editado por Corregidor, quise echar un poco de luz sobre la opacada figura de Alfredo Le Pera y hacer justicia con su obra. Y hoy repaso acá dicha nota.

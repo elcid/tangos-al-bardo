@@ -3,6 +3,7 @@ title: "Martín Darré"
 date: "2015-06-10"
 original_url: https://tangosalbardo.blogspot.com/2015/06/martin-darre.html
 labels: ""
+tags: ["Francisco Lomuto", "Julio De Caro", "Mariano Mores", "Héctor Marcó", "Lucio Demare"]
 ---
 
 Hace tiempo que tenía ganas de escribir algo sobre este hombre increíble, a quien conocí en la Academia del Lunfardo, donde me lo presentó Don José Gobello, y con quien charlamos de la gran personalidad de un músico autodidacto que llegó a ser arreglador de orquestas tan disímiles como las de Héctor (Lomuto) y su jazz, la típica de su hermano Francisco o la de Mariano Mores, entre otras, en las que se incluyen las gigantes de Radio El Mundo o la de Dajos Bela y su música europea.

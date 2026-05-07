@@ -3,6 +3,7 @@ title: "Coria Peñaloza"
 date: "2014-02-10"
 original_url: https://tangosalbardo.blogspot.com/2014/02/coria-penaloza.html
 labels: ""
+tags: ["Francisco Canaro", "Ignacio Corsini", "Carlos Gardel"]
 ---
 
 Gracias a los buenos oficios del amigo Ricardo Schoua, puedo reproducir esta invitación al merecidísimo homenaje a un estimado poeta que honra al tango y que escribió los versos de uno de los cinco más conocidos y difundidos en el mundo entero: *Caminito*.

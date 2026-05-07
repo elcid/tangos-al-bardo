@@ -3,6 +3,7 @@ title: "A  fuego lento..."
 date: "2021-01-14"
 original_url: https://tangosalbardo.blogspot.com/2021/01/a-fuego-lento.html
 labels: ""
+tags: ["Leopoldo Federico", "Rodolfo Mederos", "Horacio Salgán", "Agustín Bardi", "Ernesto Baffa"]
 ---
 
 **Rodolfo Mederos, un músico que ha trasvasado las lineas que marcan épocas del tango, me dijo una vez, en medio de una de sus bravatas justificadas y ciertas, con el tono que absorbe quien sabe decir algo bien cierto**: "***Nene, después de Horacio Salgán no pasó nada en el tango***".

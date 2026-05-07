@@ -3,6 +3,7 @@ title: "Los recuerdos de Pichuco (2)"
 date: "2022-06-18"
 original_url: https://tangosalbardo.blogspot.com/2022/06/los-recuerdos-de-pichuco-2.html
 labels: ""
+tags: ["Francisco Fiorentino", "Carlos Di Sarli", "Cátulo Castillo", "Homero Expósito", "Juan D'Arienzo", "Julián Centeya", "Alfredo Gobbi", "Orlando Goñi"]
 ---
 
 ** La primera orquesta**

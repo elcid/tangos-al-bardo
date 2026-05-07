@@ -3,6 +3,7 @@ title: "Homenaje a María Nieves"
 date: "2013-03-29"
 original_url: https://tangosalbardo.blogspot.com/2013/03/homenaje-maria-nieves.html
 labels: ""
+tags: ["Juan Carlos Copes", "María Nieves"]
 ---
 
 En las milongas porteñas suelen ocurrir cosas realmente lindas. Cada capítulo que fuimos escribiendo sobre la pista, es una velada que quedó atrás. Pero la del sábado 9 de este mes de marzo, en el Club Sunderland, fue sumamente especial y emotiva.Porque se convocó a numerosos milongueros para asistir a un homenaje a María Nieves, convertida desde hace tiempo en una leyenda viva del tango.

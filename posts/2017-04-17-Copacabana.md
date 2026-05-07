@@ -3,6 +3,7 @@ title: "Copacabana"
 date: "2017-04-17"
 original_url: https://tangosalbardo.blogspot.com/2017/04/copacabana.html
 labels: ""
+tags: ["Leopoldo Federico", "Osvaldo Pugliese", "José Libertella", "Horacio Salgán", "Julio De Caro", "Luis Stazo"]
 ---
 
 Este paraíso terrenal ubicado en la maravillosa Río de Janeiro, atesora en mi cuore numerosos y gratísimos recuerdos. Igual que le pasó a Julio De Caro en 1927, cuando actuó con su afamado conjunto en el Copacabana Palace, el lujoso hotel de Jorginho Guinle, integrante de la escudería aristocrática de dicha ciudad.

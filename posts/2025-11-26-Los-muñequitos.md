@@ -3,6 +3,7 @@ title: "Los muñequitos"
 date: "2025-11-26"
 original_url: https://tangosalbardo.blogspot.com/2025/11/los-munequitos.html
 labels: ""
+tags: ["Francisco Pracánico", "Enrique Rodríguez", "Carlos Di Sarli", "Roberto Rufino"]
 ---
 
 Título extraño para un tango, aunque algunos, en son de chanza, lo utilizaríamos para definir a aquellos "milongueritos" que se mueven en la pista de un modo llamativo y poco ortodoxo. Siempre existió esa pulla en las barras que concurrían a aquellas milongas tupidas de los años cincuenta. Pero, con el respeto debido y sin hacer ostentación, claro, que era la forma de evitar problemas serios.

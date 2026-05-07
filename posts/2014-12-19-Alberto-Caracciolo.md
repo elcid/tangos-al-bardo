@@ -3,6 +3,7 @@ title: "Alberto Caracciolo"
 date: "2014-12-19"
 original_url: https://tangosalbardo.blogspot.com/2014/12/alberto-caracciolo.html
 labels: ""
+tags: ["Alberto Caracciolo", "Juan Carlos Cobián", "Joaquín Do Reyes", "Enrique Cadícamo", "Azucena Maizani", "Aníbal Troilo", "Jorge Caldara", "Antonio Agri"]
 ---
 
 Tengo ganas de recordar hoy a este maestro del bandoneón, director, arreglador, que dejó su sello en las escasas grabaciones que realizó, en los temas que compuso, en las orquestas de las que formó parte, tanto ejecutando su instrumento como aportando hermosos arreglos. Su hija Nélida está rescatando su memoria y aportando constantemente datos y temas. Como por ejemplo, los de su tango instrumental: *Buenos Aires 2 x 4*, grabado por Caracciolo con su Trío de Tango contemporáneo.

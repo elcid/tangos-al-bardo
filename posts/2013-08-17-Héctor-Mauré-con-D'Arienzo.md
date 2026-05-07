@@ -3,6 +3,7 @@ title: "Héctor Mauré con D'Arienzo"
 date: "2013-08-17"
 original_url: https://tangosalbardo.blogspot.com/2013/08/hector-maure-con-darienzo.html
 labels: ""
+tags: ["Fulvio Salamanca", "Juan D'Arienzo", "Héctor Marcó", "Héctor Mauré"]
 ---
 
 Fue una de las voces emblemáticas en la orquesta de Juan D'Arienzo y dejó 50 temas grabados que son la muestra cabal de su estilo, su timbre de voz cristalino y melódico, no exento de cierto toque de dramatismo, en algunas piezas que así lo exigían.

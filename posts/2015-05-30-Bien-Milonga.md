@@ -3,6 +3,7 @@ title: "Bien Milonga"
 date: "2015-05-30"
 original_url: https://tangosalbardo.blogspot.com/2015/05/bien-milonga_30.html
 labels: ""
+tags: ["Homero Expósito", "Alberto Gómez"]
 ---
 
 Ayer cenamos los ñoquis del 29 y hoy nos preparamos para la milonga del sábado. Igualito que hace 'ta y tantos años. Como diría el gran Homero Expósito, *esta noche estoy de tangos*. Y lo decía en los versos de este gotán al que le puso música Argentino Galván, el hombre de Chivilcoy que terminaría siendo uno de los mejores arregladores de todas las épocas.

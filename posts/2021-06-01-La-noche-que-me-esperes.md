@@ -3,6 +3,7 @@ title: "La noche que me esperes"
 date: "2021-06-01"
 original_url: https://tangosalbardo.blogspot.com/2021/06/la-noche-que-me-esperes.html
 labels: ""
+tags: ["Francisco Canaro", "Osvaldo Pugliese", "Julián Centeya", "Alberto Morán", "Alfredo Gobbi", "José Berón"]
 ---
 
 Vuelven los recuerdos de la pasada juventud y con ellos este valsecito de Juan Canaro que le veíamos y escuchábamos cantar a Alberto Morán con la orquesta de Osvaldo Pugliese cuando íbamos a la milonga del Club Atlético Huracán, donde tantas veladas fueron animadas por el conjunto típico del maestro de Villa Crespo. Esos paisajes primigenios que nunca se borrarían de nuestras memorias. .

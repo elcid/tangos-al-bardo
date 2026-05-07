@@ -3,6 +3,7 @@ title: "Homenaje a Manzi"
 date: "2022-04-28"
 original_url: https://tangosalbardo.blogspot.com/2022/04/homenaje-manzi.html
 labels: ""
+tags: ["José González Castillo", "Celedonio Flores", "Enrique Cadícamo", "Pascual Contursi", "Sebastián Piana", "Julián Centeya", "Edmundo Rivero", "Homero Manzi"]
 ---
 
 No conocí a Homero Manzi pero ahora tengo amigos que lo fueron suyos y gustan deslizar en los recuerdos con palabras y anécdotas que enriquecen la imagen andariega que de adolescente descubrí de soslayo en las calles céntricas.

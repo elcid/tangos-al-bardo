@@ -3,6 +3,7 @@ title: "Chapaleando barro"
 date: "2020-01-12"
 original_url: https://tangosalbardo.blogspot.com/2020/01/chapaleando-barro.html
 labels: ""
+tags: ["Celedonio Flores", "Cátulo Castillo", "Carlos Gardel"]
 ---
 
 Este libro lo lo fue escribiendo con sus poemas Celedonio Flores y se editó en 1929. Para la segunda edición de los versos de este gran vate porteño, Cátulo Castillo le endosó el prólogo que podemos leer a continuación.

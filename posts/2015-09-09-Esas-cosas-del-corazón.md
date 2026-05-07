@@ -3,6 +3,7 @@ title: "Esas cosas del corazón"
 date: "2015-09-09"
 original_url: https://tangosalbardo.blogspot.com/2015/09/esas-cosas-del-corazon.html
 labels: ""
+tags: ["José María Contursi", "Aníbal Troilo", "Héctor Varela", "Mariano Mores"]
 ---
 
 Este es otro de los tangos que van reflejando las vicisitudes del romance entre José María Contursi y Susana Gricel Viganó. La historia es conocida. Ella había nacido en el porteño barrio de San Cristóbal, luego la familia se trasladó a Quilmes y de ahí saltarían a Guaminí, un pueblo que está en el extremo sudoeste de la provincia de Buenos Aires y queda a a casi 500 kilómetros de la Capital.

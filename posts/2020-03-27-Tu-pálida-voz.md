@@ -3,6 +3,7 @@ title: "Tu pálida voz"
 date: "2020-03-27"
 original_url: https://tangosalbardo.blogspot.com/2020/03/tu-palida-voz.html
 labels: ""
+tags: ["Francisco Canaro", "Homero Manzi", "Charlo"]
 ---
 
 Esos dos genios que tuvo el tango en sus filas y que fueron Homero Manzi como poeta magistral, y Charlo, gran cantor y excelente compositor, se unieron en algunas composiciones que siguen guardando ese aura tan especial que distingue a algunas piezas. Los tangos *Llámame, Fueye, Horizontes*, la milonga-candombe *Oro y plata* o este valsecito que crearon en 1942.

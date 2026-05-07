@@ -3,6 +3,7 @@ title: "Tita Merello"
 date: "2015-11-18"
 original_url: https://tangosalbardo.blogspot.com/2015/11/tita-merello.html
 labels: ""
+tags: ["Héctor Varela", "Tita Merello"]
 ---
 
 Es un pedazo grande de la historia del tango, del cine, del teatro,de las revistas porteñas y de la televisión. Su historia personal resume fracasos y logros, amores y desencuentros y una tremenda frustración sentimental que arrastró durante muchos años. Su infancia no fue muy agradable tampoco y quizás estas circunstancias hace que su triunfo artístico, en todas estas facetas citadas, no le alcanzase para disfrutar de la revancha que su alma necesitaba.

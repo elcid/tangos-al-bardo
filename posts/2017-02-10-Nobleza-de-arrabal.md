@@ -3,6 +3,7 @@ title: "Nobleza de arrabal"
 date: "2017-02-10"
 original_url: https://tangosalbardo.blogspot.com/2017/02/nobleza-de-arrabal.html
 labels: ""
+tags: ["Juan Andrés Caruso", "Francisco Canaro", "Osvaldo Pugliese", "Carlos Di Sarli", "Julio De Caro", "Homero Manzi", "José Canet", "Nelly Omar"]
 ---
 
 Este tango de Francisco Canaro va camino de convertirse en centenario, dado que lo estrenó el 8 de octubre de 1919 en el Teatro V*ariedades*, de Plaza Constitución, cuando junto a Juan Andrés Caruso dió el primer paso en lo referente a comedias musicales, que titularía con el mismo nombre y en el cual estrenaría este tango del título y* Sentimiento gaucho*. Caruso le puso versos al tema, pero eran largos, y no llegaron a ser cantados nunca. Al año siguiente Canaro lo graba con su orquesta por vez primera y en forma instrumental. La Compañía argentina de sainetes que encabezaba Felipe Panigazzi fue la encargada de llevarlo a escena, en aquella oportunidad del estreno..

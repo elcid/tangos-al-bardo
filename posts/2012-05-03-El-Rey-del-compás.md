@@ -3,6 +3,7 @@ title: "El Rey del compás"
 date: "2012-05-03"
 original_url: https://tangosalbardo.blogspot.com/2012/05/el-rey-del-compas.html
 labels: ""
+tags: ["Juan D'Arienzo"]
 ---
 
 No me puedo resistir. Cuando me escasea un tanto la energía tanguera recurro a Juan D'Arienzo y su orquesta.

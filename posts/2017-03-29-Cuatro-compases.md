@@ -3,6 +3,7 @@ title: "Cuatro compases"
 date: "2017-03-29"
 original_url: https://tangosalbardo.blogspot.com/2017/03/cuatro-compases.html
 labels: ""
+tags: ["Alberto Castillo", "Ricardo Tanturi", "Miguel Caló", "Raúl Berón"]
 ---
 
 Como lo estuve bailando anoche, una vez más, hoy me desperté con este gotán en la oreja y me cuesta despegármelo, aunque no tengo cera en los oídos, pero sí la huella que te dejan las páginas milongueadas en la pista o que te traquetean de tanto en tanto. Si bien el autor de los versos, Oscar Rubens no fue un poeta refinado, lo cierto es que sus temas tienen gancho, porque además vienen adobados por una música que les sienta de maravilla y elevan la puntería de los versos sencillos pero llegadores.

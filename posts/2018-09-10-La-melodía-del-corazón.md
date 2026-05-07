@@ -3,6 +3,7 @@ title: "La melodía del corazón"
 date: "2018-09-10"
 original_url: https://tangosalbardo.blogspot.com/2018/09/la-melodia-del-corazon.html
 labels: ""
+tags: ["Francisco Canaro", "Alberto Marino", "Edgardo Donato", "Romeo Gavioli"]
 ---
 
 ¡Qué historia arrastra este tango que grabara Edgardo Donato con su orquesta el 30 de abril de 1940 con la voz de Romeo Gavio, y Francisco Canaro con el cantor Francisco Amor diez días más tarde! Está emparejado nada menos que con el gran pianista y compositor polaco Frédéric Chopin. Porque está basado en una de sus obras más célebres: **El estudio Op.10 nº 3 en mi mayor**. También se conoce esta pieza con el nombre de *Tristesse* (Tristeza).

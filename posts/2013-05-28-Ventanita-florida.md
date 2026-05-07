@@ -3,6 +3,7 @@ title: "Ventanita florida"
 date: "2013-05-28"
 original_url: https://tangosalbardo.blogspot.com/2013/05/ventanita-florida.html
 labels: ""
+tags: ["Luis César Amadori", "Libertad Lamarque", "Francisco Canaro", "Enrique Delfino", "Alfredo Le Pera", "Ignacio Corsini", "Néstor Marconi", "Ángel Vargas"]
 ---
 
 Hace unos días incluí en el Blog una grabación del Quinteto Pirincho, dirigido por Oscar Bassil, que tenía en un *mix* los temas: *La cumparsita *y *Ventanita florida*.

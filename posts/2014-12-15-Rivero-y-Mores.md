@@ -3,6 +3,7 @@ title: "Rivero y Mores"
 date: "2014-12-15"
 original_url: https://tangosalbardo.blogspot.com/2014/12/rivero-y-mores.html
 labels: ""
+tags: ["Juan Carlos Copes", "Enrique Cadícamo", "Edmundo Rivero", "Aníbal Troilo", "Mariano Mores", "Homero Manzi"]
 ---
 
 Ya tienen sus estatuas en San Telmo estos dos próceres del tango. Y Marianito cerca de cumplir los 97 años, la ha tenido en vida, lo cual no suele ser muy frecuente, y menos tratándose un hombre del tango.

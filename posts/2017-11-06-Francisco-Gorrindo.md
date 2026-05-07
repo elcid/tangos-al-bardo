@@ -3,6 +3,7 @@ title: "Francisco Gorrindo"
 date: "2017-11-06"
 original_url: https://tangosalbardo.blogspot.com/2017/11/francisco-gorrindo.html
 labels: ""
+tags: ["Francisco Gorrindo", "Enrique Rodríguez", "Alberto Castillo", "Francisco Lomuto", "Ricardo Tanturi", "Azucena Maizani", "Alberto Echagüe", "Mercedes Simone"]
 ---
 
 Este poeta que afincó su obra en el tango, dejó páginas de verdadero impacto popular, y muchas de ellas siguen goteando sobre las calles porteñas. Incluso ahora, con la expansión bailable del género, también abren trocha en temas que orquestas como las de D'Arienzo y Biagi, dejaron buriladas en registros milongueros al mango. Por ello, y aunque su nombre no tenga la resonancia de otros colegas, es importante destacar la fuerza vital de algunos de sus tangos.

@@ -3,6 +3,7 @@ title: "Pompeya no olvida"
 date: "2021-06-30"
 original_url: https://tangosalbardo.blogspot.com/2021/06/pompeya-no-olvida.html
 labels: ""
+tags: ["Eladia Blázquez", "Horacio Ferrer", "José Colángelo", "Raúl Garello"]
 ---
 
 Un mediodía del mes de octubre de 1998, encontró al poeta Alejandro Szwarcman, sentado circunstancialmente en un umbral de las esquinas de Famatina y Cachi, en el barrio de Pompeya. Hasta allí, se llegaron las musas para ayudarlo a imaginar un episodio de los tantos ocurridos en los años del terror de Estado en Argentina (1976/83).

@@ -3,6 +3,7 @@ title: "Jorge Casal"
 date: "2012-07-28"
 original_url: https://tangosalbardo.blogspot.com/2012/07/jorge-casal.html
 labels: ""
+tags: ["Florindo Sassone", "Cátulo Castillo", "Edmundo Rivero", "Aníbal Troilo", "Carlos Gardel", "Jorge Casal"]
 ---
 
 El destino lo hizo nacer en Buenos Aires y convertirse en cantor de tango. De los buenos.

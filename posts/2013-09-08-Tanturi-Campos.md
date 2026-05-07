@@ -3,6 +3,7 @@ title: "Tanturi-Campos"
 date: "2013-09-08"
 original_url: https://tangosalbardo.blogspot.com/2013/09/tanturi-campos.html
 labels: ""
+tags: ["Alberto Castillo", "Ricardo Tanturi", "Enrique Campos"]
 ---
 
 Hoy me levanté milonguero al cuadrado, y me estoy despachando tangos de Ricardo Tanturi con esa orquesta suya que tiene una polenta bailable impresionante. Este hombre estuvo oscurecido por otras grandes formaciones de su época y por eso no se lo valoró en su justa medida, dentro de aquel paraíso perdido. Es cierto que cuando estuvo Alberto Castillo con su estilo rompedor y arrabalero, pero rítmico al mango, la orquesta dio un gran paso al frente en la aceptación popular.

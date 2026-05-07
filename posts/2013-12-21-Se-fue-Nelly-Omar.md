@@ -3,6 +3,7 @@ title: "Se fue Nelly Omar"
 date: "2013-12-21"
 original_url: https://tangosalbardo.blogspot.com/2013/12/se-fue-nelly-omar.html
 labels: ""
+tags: ["José Canet", "Nelly Omar"]
 ---
 
 El tango y el canto nacional argentino están de duelo. A los 102 años falleció la gran Nelly Omar, un símbolo definitivo de la interpretación musical canora. Hoy la quiero recordar y homenajear en este espacio que la tiene entre sus predilectas y en el que ya ha estado presente en algunas oportunidades.

@@ -3,6 +3,7 @@ title: "Carta de Piazzolla a Gardel"
 date: "2023-05-02"
 original_url: https://tangosalbardo.blogspot.com/2023/05/carta-de-piazzolla-gardel.html
 labels: ""
+tags: ["Aníbal Troilo"]
 ---
 
 Buenos Aires, año 1978

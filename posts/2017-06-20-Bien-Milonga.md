@@ -3,6 +3,7 @@ title: "Bien Milonga"
 date: "2017-06-20"
 original_url: https://tangosalbardo.blogspot.com/2017/06/bien-milonga_20.html
 labels: ""
+tags: ["Ismael Spitalnik", "Alberto Echagüe", "Juan D'Arienzo", "Alfredo Gobbi", "Héctor Mauré"]
 ---
 
 Sí, nuestra aquerenciada milonga se llama como el hermoso tango del bandoneonista, arreglador, director y compositor, Ismael Spitalnik. O sea, un nombre bien tanguero y* bien milonga*, porque está armado para el disfrute de los bailarines. Ya sabés que si la música no funca a tono con los milongueros, que son quienes la necesitan para su inspiración, el tono del baile decae y mucho.

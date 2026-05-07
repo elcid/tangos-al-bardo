@@ -3,6 +3,7 @@ title: "Luis Adolfo Sierra"
 date: "2021-06-05"
 original_url: https://tangosalbardo.blogspot.com/2021/06/luis-adolfo-sierra.html
 labels: ""
+tags: ["Juan Carlos Cobián", "Luis Adolfo Sierra", "Francisco Canaro", "Osvaldo Pugliese", "Sebastián Piana", "Ignacio Corsini", "Edmundo Rivero", "Horacio Ferrer"]
 ---
 
 Lo repito una y otra vez: Soy un eterno agradecido a todos aquellos comunicadores que a través de la radio me introdujeron en los vericuetos del tango. De todos ellos fui aprendiendo y nutriéndome tempranamente sobre orquestas, cantores, poetas, compositores. Luego, por supuesto, leí todo lo que pude, tengo una biblioteca importante que versa sobre el género y sigo aprendiendo.

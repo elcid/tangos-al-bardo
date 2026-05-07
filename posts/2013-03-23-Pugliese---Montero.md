@@ -3,6 +3,7 @@ title: "Pugliese - Montero"
 date: "2013-03-23"
 original_url: https://tangosalbardo.blogspot.com/2013/03/pugliese-montero.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Alfredo Gobbi"]
 ---
 
 De vuelta en Madrid, hoy retomo el diálogo diario con mis amigos tangueros del Blog. Tengo muchas cosas que contarles de mis andanzas milongueras por Buenos Aires, pero para arrancar en primera, despacito, vamos poniéndonos en tono con dos versiones del *Negro* Miguel Montero, en la orquesta de Osvaldo Pugliese.

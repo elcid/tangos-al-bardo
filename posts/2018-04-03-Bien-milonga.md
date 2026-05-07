@@ -3,6 +3,7 @@ title: "Bien milonga"
 date: "2018-04-03"
 original_url: https://tangosalbardo.blogspot.com/2018/04/bien-milonga.html
 labels: ""
+tags: ["Alberto Castillo", "Francisco Canaro", "Ricardo Tanturi", "Aníbal Troilo"]
 ---
 
 CANTO PERDURABLE

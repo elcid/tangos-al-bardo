@@ -3,6 +3,7 @@ title: "Francisco Rotundo"
 date: "2013-06-02"
 original_url: https://tangosalbardo.blogspot.com/2013/06/francisco-rotundo.html
 labels: ""
+tags: ["Enrique Santos Discépolo", "José González Castillo", "Libertad Lamarque", "Francisco Rotundo", "Cátulo Castillo", "Hugo del Carril", "Agustín Magaldi", "Edgardo Donato"]
 ---
 
 Músico de buena formación, profesor de piano en el Conservatorio D'Andrea, se dió a conocer al ganar un concurso de orquestas en el Palermo Palace, popular salón de baile situado en la calle Godoy Cruz entre la avenida Santa Fe y Cerviño, en 1944.

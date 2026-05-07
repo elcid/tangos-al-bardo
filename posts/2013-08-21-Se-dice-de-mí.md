@@ -3,6 +3,7 @@ title: "Se dice de mí"
 date: "2013-08-21"
 original_url: https://tangosalbardo.blogspot.com/2013/08/se-dice-de-mi.html
 labels: ""
+tags: ["Juan Andrés Caruso", "Francisco Canaro", "Francisco Lomuto", "Tita Merello", "Ivo Pelay"]
 ---
 
 Esta milonga perteneciente a Francisco Canaro e Ivo Pelay, fue compuesta en 1943 y la grabó el cantor uruguayo Carlos Roldán con la orquesta de Pirincho el 19 de mayo de ese año. Sobre la música de Canaro, el ingenioso Ivo Pelay le adosó unos versos graciosos, especiales para el lucimiento de Roldán, al que este tipo de letras le venían al pelo. En la nota nombra al *Negro* Acosta, que era el jockey Máximo Acosta, gran ídolo popular.

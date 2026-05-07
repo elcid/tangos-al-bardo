@@ -3,6 +3,7 @@ title: "Oscar Alemán"
 date: "2013-01-08"
 original_url: https://tangosalbardo.blogspot.com/2013/01/oscar-aleman.html
 labels: ""
+tags: ["Enrique Cadícamo", "Agustín Magaldi", "Oscar Alemán"]
 ---
 
 La vida de este grande de la música, es digna de una novela de insólitas aventuras. Nació en Machagai, en el Chaco argentino, hijo de una india toba pianista y de un uruguayo negro, Jorge Alemán Moreira, que tocaba la guitarra y formó un conjunto con cuatro de sus hijos, incluidos Oscar y su esposa. Y lo bautizó con su segundo apellido: *Los Moreira*.

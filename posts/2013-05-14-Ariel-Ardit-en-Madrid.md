@@ -3,6 +3,7 @@ title: "Ariel Ardit en Madrid"
 date: "2013-05-14"
 original_url: https://tangosalbardo.blogspot.com/2013/05/ariel-ardit-en-madrid.html
 labels: ""
+tags: ["Roberto Goyeneche", "Héctor Marcó", "Ángel Vargas", "Ariel Ardit"]
 ---
 
 Por fin tendremos la suerte de poder verlo y escucharlo en directo a este gran cantor que merece situar su nombre entre los colosos del cuarenta y cincuenta. Pese a tratarse de un cantor joven, su voz, su estilo han sido escuchados en muchas ciudades del mundo y el domingo 19 de mayo tendremos la oportunidad de disfrutar de esa experiencia en la capital de España.

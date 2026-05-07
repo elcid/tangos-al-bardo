@@ -3,6 +3,7 @@ title: "El último de Pugliese"
 date: "2014-10-22"
 original_url: https://tangosalbardo.blogspot.com/2014/10/el-ultimo-de-pugliese.html
 labels: ""
+tags: ["Libertad Lamarque", "Osvaldo Pugliese", "Hugo del Carril", "Alberto Morán", "Héctor Mauré", "Nelly Omar"]
 ---
 
 Los que tiramos unos cuantos almanaques después de usados, sabemos mucho sobre las vicisitudes que atravesó Osvaldo Pugliese a lo largo de su carrera. Hoy que es una orquesta admirada en el mundo entero, y las interpretaciones y arreglos de su orquesta constituyen un modelo, un ejemplo de lo que puede llegar a ser el tango cuando se lo encara con mucho respeto y sabiduría, nos cuesta entender las persecuciones y prohibiciones que debió soportar. .

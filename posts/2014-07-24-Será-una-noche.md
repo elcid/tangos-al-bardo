@@ -3,6 +3,7 @@ title: "Será una noche"
 date: "2014-07-24"
 original_url: https://tangosalbardo.blogspot.com/2014/07/sera-una-noche.html
 labels: ""
+tags: ["Francisco Canaro", "Osvaldo Pugliese", "Agustín Magaldi", "Mercedes Simone", "Raúl Garello", "Lidia Borda", "José Basso"]
 ---
 
 Este tango forma parte de mis recuerdos íntimos y, a la vez, merece recordarse por algunas grabaciones que se han realizado del mismo, que realzan su belleza. Pertenece al periodista, poeta y director de medios periodísticos, Manuel Ferradás Campos y el pianista, director, y compositor, José Tinelli.

@@ -3,6 +3,7 @@ title: "Paquita Bernardo"
 date: "2018-03-09"
 original_url: https://tangosalbardo.blogspot.com/2018/03/paquita-bernardo.html
 labels: ""
+tags: ["Francisco García Jiménez", "Osvaldo Pugliese", "Carlos Gardel", "Pedro Maffia"]
 ---
 
 Ayer fue el Día Internacional de la Mujer, y se festejó prácticamente en el mundo entero, produciéndose manifestacioines multitudinarias y declaraciones que vale tener en cuenta., y a las cuales, en general, me adhiero porque la mujer merece todos nuestros respetos y porque la historia y la realidad actual no han sido todo lo generosas que debiéramos, con ellas.

@@ -3,6 +3,7 @@ title: "La pulpera de Santa Lucía"
 date: "2014-07-28"
 original_url: https://tangosalbardo.blogspot.com/2014/07/la-pulpera-de-santa-lucia.html
 labels: ""
+tags: ["Ignacio Corsini", "Edmundo Rivero"]
 ---
 
 Este valsecito de Héctor Pedro Blomberg y Enrique Maciel, fue la obra que encumbró definitivamente al cantor Ignacio Corsini. Una pareja despareja, porque Blomberg era alto, rubio de ojos celestes y Maciel, era negro, descendiente de esclavos y dicen que su verdadero apellido era Marshall y lo trajo su abuelo de Estados Unidos. Escritor de fuste el primero, literato, poeta, periodista. Músico de sangre, guitarrista, pianista, compositor, el segundo.

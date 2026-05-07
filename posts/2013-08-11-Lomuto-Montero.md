@@ -3,6 +3,7 @@ title: "Lomuto-Montero"
 date: "2013-08-11"
 original_url: https://tangosalbardo.blogspot.com/2013/08/lomuto-montero.html
 labels: ""
+tags: ["José María Contursi", "Juan Carlos Cobián", "Osvaldo Pugliese", "Francisco Lomuto", "José Libertella", "Mario Demarco", "Pedro Maffia"]
 ---
 
 El Negro Montero fue una de las voces importantes del cincuenta y debutó con la orquesta de Osvaldo Pugliese, a quien lo recomendó el bandoneonista Mario Demarco -que ya lo había tenido en su conjunto- en el Club Atlético Huracán en 1954. Justo el club de mi barrio donde, con la barra, pasamos tantas noches milongueando. Y, por supuesto, ahí estaba yo, firme como estatua.

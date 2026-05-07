@@ -3,6 +3,7 @@ title: "Esta noche de luna"
 date: "2023-03-23"
 original_url: https://tangosalbardo.blogspot.com/2023/03/esta-noche-de-luna.html
 labels: ""
+tags: ["Libertad Lamarque", "Francisco Canaro", "Carlos Di Sarli", "Roberto Rufino", "Julio De Caro", "Héctor Marcó"]
 ---
 
 Héctor Marcó arrancó tempranamente como poeta, compositor, actor, cantor, tenía destino artístico, sin la menor duda. Se llamaba Héctor Domingo Marcolongo, nacido en el porteño barrio de Boedo, vivió con su familia en el interior y ya de vuelta comenzó a merodear los teatros, la radio, escenarios diversos y a conocer gente del ambiente.

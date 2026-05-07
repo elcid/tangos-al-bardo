@@ -3,6 +3,7 @@ title: "Bien Milonga"
 date: "2022-01-23"
 original_url: https://tangosalbardo.blogspot.com/2020/03/bien-milonga_9.html
 labels: ""
+tags: ["Florindo Sassone", "Homero Expósito", "Juan D'Arienzo", "Héctor Mauré"]
 ---
 
 [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg57e1UgFR4Nlohym-qFvkEEM5HwNjE783qt7DlBxHid4NaKp2o3De8HTc5EqauyGpdmK0Lqyn4fZ42wOlpoU_P4v1jiPo5qLNVePwBpzQMlvZB_7SEPaH8hOfRbvpOvAVx8tipacojZ6et/s200/PareLaviruta_milonga_tango_buenosaires.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg57e1UgFR4Nlohym-qFvkEEM5HwNjE783qt7DlBxHid4NaKp2o3De8HTc5EqauyGpdmK0Lqyn4fZ42wOlpoU_P4v1jiPo5qLNVePwBpzQMlvZB_7SEPaH8hOfRbvpOvAVx8tipacojZ6et/s1600/PareLaviruta_milonga_tango_buenosaires.jpg) Me gusta compadrear

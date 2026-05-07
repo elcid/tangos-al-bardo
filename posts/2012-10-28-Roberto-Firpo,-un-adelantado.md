@@ -3,6 +3,7 @@ title: "Roberto Firpo, un adelantado"
 date: "2012-10-28"
 original_url: https://tangosalbardo.blogspot.com/2012/10/roberto-firpo-un-adelantado.html
 labels: ""
+tags: ["Francisco Canaro", "Roberto Firpo"]
 ---
 
 La importancia de Roberto Firpo en el tango es tan grande, que habría que dividir sus méritos por columnas. Fue prácticamente el que introdujo definitivamente al piano en los palcos, a regañadientes de los parroquianos que preferían la guitarra inicial de los tríos de entonces. Incluso el uso del pedal en el piano, que otorga mayor resonancia, fue iniciativa suya dentro del género.

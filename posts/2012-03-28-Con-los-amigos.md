@@ -3,6 +3,7 @@ title: "Con los amigos"
 date: "2012-03-28"
 original_url: https://tangosalbardo.blogspot.com/2012/03/con-los-amigos.html
 labels: ""
+tags: ["Alfredo De Angelis", "Homero Expósito", "Néstor Marconi", "Miguel Caló", "Charlo"]
 ---
 
 Nos reencontramos en Buenos Aires con motivo del viaje que hice para presentar allí mi último libro:* El ABC del Tango-Biografías de grandes figuras* que editó Corregidor. Y son los amigos que el tango me produjo. A la derecha está el gran cantor Roberto Mancini. En el centro la dulce María José Mentana, cantante de enorme valía y larga trayectoria, en toda América y Europa. A Roberto lo conocí cuando tenía 14 años y ganó un concurso de cantores en Parque Patricios. Ya asomaba toda su polenta tanguera que iría confirmando en otro concurso en el Teatro Astral, de donde lo sacaron para llevarlo a una orquesta y de allí saltó a la de Miguel Caló nada menos. Debutaría en Radio El Mundo y al presentarlo Cacho Fontana sintió una emoción enorme.No era para menos. Era la radio de los amantes del tango en la *belle époque*.

@@ -3,6 +3,7 @@ title: " Tango y género: ¿Quién tiene el \"poder?"
 date: "2022-01-22"
 original_url: https://tangosalbardo.blogspot.com/2022/01/tango-y-genero-quien-tiene-el-poder.html
 labels: ""
+tags: ["María Nieves"]
 ---
 
 En el mundo de la milonga hay una discusión recurrente y agotadora basada en el concepto de que el tango es una danza "machista". Para defender tal argumento se suelen sostener, en principio, dos "verdades": que el hombre es el que invita a bailar a la mujer, y que el hombre es el que "dirige" la danza. Me propongo indagar en estas ideas, para buscar caminos de acercamiento e igualdad entre pares, hombres y mujeres.

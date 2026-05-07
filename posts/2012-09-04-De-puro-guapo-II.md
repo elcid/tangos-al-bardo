@@ -3,6 +3,7 @@ title: "De puro guapo II"
 date: "2012-09-04"
 original_url: https://tangosalbardo.blogspot.com/2012/09/de-puro-guapo-ii.html
 labels: ""
+tags: ["Roberto Goyeneche", "Osvaldo Fresedo", "Atilio Stampone", "Ignacio Corsini", "Carlos Gardel"]
 ---
 
 Este tango homónimo del de Laurenz, es anterior. Lo grabó Carlos Gardel con las guitarras de José Ricardo y Guillermo Barbieri en 1928 y pertenece al *Rata* Iriarte (Rafael Yorio) y Juan Carlos Fernández Díaz.

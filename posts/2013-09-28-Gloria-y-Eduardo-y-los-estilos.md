@@ -3,6 +3,7 @@ title: "Gloria y Eduardo y los estilos"
 date: "2013-09-28"
 original_url: https://tangosalbardo.blogspot.com/2013/09/gloria-y-eduardo-y-los-estilos.html
 labels: ""
+tags: ["Pepito Avellaneda", "Osvaldo Pugliese", "Aníbal Troilo", "Osvaldo Zotto", "María Nieves", "Virulazo"]
 ---
 
 Como milonguero, a veces discuto con algunos amigos que me hablan del "*estilo Villa Urquiza"* y lo hacen con gesto de asombro o remarcando aquello de"*tango al piso, pechito contra pechito*". Y yo les digo que éso lo aprendí de chico en mi barrio de Parque Patricios, y era lo primero que te enseñaban los muchachos más grandes. No mostrar las suelas, bien paraditos, elegantes y siguiendo el compás. Por que parece que en lugar de inventarse en mi barrio, como lo dicen varios documentalistas, se hubiese inventado en Villa Urquiza, dicho esto con todo respeto al barrio donde nací, y del que me fui siendo un bebé. Y del que incluso he visitado sus grosas milongas muchas veces.

@@ -3,6 +3,7 @@ title: "Una noche en Marabú"
 date: "2023-01-19"
 original_url: https://tangosalbardo.blogspot.com/2023/01/una-noche-en-marabu.html
 labels: ""
+tags: ["Francisco Fiorentino", "Hugo del Carril", "Horacio Ferrer", "Agustín Bardi"]
 ---
 
 De veras que hace un frío de tiritar: el inviernazo del 37 se ha venido con todo en Buenos Aires.

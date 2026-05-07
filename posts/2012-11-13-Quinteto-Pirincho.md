@@ -3,6 +3,7 @@ title: "Quinteto Pirincho"
 date: "2012-11-13"
 original_url: https://tangosalbardo.blogspot.com/2012/11/quinteto-pirincho.html
 labels: ""
+tags: ["Francisco Canaro"]
 ---
 
 Francisco Canaro dentro de sus limitaciones -tuvo poca cultura, no estudió música, se crió en la extrema miseria- se vió siempre empujado por su ambición de aprender, inventar y arriesgar. Y ahí queda su formidable curriculum, sus casi 7.000 grabaciones, sus revistas musicales, la ristra de temas que compuso, las películas que produjo, su decisiva intervención en la fundación de SADAIC y COMAR. Y el empujón que dió a sus hermanos Juan, Rafael, Humberto y Mario, a quienes les compró un instrumento y los introdujo en el tango para que se ganaran la vida.

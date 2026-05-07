@@ -3,6 +3,7 @@ title: "El Candombe"
 date: "2024-03-29"
 original_url: https://tangosalbardo.blogspot.com/2024/03/el-candombe.html
 labels: ""
+tags: ["Francisco Canaro", "Juan D'Arienzo"]
 ---
 
 El candombe es mucho más que un género musical. Para sus practicantes es una forma de vivir, un estado de ánimo, una cultura. Si bien es original de la actual Angola, de donde fue llevado a Sudamérica durante los siglos XVII y XVIII, por personas que habían sido vendidas como esclavos en los reinos de Kongo, Anziqua, Nyongo, Luango y otros, a traficantes principalmente portugueses, adquirió su actual fisonomía en el Rio de la Plata y zonas aledañas durante los siglos XIX y XX.

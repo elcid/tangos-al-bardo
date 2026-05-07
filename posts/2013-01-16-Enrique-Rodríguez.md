@@ -3,6 +3,7 @@ title: "Enrique Rodríguez"
 date: "2013-01-16"
 original_url: https://tangosalbardo.blogspot.com/2013/01/enrique-rodriguez.html
 labels: ""
+tags: ["Enrique Rodríguez", "Celedonio Flores", "Enrique Cadícamo", "Edgardo Donato", "Charlo"]
 ---
 
 Un caso notable es el de este bandoneonista y director de orquesta, que ha conseguido revivir en el gusto de los milongueros de todas partes, después de que en su época no mereciera el mismo aprecio.

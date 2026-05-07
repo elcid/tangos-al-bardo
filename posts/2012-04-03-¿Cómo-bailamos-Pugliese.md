@@ -3,6 +3,7 @@ title: "¿Cómo bailamos Pugliese?"
 date: "2012-04-03"
 original_url: https://tangosalbardo.blogspot.com/2012/04/como-bailamos-pugliese.html
 labels: ""
+tags: ["Osvaldo Pugliese"]
 ---
 
 Hay muchos milongueros de ambos sexos que le "temen" a Don Osvaldo. Mayoritariamente son aquellos que padecen de *sordera* musical y están más pendientes de sus figuras, que del ritmo que marca la orquesta. Algunos directamente se quedan sentados, ante lo que ellos suponen un intríngulis bailable.

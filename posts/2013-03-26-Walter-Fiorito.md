@@ -3,6 +3,7 @@ title: "Walter Fiorito"
 date: "2013-03-26"
 original_url: https://tangosalbardo.blogspot.com/2013/03/walter-fiorito.html
 labels: ""
+tags: ["José María Contursi", "Jorge Dragone", "Osmar Maderna", "Miguel Caló"]
 ---
 
 Este cantor debió tener mayor proyección en su momento, pero los avatares de la vida fueron marcando su derrotero artístico y vital.

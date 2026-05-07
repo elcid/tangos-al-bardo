@@ -3,6 +3,7 @@ title: "El bar del Morocho y el Oriental"
 date: "2026-04-22"
 original_url: https://tangosalbardo.blogspot.com/2026/04/el-bar-del-morocho-y-el-oriental.html
 labels: ""
+tags: ["Enrique Cadícamo", "Francisco Canaro", "Eduardo Arolas", "Edmundo Rivero", "Aníbal Troilo", "Carlos Gardel", "Agustín Bardi", "Floreal Ruiz"]
 ---
 
 ## Historias del café Roma, de Olavarría y Almirante Brown, La Boca, donde se presentaron Carlos Gardel y José Razzano.

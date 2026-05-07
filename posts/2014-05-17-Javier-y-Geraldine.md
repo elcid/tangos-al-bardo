@@ -3,6 +3,7 @@ title: "Javier y Geraldine"
 date: "2014-05-17"
 original_url: https://tangosalbardo.blogspot.com/2014/05/javier-y-geraldine.html
 labels: ""
+tags: ["Francisco Canaro", "Juan D'Arienzo"]
 ---
 
 No puedo con la tentación. Me *piacce tantissimo* traer seguido a estas páginas a la ex pareja Javier y Geraldine para solazarme y permitir que aquellos que siguen al Blog y están tirando los primeros pasos puedan admirar la elegancia, el *savoir faire* que destilaban estos dos grandes, cuando eran chicos, o sea más jóvenes y formaban pareja.

@@ -3,6 +3,7 @@ title: "A una mujer"
 date: "2015-07-03"
 original_url: https://tangosalbardo.blogspot.com/2015/07/a-una-mujer.html
 labels: ""
+tags: ["Vicente Demarco", "Arturo De Bassi", "Juan D'Arienzo", "Horacio Salgán", "José Colángelo", "Roberto Firpo", "Raúl Garello"]
 ---
 
 Elegí este valsecito de Horacio Salgán y Antonio Volpe por el hecho de que fuera la orquesta de Juan D'Arienzo, quien grabara en primera instancia el tema, con el cantor Alberto Reynal, el 17 de mayo de 1940. Y claro, los estilos de Salgán y D'Arienzo, eran tan disímiles, e incluso marcados como tal por público y críticos, que era natural que el disco sorprendiera a la gente especializada.

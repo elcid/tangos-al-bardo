@@ -3,6 +3,7 @@ title: "Recordando a Carlos Di Sarli"
 date: "2017-10-14"
 original_url: https://tangosalbardo.blogspot.com/2017/10/recordando-carlos-di-sarli.html
 labels: ""
+tags: ["Osvaldo Fresedo", "Carlos Di Sarli", "Aníbal Troilo", "Julio De Caro", "Julián Plaza"]
 ---
 
 En en el mes de agosto de 1994, la revista *La Maga*, publicó una edición especial que tituló: **Homenaje al tango**. En la misma se pueden ver tres artículos de personas, que en varios momentos estuvieron ligados al maestro Carlos Di Sarli. Y creo que vale la pena volver a repasar dichos comentarios que nos permiten tener una aproximación a todo lo que representó en el tango, el maestro de Bahía Blanca. Sus grabaciones se bailan hoy día en casi todo el mundo, gracias al desarrollo del tango y las milongas donde se lo baila.

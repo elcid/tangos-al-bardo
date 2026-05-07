@@ -3,6 +3,7 @@ title: "Sin pisar el Polito"
 date: "2020-04-19"
 original_url: https://tangosalbardo.blogspot.com/2020/04/sin-pisar-el-polito.html
 labels: ""
+tags: ["José María Otero", "Charlo"]
 ---
 
 En estos días de confinamiento, encerrados por el Cobián 19, bullen los recuerdos en mi Cucuza Castiello y acodado en el Bahr casero, me mando el Basso de Bermúdez diario, y me toco la Pansera engrosada por esta Racciati fulera, Sosa, intentando apurar los Díaz que vienen Malerba. De todos modos, a las Ochoa en punto, Stamponi mi aplauso al personal sanitario, que me sale del Pacho. Sé que la Famá es puro cuento, pero Del Carril de la memoria tanguera, tirando de la Piazzolla, recuerdo tanto Biagi: Demare, Montes, Rivera, Arenas, Lagos, el paseo Marino, Larroca, el Castillo Do Reyes, Campos…

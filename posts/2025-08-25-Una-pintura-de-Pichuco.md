@@ -3,6 +3,7 @@ title: "Una pintura de Pichuco"
 date: "2025-08-25"
 original_url: https://tangosalbardo.blogspot.com/2025/08/una-pintura-de-pichuco.html
 labels: ""
+tags: ["José María Otero", "Homero Manzi"]
 ---
 
 <iframe src="https://www.youtube.com/embed/5ocsfDVG6SQ"></iframe>

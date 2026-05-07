@@ -3,6 +3,7 @@ title: "Los Bailarines de Tango -"
 date: "2020-04-11"
 original_url: https://tangosalbardo.blogspot.com/2020/04/los-bailarines-de-tango-un-homenaje-al.html
 labels: ""
+tags: ["Juan Carlos Copes", "María Nieves"]
 ---
 
 **Un homenaje al vértigo**

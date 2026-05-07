@@ -3,6 +3,7 @@ title: "BIEN MILONGA"
 date: "2019-05-28"
 original_url: https://tangosalbardo.blogspot.com/2019/05/bien-milonga_28.html
 labels: ""
+tags: ["Juan D'Arienzo", "Daniel Binelli"]
 ---
 
 *El tango es el tango... no hay vuelta que darle*

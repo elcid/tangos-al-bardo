@@ -3,6 +3,7 @@ title: "Juan Cambareri"
 date: "2014-02-14"
 original_url: https://tangosalbardo.blogspot.com/2014/02/juan-cambareri.html
 labels: ""
+tags: ["Roberto Firpo", "Pedro Laurenz"]
 ---
 
 ¡Qué palizas le pegaba al fueye este muchacho rionegrino, que a los 6 años ya estaba con sus padres instalado en en barrio porteño de Balvanera, masticando tangos! Mi hermano era fana de él y lo acompañé un par de veces a radio Belgrano y a Porteña, para escucharlo. Y juro que me impresionaba ver su fabulosa digitación en el fueye.

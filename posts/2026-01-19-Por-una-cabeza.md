@@ -3,6 +3,7 @@ title: "Por una cabeza"
 date: "2026-01-19"
 original_url: https://tangosalbardo.blogspot.com/2026/01/por-una-cabeza.html
 labels: ""
+tags: ["Alfredo Le Pera", "Carlos Gardel"]
 ---
 
 Terig Tucci fue un notable músico argentino que acompañó con su orquesta a Carlos Gardel en las películas que filmó en Nueva York. También le transcribió al papel la música que creaba Carlos, y relataba así el nacimiento del ahora popularísimo: "*Por una cabeza": *

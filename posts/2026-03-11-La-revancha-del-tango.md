@@ -3,6 +3,7 @@ title: "La revancha del tango"
 date: "2026-03-11"
 original_url: https://tangosalbardo.blogspot.com/2026/03/la-revancha-del-tango.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Astor Piazzolla", "Aníbal Troilo", "Carlos Gardel"]
 ---
 
 A 40 años del mítico show de Pugliese en el Colón.

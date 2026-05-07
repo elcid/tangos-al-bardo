@@ -3,6 +3,7 @@ title: "Carlos Di Sarli: El Señor del Tango. Documental"
 date: "2015-09-16"
 original_url: https://tangosalbardo.blogspot.com/2015/09/carlos-di-sarli-el-senor-del-tango.html
 labels: ""
+tags: ["Juan Carlos Cobián", "Carlos Di Sarli"]
 ---
 
 Hoy tenemos este regalito. Una película documental realizada por Pablo Stafforini, donde podemos recrear la vida de Don Carlos Di Sarli, un músico que llegó a la Capital desde Bahía Blanca, para intentar desarrollar sus capacidades y llegó a dirigir una gran orquesta que no sólo enalteció al tango y fue unánimemente reconocido por sus pares, sino que sigue siendo fundamental para engalanar las milongas de todo el mundo.

@@ -3,6 +3,7 @@ title: "Héctor Varela y la Tita"
 date: "2012-09-17"
 original_url: https://tangosalbardo.blogspot.com/2012/09/hector-varela-y-la-tita.html
 labels: ""
+tags: ["Juan D'Arienzo", "Héctor Varela", "Carlos Waiss", "Tita Merello", "Héctor Marcó"]
 ---
 
 Este eximio bandoneonista emigró de la orquesta de Juan D'Arienzo, donde estuvo en dos oportunidades. La primera en 1934 y después entre 1940 y 1950, ya como primer fueye de la cotizada orquesta del *Rey del compá*s. A la vez era arreglador de la misma y compuso temas que tuvieron mucho tirón: *No mientas* ( con A. Lattero y Héctor Marcó), *Lilián, Bandera baja, Chichipía, Bien pulenta, Don Alfonso, Si supieras que la extraño, Cruz Maidana*, entre ellos, algunos en colaboración con el propio D'Arienzo y generalmente con letra de Carlos Waiss.

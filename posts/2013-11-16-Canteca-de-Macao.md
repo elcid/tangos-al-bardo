@@ -3,6 +3,7 @@ title: "Canteca de Macao"
 date: "2013-11-16"
 original_url: https://tangosalbardo.blogspot.com/2013/11/canteca-de-macao.html
 labels: ""
+tags: ["Sebastián Piana", "Homero Manzi"]
 ---
 
 Se trata de un conjunto español, bastante revolucionario que nació en 2003 y es tan heterogéneo y multicisciplinar musicalmente, que llama la atención por su nombre en primer término y luego con su repertorio, los atuendos de sus integrantes y el sonido que extraen de sus instrumentos, entre los nueve integrantes del conjunto y las voces.

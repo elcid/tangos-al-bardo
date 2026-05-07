@@ -3,6 +3,7 @@ title: " Marino con Caló"
 date: "2013-08-02"
 original_url: https://tangosalbardo.blogspot.com/2013/08/marino-con-calo.html
 labels: ""
+tags: ["José María Contursi", "Francisco Canaro", "Alberto Marino", "Aníbal Troilo", "Alfredo Gobbi", "Miguel Caló", "Carlos Bahr", "Charlo"]
 ---
 
 Alfredo Gobbi le endosó el eslogan "*La voz de oro del tango*", y efectivamente, cuando se alista en la triunfadora orquesta de Aníbal Troilo en los años cuarenta, mereció largamente el concepto que le quedó impregnado a su nombre. Alberto Marino fue uno de los grandes vocalistas que ha tenido el tango en su historia. Sabio intérprete de las letras que le proponían, oreja precisa para captar la sugerencia musical y gola, mucha gola para expresarse.

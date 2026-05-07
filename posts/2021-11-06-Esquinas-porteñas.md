@@ -3,6 +3,7 @@ title: "Esquinas porteñas"
 date: "2021-11-06"
 original_url: https://tangosalbardo.blogspot.com/2021/11/esquinas-portenas.html
 labels: ""
+tags: ["Cátulo Castillo", "Ignacio Corsini", "Sebastián Piana", "Mercedes Simone", "Homero Manzi", "Ángel Vargas"]
 ---
 
 El día que Cátulo Castillo le presenta a Sebastián Piana "*un muchacho que escribe lindos versos*", no sólo sirvió para que entre ambos le pusieran música a un tema del vecino de Cátulo, titulado *"El ciego del violín"*, sino que finalmente se llamaría *Viejo ciego* y le abriría las puertas del tango al santiagueño Homero Manzi, que en ese año 1926, tenía apenas 19 años. Lo estrenó Roberto Fugazot en el Teatro Nuevo.

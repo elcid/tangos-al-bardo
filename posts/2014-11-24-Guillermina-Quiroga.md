@@ -3,6 +3,7 @@ title: "Guillermina Quiroga"
 date: "2014-11-24"
 original_url: https://tangosalbardo.blogspot.com/2014/11/guillermina-quiroga.html
 labels: ""
+tags: ["Osvaldo Zotto", "María Nieves", "Julio Sosa"]
 ---
 
 Clavel del aire, muchacha de La Plata

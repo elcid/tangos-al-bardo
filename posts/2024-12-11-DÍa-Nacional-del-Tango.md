@@ -3,6 +3,7 @@ title: "DÍa Nacional del Tango"
 date: "2024-12-11"
 original_url: https://tangosalbardo.blogspot.com/2024/12/dia-nacional-del-tango_11.html
 labels: ""
+tags: ["Alfredo Le Pera", "Carlos Gardel", "Julio De Caro"]
 ---
 
 Cada **11 de diciembr**e, en nuestro país se celebra el **Día Nacional del Tango**, una de las expresiones artísticas más típicas de nuestro país -y especialmente de nuestra Ciudad-, que además de música aúna la danza y la poesía.

@@ -3,6 +3,7 @@ title: "Cuestionario a Troilo y Piazzolla"
 date: "2019-01-21"
 original_url: https://tangosalbardo.blogspot.com/2019/01/como-pensaban-troilo-y-piazzolla.html
 labels: ""
+tags: ["Astor Piazzolla", "Aníbal Troilo"]
 ---
 
 Trabajé en la revista **Extra **como secretario de redacción poco tiempo. Bernardo Neustad quería que yo dirigiera la revista y le fue a pedir permiso a Laiño, el alma máter de "La Razón" para que yo pudiera trabajar con él. Estuve poco tiempo pero dejé algunas notas que hicieron mucho ruido, como la que traté sobre la masacre de José Léon Suárez. Después me enteré de muchas cosas y decidí dejar la revista, aunque con Irma Roy y Neustad coincidimos dirigiendo un problema en Canal 9: Pálpitos.      Creo que vale la pena recordar este reportaje que les hizo Neustadt a Troilo y Piazzolla en dicha revista:      Entrevista a Astor Piazzola y Aníbal Troilo

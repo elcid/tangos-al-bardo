@@ -3,6 +3,7 @@ title: "Octeto Buenos Aires"
 date: "2012-03-30"
 original_url: https://tangosalbardo.blogspot.com/2012/03/octeto-buenos-aires.html
 labels: ""
+tags: ["Juan Carlos Cobián", "Leopoldo Federico", "Horacio Malvicino", "Astor Piazzolla", "José Bragato"]
 ---
 
 En una oportunidad llevé a Astor Piazzolla al programa que teníamos en Radio Argentina los domingos a la mañana con Osvaldo Papaleo. Como yo armaba la música, llevé varios CD del marplatense con el fin de ir matizando la entrevista.

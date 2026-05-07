@@ -3,6 +3,7 @@ title: "Ataque Pugliese"
 date: "2014-08-06"
 original_url: https://tangosalbardo.blogspot.com/2014/08/ataque-pugliese.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Eduardo Arolas", "Aníbal Troilo", "Alfredo Gobbi", "Pedro Maffia"]
 ---
 
 Hoy me dió un "ataque Pugliese". Pongo varios temas del troesma de Villa Crespo y los cables que conducen la sangre al cuore comienzan a alterarse y a nostalgiar vivencias de esas que se atascan en el alma. Además estuve chamuyando con Beba, la hija de Don Osvaldo, Roberto Mancini, gran cantor me mandó unas fotos y comienzo a desclavar de las paredes los recuerdos que me acercan a esa orquesta que sigue vivita y coleando en todas las discotecas del mundo que huelan a tango.

@@ -3,6 +3,7 @@ title: "Toda mi vida"
 date: "2013-05-16"
 original_url: https://tangosalbardo.blogspot.com/2013/05/toda-mi-vida.html
 labels: ""
+tags: ["Francisco Fiorentino", "José María Contursi", "Pascual Contursi", "Osvaldo Pugliese", "Aníbal Troilo", "Mariano Mores", "Orlando Goñi"]
 ---
 
 Esta belleza de tango la escribió José María Contursi cuando tenía 29 años y la musicalizó Aníbal Troilo a sus 27 años. Está dedicado por el poeta a su amada Grisel.

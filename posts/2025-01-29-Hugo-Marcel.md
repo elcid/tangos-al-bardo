@@ -3,6 +3,7 @@ title: "Hugo Marcel"
 date: "2025-01-29"
 original_url: https://tangosalbardo.blogspot.com/2025/01/hugo-marcel.html
 labels: ""
+tags: ["Leopoldo Federico", "Osvaldo Fresedo", "Carlos Di Sarli", "Cátulo Castillo", "Roberto Rufino", "Miguel Caló", "Charlo"]
 ---
 
 ![Hugo Marcel](https://www.magicasruinas.com.ar/revistero/argentina/hugomarcel.jpg)

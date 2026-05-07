@@ -3,6 +3,7 @@ title: "BIEN MILONGA"
 date: "2020-02-11"
 original_url: https://tangosalbardo.blogspot.com/2020/02/bien-milonga_11.html
 labels: ""
+tags: ["Alberto Echagüe", "Juan D'Arienzo"]
 ---
 
 A tango limpio, nada más

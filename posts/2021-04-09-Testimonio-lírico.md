@@ -3,6 +3,7 @@ title: "Testimonio lírico"
 date: "2021-04-09"
 original_url: https://tangosalbardo.blogspot.com/2021/04/testimonio-lirico.html
 labels: ""
+tags: ["Astor Piazzolla"]
 ---
 
 TESTIMONIO LÍRICO

@@ -3,6 +3,7 @@ title: "Juan Carlos Copes"
 date: "2017-06-10"
 original_url: https://tangosalbardo.blogspot.com/2017/06/juan-carlos-copes.html
 labels: ""
+tags: ["Juan Carlos Copes"]
 ---
 
 **"**Tiempo de Tango" **gran finale con J.C. Copes e M.A. Zotto. Milano. Teatro Arcimboldi, 6-6-2015**[    ](https://www.youtube.com/user/Callassino)

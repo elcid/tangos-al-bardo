@@ -3,6 +3,7 @@ title: "Manzi en valsecitos"
 date: "2014-07-27"
 original_url: https://tangosalbardo.blogspot.com/2014/07/manzi-en-valsecitos.html
 labels: ""
+tags: ["Francisco Lomuto", "Francisco Canaro", "Carlos Di Sarli", "Sebastián Piana", "Homero Manzi", "Nelly Omar", "Charlo"]
 ---
 
 El primer vals porteño lo compuso Homero Manzi (Homero Nicolás Manzione), cuando tenía apenas 14 años. Lo tituló ingenuamente: *¿Porqué no me besas?*. El autor de la música fue un bandoneonista de Boedo, muy querido en el ambiente, Francisco Caso, aunque le pusieran el seudónimo increíble de *Basura*.

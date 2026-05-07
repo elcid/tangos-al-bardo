@@ -3,6 +3,7 @@ title: "El Quijote es Gardel"
 date: "2015-06-18"
 original_url: https://tangosalbardo.blogspot.com/2015/06/el-quijote-es-gardel.html
 labels: ""
+tags: ["Horacio Ferrer", "Edmundo Rivero", "Roberto Grela"]
 ---
 
 Vale la pena recrear esta nota que escribió Pablo Calvo para la revista VIVA y que nos presenta la traducción por parte de la Academia del Lunfardo del capítulo final de la obra de Cervantes, dándole un tono porteño único y desopilante. "*Fané y descangayado*", el caballero andante se despide del mundo hablando como un compadrito.

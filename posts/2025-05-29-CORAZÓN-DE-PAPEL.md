@@ -3,6 +3,7 @@ title: "CORAZÓN DE PAPEL"
 date: "2025-05-29"
 original_url: https://tangosalbardo.blogspot.com/2025/05/corazon-de-papel.html
 labels: ""
+tags: ["José González Castillo", "Roberto Goyeneche", "Aníbal Troilo", "Carlos Gardel", "Floreal Ruiz"]
 ---
 
 Es curioso que un tango que ha tenido el éxito de las piezas que perduran en el recuerdo y la emotividad de los que bucean en estos temas para interpretarlos, haya sido el único que pergeñó el poeta autor de los versos. Por cierto, un poeta de calibre que mostró sus dotes en libros como "*Kermese*", realizado en 1930, o "*El tañedor*", que le valió el "**Premio Nacional de Literatura**" en 1939.

@@ -3,6 +3,7 @@ title: "Fantasmas del cuarenta"
 date: "2016-11-24"
 original_url: https://tangosalbardo.blogspot.com/2016/11/fantasmas-del-cuarenta.html
 labels: ""
+tags: ["Carlos Di Sarli", "Juan D'Arienzo", "Aníbal Troilo", "Alfredo Gobbi", "Homero Manzi"]
 ---
 
 Hoy me toca traer a la página este tango que hicimos con Juan Antonio Morteo, pianista, director, compositor y que canta el popular Guillermo Galvé. Lo acompaña el cuarteto que dirige *Juanchi *Morteo -autor de la música- y forman en el conjunto figuras de primer nivel, como el bandoneonista Lautaro Greco, el violinista Miguel Ángel Bertero y el contrabajista Horacio Cabarcos.

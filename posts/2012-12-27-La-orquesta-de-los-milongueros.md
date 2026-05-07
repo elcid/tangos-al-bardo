@@ -3,6 +3,7 @@ title: "La orquesta de los milongueros"
 date: "2012-12-27"
 original_url: https://tangosalbardo.blogspot.com/2012/12/la-orquesta-de-los-milongueros.html
 labels: ""
+tags: ["Enrique Cadícamo", "Osvaldo Fresedo", "Carlos Di Sarli", "Alberto Podestá", "Roberto Rufino", "Raúl Kaplún"]
 ---
 
 Sin duda alguna, la orquesta de Di Sarli fue la menos discutida de todas, la que aceptaron gustosamente las hinchadas de D'Arienzo, Pugliese, Troilo y demás conjuntos del cuarenta y cincuenta, como maravillosamente milonguera.

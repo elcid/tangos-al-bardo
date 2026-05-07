@@ -3,6 +3,7 @@ title: "Buenos Aires tiempo Gobbi"
 date: "2023-06-01"
 original_url: https://tangosalbardo.blogspot.com/2023/06/buenos-aires-tiempo-gobbi.html
 labels: ""
+tags: ["Carlos Di Sarli", "Cátulo Castillo", "Julio Camilloni", "Julián Centeya", "Alfredo Gobbi"]
 ---
 
 Volver a mi querido Alfredo Gobbi, uno de los músicos más importantes que nos ha dado el tango, y aún no reconocido en su verdadera dimensión. Alfredo fue mucho más que el tonto apodo de "*El violín romántico del tango*". Gobbi, además de gran instrumentista del violín, tocaba ocho instrumentos, sobresalía en el piano, el armonio y otros.

@@ -3,6 +3,7 @@ title: "Los Posadas"
 date: "2014-09-29"
 original_url: https://tangosalbardo.blogspot.com/2014/09/los-posadas.html
 labels: ""
+tags: ["Carlos Di Sarli", "Aníbal Troilo", "Miguel Zotto"]
 ---
 
 Siempre he defendido, en mis libros y en páginas del Blog en otra colaboraciones, que el Tango fue creado por los negros argentinos, descendientes de esclavos, y que aportaron a la vez muchas palabras a la lengua local, incluido el nombre de esta danza-música: *Tango*. Y sigo creyendo con total firmeza en la afirmación, aunque se pretenda *blanquear* sin mayores documentos ni prueba alguna, el origen de nuestra música nacional.

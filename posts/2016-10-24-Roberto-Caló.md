@@ -3,6 +3,7 @@ title: "Roberto Caló"
 date: "2016-10-24"
 original_url: https://tangosalbardo.blogspot.com/2016/10/roberto-calo.html
 labels: ""
+tags: ["Osvaldo Fresedo", "Roberto Rufino", "Eduardo Arolas", "Enrique Campos", "Homero Manzi", "Carlos Dante", "Charlo"]
 ---
 
 Fue uno más de la dinastía creada por el matrimonio de José Caló y Natalia Pantano. Los criaron a sus 16 hijos en el barrio porteño de Balvanera, por donde anduvieron los Canaro y tantos tangueros que anclaron con fuerza en la historia de este género musical. Roberto, que fue el tercero de la prole, con su pinta de galán, si bien estudió música, arrancaría como cantor, algo muy típico en una ciudad poblada de supuestos sucesores de Gardel y que tenía como vecino a Carlos Dante.

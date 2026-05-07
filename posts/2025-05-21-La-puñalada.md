@@ -3,6 +3,7 @@ title: "La puñalada"
 date: "2025-05-21"
 original_url: https://tangosalbardo.blogspot.com/2025/05/la-punalada.html
 labels: ""
+tags: ["Francisco García Jiménez", "Feliciano Brunelli", "Libertad Lamarque", "Celedonio Flores", "Francisco Canaro", "Ricardo Tanturi", "Sebastián Piana", "Enrique Campos"]
 ---
 
 Ya he escrito en otra oportunidad, la historia de esta milonga de Horacio Antonio Castellanos, el músico uruguayo que firmaba sus obras como Pintín Castellanos. Juan D'Arienzo con su orquesta la grabaría en 4 oportunidades (1937, 1943, 1951 y 1963). El disco de 78*rpm* que tenía en la otra cara *La cumparsita* batió todos los récords de venta, nada menos que 18 millones de placas.

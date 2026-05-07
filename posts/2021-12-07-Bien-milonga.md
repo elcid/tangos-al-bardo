@@ -3,6 +3,7 @@ title: "Bien milonga"
 date: "2021-12-07"
 original_url: https://tangosalbardo.blogspot.com/2021/12/bien-milonga.html
 labels: ""
+tags: ["Juan D'Arienzo"]
 ---
 
 Silenciosos van los dos y de amor habla la voz de la orquesta en sus floreos... Viejas quejas de pasión renovando parejas con este son.

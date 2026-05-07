@@ -3,6 +3,7 @@ title: "La música milonguera"
 date: "2022-03-31"
 original_url: https://tangosalbardo.blogspot.com/2022/03/la-musica-de-las-milongas.html
 labels: ""
+tags: ["Luis Adolfo Sierra", "Eduardo Del Piano", "Alberto Castillo", "Ricardo Tanturi", "Eduardo Arolas", "Enrique Campos", "Juan D'Arienzo", "Aníbal Troilo"]
 ---
 
 Anoche estaba conversando de temas milongueros con un amigo argentino que recorre las pistas madrileñas y surgió el tema de la música que alienta el alma de los bailarines de ambos sexos. En ese sentido, a mí me llama la atención que algunos asistentes a *Bien Milonga* me digan que la música que pasamos es muy buena.

@@ -3,6 +3,7 @@ title: "Señores yo soy del centro"
 date: "2015-12-12"
 original_url: https://tangosalbardo.blogspot.com/2015/12/senores-yo-soy-del-centro.html
 labels: ""
+tags: ["Carlos Di Sarli", "Teófilo Ibáñez"]
 ---
 
 Esta milonguita de Armando Baliotti y Santiago Adamini, ilumina el centro de Buenos Aires, donde el tango sentó sus bazas ganadoras. Ya fuese en los cafés iniciales de la calle Corrientes, como en los posteriores cabarets o las Confiterías bailables que tanto juego le dieron a los milongueros de los años cuarenta y cincuenta. Lo canta maravillosamente, fiel a su estilo, Angelito Vargas con la orquesta de Ángel D'Agostino y hoy nos ilumina la página de** BIEN MILONGA**.

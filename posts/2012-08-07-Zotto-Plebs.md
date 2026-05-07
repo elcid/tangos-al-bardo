@@ -3,6 +3,7 @@ title: "Zotto-Plebs"
 date: "2012-08-07"
 original_url: https://tangosalbardo.blogspot.com/2012/08/zotto-plebs.html
 labels: ""
+tags: ["Daniel Binelli", "María Nieves", "Virulazo"]
 ---
 
 Ha corrido mucha agua bajo los puentes...del tango.

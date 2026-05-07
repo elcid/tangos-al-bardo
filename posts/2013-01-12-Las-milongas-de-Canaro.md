@@ -3,6 +3,7 @@ title: "Las milongas de Canaro"
 date: "2013-01-12"
 original_url: https://tangosalbardo.blogspot.com/2013/01/las-milongas-de-canaro.html
 labels: ""
+tags: ["Francisco Canaro"]
 ---
 
 Son las ideales para lucirse en la pista. Es indudable que hay numerosas milongas que uno elegiría para bailarlas en un momento que nos brota la inspiración por todos los poros de la piel, pero Canaro grabó muchas instrumentales que resumen y rezuman, lo que el milonguero necesita.

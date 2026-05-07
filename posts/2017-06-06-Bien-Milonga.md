@@ -3,6 +3,7 @@ title: "Bien Milonga"
 date: "2017-06-06"
 original_url: https://tangosalbardo.blogspot.com/2017/06/bien-milonga.html
 labels: ""
+tags: ["Alberto Castillo", "Francisco Lomuto", "Ricardo Tanturi", "Aníbal Troilo", "Manuel Romero"]
 ---
 
 Noche milonguera, con un clima que invita a la salida, máxime si te espera un ambiente bien milonga, con una pista ideal para bordar figuras y una música que te inspira. Así son los martes en la Casa de Aragón de Madrid, sita en la Plaza República Argentina nº6. Hasta en este último detalle asoma el tango, nacido en el suburbio que hoy reina en todo el mundo, como escribía Manuel Romero, que además de poeta y director de cine y teatro, era un gran milonguero.

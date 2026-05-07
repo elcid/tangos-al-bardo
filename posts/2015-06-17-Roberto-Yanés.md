@@ -3,6 +3,7 @@ title: "Roberto Yanés"
 date: "2015-06-17"
 original_url: https://tangosalbardo.blogspot.com/2015/06/roberto-yanes.html
 labels: ""
+tags: ["Osvaldo Fresedo", "Roberto Yanés", "Homero Manzi"]
 ---
 
 Este cantante cordobés triunfó en toda América interpretando boleros y baladas, con un nivel óptimo y un magnífico manejo de las situaciones planteadas por la poesía de dichas canciones. Se llama Roberto César Iannacone y desde niño, por influencias de un tío que había sido músico de nota, estudió piano y canto, trabajando a la vez en compañías infantiles. En ellas hacía un poco de todo, porque ya se vislumbraban en él las condiciones que le permitirían dedicarse al mundo artístico.

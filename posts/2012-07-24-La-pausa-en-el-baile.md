@@ -3,6 +3,7 @@ title: "La pausa en el baile"
 date: "2012-07-24"
 original_url: https://tangosalbardo.blogspot.com/2012/07/la-pausa-en-el-baile.html
 labels: ""
+tags: ["Osvaldo Zotto"]
 ---
 
 Lo hablábamos días pasados con un amigo milonguero. Me llama la atención la urgencia con que bailan en Madrid algunas parejas, como si corrieran detrás de la liebre mecánica.

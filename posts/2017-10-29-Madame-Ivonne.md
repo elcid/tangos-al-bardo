@@ -3,6 +3,7 @@ title: "Madame Ivonne"
 date: "2017-10-29"
 original_url: https://tangosalbardo.blogspot.com/2017/10/madame-ivonne.html
 labels: ""
+tags: ["Leopoldo Federico", "Roberto Goyeneche", "Enrique Cadícamo", "Alberto Castillo", "Armando Pontier", "Ricardo Tanturi", "Edgardo Donato", "Carlos Gardel"]
 ---
 
 Antes de partir hacia París, Carlos Gardel, grabó una serie de temas. Al abandonar Buenos Aires definitivamente en ese año, 1933, dado que de allí seguiría viaje a Estados Unidos y por fin la gira trágica, el último tango que dejaría impreso en el disco, sería* Madame Ivonne*, tango de Eduardo *Chon* Pereyra y Enrique Cadícamo. Lo acompañaban las guitarras de Barbieri, Riverol, Pettorossi y Vivas y lo grabó el 6 de noviembre del citado año 1933.

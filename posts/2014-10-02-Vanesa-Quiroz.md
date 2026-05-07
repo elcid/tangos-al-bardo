@@ -3,6 +3,7 @@ title: "Vanesa Quiroz"
 date: "2014-10-02"
 original_url: https://tangosalbardo.blogspot.com/2014/10/vanesa-quiroz.html
 labels: ""
+tags: ["Luis César Amadori", "Leopoldo Federico", "Roberto Goyeneche", "José Colángelo", "Alberto Morán", "Miguel Zotto", "María Graña", "Jorge Casal"]
 ---
 
 Esta hermosa muchacha porteña iba para bailarina clásica, pero tuvo una lesión importante y el destino la fue llevando, llevando... a escribir una maravillosa historia. En su casa se escuchaba tango a todas horas y se le fue prendiendo en el alma. El padre era chaqueño pero vivían en Buenos Aires y los nombres de los cantores, de las orquestas iban poblando la memoria de la chica de Ituzaingo que aún no despuntaba su futuro.

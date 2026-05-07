@@ -3,6 +3,7 @@ title: "El último fueye"
 date: "2012-08-10"
 original_url: https://tangosalbardo.blogspot.com/2012/08/el-ultimo-fueye.html
 labels: ""
+tags: ["Rodolfo Mederos"]
 ---
 
 [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgA2B86NyjR5XM0Ym8lJWWfzmTuh1Wk1Q3Ort94ttZpFhTRwvrvTzFGXGRgqDbIh9NWmeMCs-UIv1a69eLkH-tRCZK11F4PxsnAlxx8TnijqfFFw-fSn9xKA1ExIqSp5VZ4-LUHWhp2VJHv/s320/bandoneon00.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgA2B86NyjR5XM0Ym8lJWWfzmTuh1Wk1Q3Ort94ttZpFhTRwvrvTzFGXGRgqDbIh9NWmeMCs-UIv1a69eLkH-tRCZK11F4PxsnAlxx8TnijqfFFw-fSn9xKA1ExIqSp5VZ4-LUHWhp2VJHv/s1600/bandoneon00.jpg)Es realmente emocionante ver a Rodolfo Mederos tocar *La cumparsita* con estos seis ilustres maestros del bandoneón, ya retirados, pero que todavía conservan el alma llena de tango, y la sabiduría para pellizcarnos el cuore.

@@ -3,6 +3,7 @@ title: "Milongueando en el 40"
 date: "2012-05-10"
 original_url: https://tangosalbardo.blogspot.com/2012/05/milongueando-en-el-40.html
 labels: ""
+tags: ["Armando Pontier", "Homero Expósito", "Aníbal Troilo", "Orlando Goñi", "Miguel Caló"]
 ---
 
 Armando Pontier no lo podía creer. Su ídolo, Aníbal Troilo iba a estrenar el primer tango suyo. Allá en su Zárate natal habían creado con el gran poeta del pago, Homero Expósito, *Pá qué*, un tema que no había salido de la ocuridad.

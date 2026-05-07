@@ -3,6 +3,7 @@ title: "Bien Milonga"
 date: "2022-04-12"
 original_url: https://tangosalbardo.blogspot.com/2022/04/bien-milonga_12.html
 labels: ""
+tags: ["Juan D'Arienzo"]
 ---
 
 Tango milongón

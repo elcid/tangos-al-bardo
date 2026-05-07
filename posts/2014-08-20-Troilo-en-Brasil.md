@@ -3,6 +3,7 @@ title: "Troilo en Brasil"
 date: "2014-08-20"
 original_url: https://tangosalbardo.blogspot.com/2014/08/troilo-en-brasil.html
 labels: ""
+tags: ["Aníbal Troilo", "Carlos Figari", "Jorge Casal", "Raúl Berón"]
 ---
 
 Fue sorprendente porque a Troilo no le gustaba nada viajar, y aunque no le tenía tanto miedo al avión como D'Arienzo, tampoco le atraía la idea de andar por otros países, lejos de su radio de acción: el centro porteño. Sin embargo estuvo en Brasil, contratado con toda su orquesta y rodeado de grandes expectativas.

@@ -3,6 +3,7 @@ title: "La casita de mis viejos"
 date: "2012-06-03"
 original_url: https://tangosalbardo.blogspot.com/2012/06/la-casita-de-mis-viejos.html
 labels: ""
+tags: ["Juan Carlos Cobián", "Osvaldo Pugliese"]
 ---
 
 Ayer, sabado 2 de junio, se inauguró en la vereda de "la casita de mis viejos", de Juan Carlos Cobián, un baldosón alusivo del tango estrenado en 1932.

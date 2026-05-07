@@ -3,6 +3,7 @@ title: "De Caro, Gardel y Chaplin"
 date: "2016-04-25"
 original_url: https://tangosalbardo.blogspot.com/2016/04/de-caro-gardel-y-chaplin.html
 labels: ""
+tags: ["Francisco Canaro", "Carlos Gardel", "Julio De Caro"]
 ---
 
 En agosto de 1972, lo tuve a Julio De Caro en mi programa de Radio titulado:* Dialogando con swing*, que iba por Radio Argentina, los domingos desde las 8.30 hasta las 12 del mediodía. Por ese micrófono también pasaron otros personajes importantes y tangueros de primera línea, así como artistas y deportistas de prestigio. Pero, en esa oportunidad, De Caro -que tenía 73 años, hacía tiempo que estaba retirado, vivía en Mar del Plata y tenía muchos problemas para expresarse porque el violín corneta, con su apoyatura, le había dañado las cuerdas vocales y le costaba expresarse-, me hizo además un hermoso regalo: su libro "**El Tango en mis recuerdos**", que además tuvo el detalle de dedicármelo.

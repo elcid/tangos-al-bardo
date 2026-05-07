@@ -3,6 +3,7 @@ title: "Carmencita  Calderón"
 date: "2022-08-12"
 original_url: https://tangosalbardo.blogspot.com/2022/08/carmencita-calderon.html
 labels: ""
+tags: ["Juan D'Arienzo", "Pedro Maffia", "Ángel Vargas"]
 ---
 
 La mítica compañera de El Cachafaz

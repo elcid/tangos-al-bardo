@@ -3,6 +3,7 @@ title: "Bien milonga"
 date: "2017-10-03"
 original_url: https://tangosalbardo.blogspot.com/2017/10/bien-milonga.html
 labels: ""
+tags: ["Enrique Cadícamo", "Juan D'Arienzo"]
 ---
 
 *El tango suena tristón*

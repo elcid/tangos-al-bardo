@@ -3,6 +3,7 @@ title: "Dos temas bien porteños"
 date: "2026-02-05"
 original_url: https://tangosalbardo.blogspot.com/2026/02/dos-temas-bien-portenos.html
 labels: ""
+tags: ["Fulvio Salamanca", "Juan D'Arienzo", "Ángel Vargas"]
 ---
 
 Como en general, resulta muy conocido: **Porteño** es el gentilicio correspondiente a los oriundos de la Ciudad Autónoma de Buenos Aires (CABA), capital de la República Argentina. No debe confundirse con el gentilicio «bonaerense», que está reservado exclusivamente a los habitantes de la Provincia de Buenos Aires y no es utilizado para designar a los habitantes de la Ciudad Autónoma de Buenos Aires. Es decir el porteño no es bonaerense ni el bonaerense es porteño.

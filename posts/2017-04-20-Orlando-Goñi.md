@@ -3,6 +3,7 @@ title: "Orlando Goñi"
 date: "2017-04-20"
 original_url: https://tangosalbardo.blogspot.com/2017/04/orlando-goni.html
 labels: ""
+tags: ["Aníbal Troilo", "Agustín Bardi", "Orlando Goñi", "Manuel Buzón", "Miguel Caló", "Raúl Berón", "José Basso"]
 ---
 
 Lo he repetido en numerosas ocasiones y lo hago, convencido de que este pianista fue un genio que iluminó el tango en su época, como integrante y guía de la primera orquesta de Aníbal Troilo, a la que prácticamente conducía desde su instrumento. Con su rara manera de sentarse al piano, sus piernas abiertas, sin usar los pedales y unas síncopas que elevan la fuerza de la música instalándola en el corazón de los bailarines, o de los que escuchan aquellas grabaciones de Pichuco.

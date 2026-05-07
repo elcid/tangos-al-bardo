@@ -3,6 +3,7 @@ title: "Bien Milonga"
 date: "2022-06-07"
 original_url: https://tangosalbardo.blogspot.com/2022/06/bien-milonga.html
 labels: ""
+tags: ["Francisco Canaro", "Juan D'Arienzo", "María Graña"]
 ---
 
 Quisiera yo pintar,

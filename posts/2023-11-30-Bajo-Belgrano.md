@@ -3,6 +3,7 @@ title: "Bajo Belgrano"
 date: "2023-11-30"
 original_url: https://tangosalbardo.blogspot.com/2023/11/bajo-belgrano_30.html
 labels: ""
+tags: ["Francisco García Jiménez", "Alfredo De Angelis", "Carlos Gardel", "Anselmo Aieta", "Julio Martel"]
 ---
 
 Este tango de Francisco García Jiménez con música del fueye Anselmo Aieta, es una hermosa y cromática pintura de esa zona porteña que tantas veces hemos cruzado. Ya fuere para ir al hipódromo de Palermo, a la cancha de River Plate, o para comer en algunas de esas cantinas empinadas en las esquinas del barrio y que nos proporcionaban reuniones de amigos, de familia, inolvidables.

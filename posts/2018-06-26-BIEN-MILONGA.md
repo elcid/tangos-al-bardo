@@ -3,6 +3,7 @@ title: "BIEN MILONGA"
 date: "2018-06-26"
 original_url: https://tangosalbardo.blogspot.com/2018/06/bien-milonga_26.html
 labels: ""
+tags: ["Alfredo De Angelis", "Alberto Echagüe", "Juan D'Arienzo", "Carlos Dante"]
 ---
 
 * Muchachos, yo soy el tango,*

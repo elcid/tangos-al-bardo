@@ -3,6 +3,7 @@ title: "La voz de Gardel"
 date: "2024-03-25"
 original_url: https://tangosalbardo.blogspot.com/2024/03/la-voz-de-gardel.html
 labels: ""
+tags: ["Enrique Cadícamo", "Edmundo Rivero", "Carlos Gardel"]
 ---
 
 Cuenta Enrique Cadícamo que muchas veces se pregunta sobre las explicaciones concretas que podrían darse al misterioso "porqué de esa voz" de Carlos Gardel. Una consulta que formuló a su amigo, el doctor Juan Carlos Arauz, titular de la cátedra de otorrinolaringología del Hospital General San Martín, obtuvo la siguiente respuesta del especialista:

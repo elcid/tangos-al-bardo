@@ -3,6 +3,7 @@ title: "Postal milonguera"
 date: "2012-04-23"
 original_url: https://tangosalbardo.blogspot.com/2012/04/postal-milonguera.html
 labels: ""
+tags: ["José María Otero"]
 ---
 
 [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiIRCGYU3kWIMV9Jt_7J0xL59_qsa6_QdVOL1Bu0p5ieIViq8LkiaX70i_u5hoegtNapMC1OjKKwjRh9I6ek3Ex9sg8BKRVznLt5YmFsgCVLsmK1BD1EmX09-J3C2Q2EQhXBWTvDBzFuaF_/s320/tango+%C3%B3leo+de+julio+ovejero.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiIRCGYU3kWIMV9Jt_7J0xL59_qsa6_QdVOL1Bu0p5ieIViq8LkiaX70i_u5hoegtNapMC1OjKKwjRh9I6ek3Ex9sg8BKRVznLt5YmFsgCVLsmK1BD1EmX09-J3C2Q2EQhXBWTvDBzFuaF_/s1600/tango+%C3%B3leo+de+julio+ovejero.jpg) Tango . Óleo de Julio Ovejero

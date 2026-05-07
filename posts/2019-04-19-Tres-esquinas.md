@@ -3,6 +3,7 @@ title: "Tres esquinas"
 date: "2019-04-19"
 original_url: https://tangosalbardo.blogspot.com/2019/04/tres-esquinas.html
 labels: ""
+tags: ["Enrique Cadícamo", "Ángel Vargas"]
 ---
 
 Ya conté en este mismo blog, hace 4 años, cómo nació este bellísimo e inagotable tango de Ángel D'Agostino, Enrique Cadícamo y Alfredo Attadía. Incluso, recordaba que Ángel D'Agostino lo había creado como instrumental para un sainete llamado **Armenonville, **poniéndole de título** Pobre piba**. Una noche en la boite *Chez Nous*, después de la actuación lo extrajo de sus papeles y se lo hizo escuchar a Cadícamo para ver si podía ponerle versos.

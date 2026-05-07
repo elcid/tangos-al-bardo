@@ -3,6 +3,7 @@ title: "BIEN MILONGA"
 date: "2018-12-03"
 original_url: https://tangosalbardo.blogspot.com/2018/12/bien-milonga.html
 labels: ""
+tags: ["Alfredo De Angelis", "Francisco Canaro", "Ricardo Tanturi", "Enrique Campos", "Carlos Dante"]
 ---
 
 [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi5f3jrKnAHAD4-NNenB669zq9jVQYQC52YeoCHlr5M8W8bZIevPR4GkW7gR6TcZlCiE22TH2MMn0id931YKYBI5xuqMqy79Kl6x2vOBv7iQVP-E6MqnfXYVnxBGd24CoZ3pWn39uHThIjh/s200/Piernas.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi5f3jrKnAHAD4-NNenB669zq9jVQYQC52YeoCHlr5M8W8bZIevPR4GkW7gR6TcZlCiE22TH2MMn0id931YKYBI5xuqMqy79Kl6x2vOBv7iQVP-E6MqnfXYVnxBGd24CoZ3pWn39uHThIjh/s1600/Piernas.jpg) *Al cantar*

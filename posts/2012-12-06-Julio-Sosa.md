@@ -3,6 +3,7 @@ title: "Julio Sosa"
 date: "2012-12-06"
 original_url: https://tangosalbardo.blogspot.com/2012/12/julio-sosa.html
 labels: ""
+tags: ["Leopoldo Federico", "Joaquín Do Reyes", "Alberto Podestá", "Hugo del Carril", "Edmundo Rivero", "Aníbal Troilo", "Julio Sosa"]
 ---
 
 Yo viví la gran etapa de Julio, en la época que los programas musicales para la j~~~~uventud y sus discos inundaban el mercado a comienzos de los años sesenta. Cuando el productor ecuatoriano Ricardo Mejía diseñó para la *RCA Víctor* y el *Canal 13* (regentado por cubanos exiliados) un programa llamado *"El Club del Clan*" y que se retransmitía a varios países de América. Eran muchachos y muchachas que cantaban beat-pop en español y que se hicieron popularísimos en poco tiempo, a la vez que inundaban el mercado con sus discos.

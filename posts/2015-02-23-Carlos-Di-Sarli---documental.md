@@ -3,6 +3,7 @@ title: "Carlos Di Sarli - documental"
 date: "2015-02-23"
 original_url: https://tangosalbardo.blogspot.com/2015/02/carlos-di-sarli-documental.html
 labels: ""
+tags: ["Carlos Di Sarli"]
 ---
 
 Hoy les traigo un regalito de esos que se guardan en el cofre de los recuerdos más sentidos. Es un filme documental sobre la vida artística y humana de Carlos Di Sarli, con los ingredientes suficientes para bajarlo a nuestro ordenador y luego repasarlo con calma, viviendo las creaciones del maestro de Bahía Blanca y disfrutándolo en profundidad.

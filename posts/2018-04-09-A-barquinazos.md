@@ -3,6 +3,7 @@ title: "A barquinazos"
 date: "2018-04-09"
 original_url: https://tangosalbardo.blogspot.com/2018/04/a-barquinazos.html
 labels: ""
+tags: ["Florindo Sassone", "Francisco Canaro", "Osvaldo Pugliese", "Homero Expósito", "Alberto Morán"]
 ---
 
 Este tango, como muchos de la enciclopedia tanguera, tiene una curiosa historia detrás. Lo compuso Osvaldo Pugliese en forma instrumental, con el nombre inicial de *Hermosa japonesita*, pero no lo grabó con su orquesta ni tuvo interpretación alguna. Hasta que en 1948 se filma la película "Mis cinco hijos", con libreto de Nathan Pinzón y Ricardo Setaro, que dirigieron Orestes Caviglia y Bernardo Spoliansky.

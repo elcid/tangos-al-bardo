@@ -3,6 +3,7 @@ title: "Domingo Mattio"
 date: "2025-06-03"
 original_url: https://tangosalbardo.blogspot.com/2025/06/domingo-mattio.html
 labels: ""
+tags: ["Cátulo Castillo", "Aníbal Troilo"]
 ---
 
 **Domingo Constancio Mattio** Nació en el pueblo santafecino **Granadero Baigorria,** en 1921. Llegaría a Buenos Aires con la orquesta rosarina de Abel Bedrune en 1941 para actuar en radio Belgrano … y decidió quedarse. Así comenzaría su aventura porteña con breves incursiones en las orquestas de Juan Canaro y de Ángel D’Agostino, que le sirvieron de preámbulo artístico y adaptación.

@@ -3,6 +3,7 @@ title: "Los arreglos de Julián Plaza"
 date: "2017-02-08"
 original_url: https://tangosalbardo.blogspot.com/2017/02/los-arreglos-de-julian-plaza.html
 labels: ""
+tags: ["Roberto Goyeneche", "Osvaldo Pugliese", "Carlos Di Sarli", "Edgardo Donato", "Aníbal Troilo", "Julián Plaza", "Pedro Maffia", "Miguel Caló"]
 ---
 
 El trabajo de arreglador-orquestador que hizo en la orquesta de Osvaldo Pugliese, con el tango de Pedro Maffia **"La mariposa**", en 1965, en forma instrumental lo proyectó e instaló definitivamente en del mundo de la escritura tanguera, donde dejaría firmados numerosos arreglos que iluminarían hermosas páginas de los años sesenta en orquestas como las de Pugliese o Troilo, especialmente. Además del Sexteto Tango - donde estaría a cargo del piano-y otros encargos.

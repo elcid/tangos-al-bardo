@@ -3,6 +3,7 @@ title: "Sanguinetti y su enorme misterio"
 date: "2012-11-05"
 original_url: https://tangosalbardo.blogspot.com/2012/11/sanguinetti-y-su-enorme-misterio.html
 labels: ""
+tags: ["Eduardo Del Piano", "Enrique Rodríguez", "Osvaldo Pugliese", "Cátulo Castillo", "Edgardo Donato", "Alberto Morán", "Ángel Vargas"]
 ---
 
 Fue un poeta celebradísimo que ocupó los atriles de todas las orquestas del cuarenta y cincuenta prácticamente. No existió el cantor o cantante de tango que no interpretase uno de sus temas. Algunos de estos, como *Nada* o *Tristeza marina* han dado la vuelta al mundo en innumerables versiones. En pleno apogeo desapareció del mundo. Y no se supo más nada de él.

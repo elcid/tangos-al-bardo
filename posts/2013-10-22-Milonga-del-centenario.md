@@ -3,6 +3,7 @@ title: "Milonga del centenario"
 date: "2013-10-22"
 original_url: https://tangosalbardo.blogspot.com/2013/10/milonga-del-centenario.html
 labels: ""
+tags: ["Francisco Canaro", "Carlos Di Sarli", "Aníbal Troilo", "Julio De Caro"]
 ---
 
 Esta milonga de Carlos Di Sarli y Carlos Moreno, que el maestro bahiense grabó con su orquesta, en aquellos discos de 78 rpm, el 17 de abril de 1940, teniendo en la otra faz el tango de Francisco Canaro: *El opio*, guarda con ella una pequeña historia.

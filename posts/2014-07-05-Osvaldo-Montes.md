@@ -3,6 +3,7 @@ title: "Osvaldo Montes"
 date: "2014-07-05"
 original_url: https://tangosalbardo.blogspot.com/2014/07/osvaldo-montes.html
 labels: ""
+tags: ["Leopoldo Federico", "Atilio Stampone", "Alberto Marino", "Horacio Salgán", "Carlos García", "Pedro Laurenz", "Mariano Mores", "Aníbal Arias"]
 ---
 
 Este eximio bandoneonista conocido en el ambiente como *Marinero*, nos dejó ayer a los 80 años de edad, cuando seguía tocando como en sus buenos tiempos. Nacido en Rosario, en una familia aficionada a la música, desde muy pequeño sintió la emoción que le proporcionaba la misma, y su madre le compró un bandoneón en cuotas, cuando Osvaldo tenía apenas ocho años de edad, porque no les alcanzaba el dinero para adquirir un piano.

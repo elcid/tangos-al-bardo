@@ -3,6 +3,7 @@ title: "El cuarteador"
 date: "2015-08-20"
 original_url: https://tangosalbardo.blogspot.com/2015/08/el-cuarteador.html
 labels: ""
+tags: ["Enrique Cadícamo", "Ángel Villoldo", "Aníbal Troilo", "Orlando Goñi", "Ángel Vargas"]
 ---
 
 Hoy vengo con este tango tan lindo de Enrique Cadícamo que muestra uno de los oficios de aquel viejo Buenos Aires, cuando había especialistas en desatascar a los carros atrapados en el barro o que no lograban subir una barranca por las calles empinadas. El trabajo de cuarteador como se les llamaba a los especialistas en acudir en auxilio de los atrapados en esa situación, requería de mucha pericia.

@@ -3,6 +3,7 @@ title: "Goyeneche y el tango vuelven de París"
 date: "2018-04-27"
 original_url: https://tangosalbardo.blogspot.com/2018/04/goyeneche-y-el-tango-vuelven-de-paris.html
 labels: ""
+tags: ["Roberto Goyeneche", "Osvaldo Fresedo", "Ricardo Tanturi", "Cátulo Castillo", "Horacio Salgán", "Aníbal Troilo", "Osmar Maderna", "Homero Manzi"]
 ---
 
 Esta nota fue publicada en la revista argentina SOMOS, en diciembre de 1984. Y como tiene mucho interés, por todo lo que representaron **Tango argentino** y el mismo *Polaco* Goyeneche, pienso que vale la pena reproducirla en el blog.

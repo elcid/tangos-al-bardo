@@ -3,6 +3,7 @@ title: "A los amigos"
 date: "2013-01-01"
 original_url: https://tangosalbardo.blogspot.com/2013/01/a-los-amigos.html
 labels: ""
+tags: ["Domingo Federico", "Osvaldo Pugliese", "Armando Pontier", "Ricardo Ruiz", "Manuel Buzón"]
 ---
 
 Y acá estoy reponiéndome de la tremenda jornada manducatoria, de los continuados brindis y de los petardos y fuegos de artificio que tronaron hasta bien avanzada la aurora.

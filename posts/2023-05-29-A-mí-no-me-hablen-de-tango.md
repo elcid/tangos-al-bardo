@@ -3,6 +3,7 @@ title: "A mí no me hablen de tango"
 date: "2023-05-29"
 original_url: https://tangosalbardo.blogspot.com/2023/05/a-mi-no-me-hablen-de-tango.html
 labels: ""
+tags: ["José María Contursi", "Aníbal Troilo", "Néstor Fabián", "Tita Merello"]
 ---
 
 Resulta verdaderamente curioso comprobar que, en la extensa producción de José María Contursi, en sus románticas letras de tango evocando a Grisel, su cuitado corazón, y logrando verdaderos *capo-lavoro* poéticos, magistrales retratos, con su contenido emocional, también incursiona con otros fogonazos líricos en temas tan distintos. Algo que no deja de llamar la atención, a quienes lo seguimos con tanta admiración.

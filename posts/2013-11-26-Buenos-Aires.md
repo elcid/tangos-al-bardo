@@ -3,6 +3,7 @@ title: "Buenos Aires"
 date: "2013-11-26"
 original_url: https://tangosalbardo.blogspot.com/2013/11/buenos-aires.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Manuel Romero", "Miguel Caló", "Raúl Berón"]
 ---
 
 Para nosotros es una ciudad casi mágica. Los que la hemos recorrido a fondo, los que la vivimos en las buenas y en las malas, nunca dejaremos de quererla. Allá quedó todo nuestro aprendizaje de vida, los maestros, la barra compañera con ese sentido de la amistad tan porteño, los libros de nuestros celebrados literatos, los tangos escuchados y bailados, esas imágenes que están grabadas en nuestras retinas, de un final cabeza a cabeza en el Hipódromo de Palermo, de un gol inmortal de Bochini, de aquellas gambetas de potrero, de Pichuco acariciando el fueye, las primeras aventuras en la milonga o en el centro.

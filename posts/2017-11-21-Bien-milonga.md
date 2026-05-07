@@ -3,6 +3,7 @@ title: "Bien milonga"
 date: "2017-11-21"
 original_url: https://tangosalbardo.blogspot.com/2017/11/bien-milonga_21.html
 labels: ""
+tags: ["Carlos Di Sarli", "Alberto Podestá", "Carlos Bahr"]
 ---
 
 *Compás floreado de tango*

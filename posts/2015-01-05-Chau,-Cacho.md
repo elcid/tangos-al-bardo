@@ -3,6 +3,7 @@ title: "Chau, Cacho..."
 date: "2015-01-05"
 original_url: https://tangosalbardo.blogspot.com/2015/01/chau-cacho.html
 labels: ""
+tags: ["Osvaldo Pugliese", "María Nieves", "Virulazo"]
 ---
 
 El 2014 terminó dejando la huella tremenda de la muerte de dos grandes del tango y el 2015 comenzó también con una pérdida muy importante, la de Cacho Dinzel, a quien su corazón no pudo ayudarle más en su tarea de maestro del tango junto a Gloria. Aunque queda también un legado en forma de libros, de conferencias, de exhibiciones y de obras benéficas, con el tango de pantalla.

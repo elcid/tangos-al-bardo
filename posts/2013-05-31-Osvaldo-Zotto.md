@@ -3,6 +3,7 @@ title: "Osvaldo Zotto"
 date: "2013-05-31"
 original_url: https://tangosalbardo.blogspot.com/2013/05/osvaldo-zotto.html
 labels: ""
+tags: ["Alfredo Gobbi", "Osvaldo Zotto", "Orlando Goñi", "Virulazo"]
 ---
 
 Juro que muchas veces, cuando observo a la gente en la milonga y veo a algún bailarín que tiene posibilidades de llegar a desarrollar un buen discurso bailable, pero está enredado en la confusión de elaborar figuras al por mayor, me dan ganas de decirle algunas cosas.

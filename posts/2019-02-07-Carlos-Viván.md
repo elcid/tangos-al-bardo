@@ -3,6 +3,7 @@ title: "Carlos Viván"
 date: "2019-02-07"
 original_url: https://tangosalbardo.blogspot.com/2019/02/carlos-vivan.html
 labels: ""
+tags: ["Enrique Cadícamo", "Carlos Di Sarli", "Cátulo Castillo", "Enrique Dizeo", "Pedro Maffia", "Ángel Vargas", "Juan Maglio"]
 ---
 
 El tango está lleno de personajes pintorescos, llamativos, especiales, llenos de anécdotas y de vivencias que concitan la atención, por motivos diversos. Es, por ejemplo, el caso de este cantor que se llamaba realmente Miguel Rice Treacy, era hijo de irlandeses, por ello hablaba correctamente el idioma inglés y tuvo trabajos donde se lo estimaba y se le pagaba un sueldo altísimo, debido precisamente, a su manejo de la lengua de Shakespeare.

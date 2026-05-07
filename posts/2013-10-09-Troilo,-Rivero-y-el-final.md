@@ -3,6 +3,7 @@ title: "Troilo, Rivero y el final"
 date: "2013-10-09"
 original_url: https://tangosalbardo.blogspot.com/2013/10/troilo-y-rivero.html
 labels: ""
+tags: ["Edmundo Rivero", "Horacio Salgán", "Aníbal Troilo", "Floreal Ruiz"]
 ---
 
 Fue una época maravillosa. Cuando Pichuco tuvo a Floreal Ruiz y Edmundo Rivero como cantores, la gente lo seguía a todas partes y sus grabaciones se vendían de inmediato. Sí, el tango estaba en su apogeo y el final de esta dupla dejó una sensación amarga entre los hinchas de ambos. Rivero lo contaba así:

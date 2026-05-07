@@ -3,6 +3,7 @@ title: "Don Segundo Sombra"
 date: "2024-01-31"
 original_url: https://tangosalbardo.blogspot.com/2024/01/don-segundo-sombra.html
 labels: ""
+tags: ["Enrique Delfino", "Juan D'Arienzo", "Manuel Romero", "Lidia Borda", "Charlo"]
 ---
 
 Don Segundo Ramirez era oriundo de Coronda (Santa Fe) y era un criollo mulato, de padres libertos según consta en el archivo del Juzgado de Paz. En es una de las pocas fotografías (Origen anónimo) se ve claro, en primer plano la segunda sombra que caracterizó e hizo famoso a este entonces ilustrísimo personaje de la zona de Areco. Los guantes negros solo una muestra de elegancia para la ocasión según aquella época.

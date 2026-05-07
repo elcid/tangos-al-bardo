@@ -3,6 +3,7 @@ title: "Hugo Mastrolorenzo y Agustina Vignau"
 date: "2014-11-05"
 original_url: https://tangosalbardo.blogspot.com/2014/11/hugo-mastrolorenzo-y-agustina-vignau.html
 labels: ""
+tags: ["Jorge Caldara", "Homero Manzi"]
 ---
 
 Obtuvieron el segundo puesto en la Final del último Campeonato Mundial de Tango, en la categoría **Tango escenario**, realizado este año en Buenos Aires. Anteriormente Hugo, también con Agustina, representando a la localidad de Los Polvorines, localidad cercana a la Capital, en la Provincia de Buenos Aires, lograron el cuarto lugar con una coreografía muy dramática y arriesgada.

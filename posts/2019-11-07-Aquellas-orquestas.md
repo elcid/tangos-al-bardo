@@ -3,6 +3,7 @@ title: "Aquellas orquestas"
 date: "2019-11-07"
 original_url: https://tangosalbardo.blogspot.com/2019/11/aquellas-orquestas.html
 labels: ""
+tags: ["Alfredo De Angelis", "Enrique Rodríguez", "Francisco Canaro", "Carlos García"]
 ---
 
 El tango está de moda hoy día en numerosos países del mundo. Hay bandoneonistas japoneses, chinos, rusos, franceses y bailarines de diversas nacionalidades que figuran como maestros, dan clases y se muestran en exhibiciones. Nunca hubo semejante expansión del género, tal como sucede ahora. Y lo más notable de todo, es que seguimos bailando con las orquestas de los años treinta, cuarenta y cincuenta del siglo pasado.

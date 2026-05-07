@@ -3,6 +3,7 @@ title: "El legendario Barón Megata"
 date: "2021-07-13"
 original_url: https://tangosalbardo.blogspot.com/2021/07/el-legendario-baron-megata.html
 labels: ""
+tags: ["Francisco Canaro", "Osvaldo Pugliese", "Horacio Salgán", "Alberto Marino", "Julián Centeya", "Edmundo Rivero", "Rosita Quiroga", "Aníbal Troilo"]
 ---
 
 La historia del tango, fuera de los límites de Buenos Aires, se nutre de no pocas invenciones: todavía las fábulas del cabaret **El Garrón **de París exageran fintas imposibles de bailarines también imposibles. La curiosa línea del destino, en los últimos años, ha propuesto para ese mismo tango otro puerto de fábulas: Japón, como si fuera una esquina cercana y no un país remoto separado del nuestro por océanos, casas de té y samurais. Un médico argentino, Luis Alposta, especialista en gerontología, ha resuelto volcar en un libro la historia del tango, a partir del primer eslabón, en el país de los cerezos. Alposta tiene cuarenta y tres años y es desde hace más de diez, miembro de la Academia Argentina del Lunfardo. Varios de sus tangos, compuestos a lo largo de estos años — *"Poema cero", "El jubilado*", fueron musicalizados y cantados por Edmundo Rivero, a quien lo une una gran amistad.

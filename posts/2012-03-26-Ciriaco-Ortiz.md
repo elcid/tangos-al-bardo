@@ -3,6 +3,7 @@ title: "Ciriaco Ortiz"
 date: "2012-03-26"
 original_url: https://tangosalbardo.blogspot.com/2012/03/ciriaco-ortiz.html
 labels: ""
+tags: ["Celedonio Flores", "Francisco Lomuto"]
 ---
 
 Pichuco decía que Ciriaco Ortiz tocaba el fueye como un *cordooooobé*.

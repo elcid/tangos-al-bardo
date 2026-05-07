@@ -3,6 +3,7 @@ title: "Tango y bolero"
 date: "2012-04-21"
 original_url: https://tangosalbardo.blogspot.com/2012/04/tango-y-bolero.html
 labels: ""
+tags: ["Osvaldo Fresedo", "Roberto Yanés", "Miguel Caló"]
 ---
 
 Aparte del tango, hay un rubro en el que Argentina fue gran productor: El bolero.

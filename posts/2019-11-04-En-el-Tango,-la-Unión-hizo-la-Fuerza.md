@@ -3,6 +3,7 @@ title: "En el Tango, la Unión hizo la Fuerza"
 date: "2019-11-04"
 original_url: https://tangosalbardo.blogspot.com/2019/11/en-el-tango-la-union-hizo-la-fuerza.html
 labels: ""
+tags: ["José María Contursi", "Cátulo Castillo", "Julio Camilloni", "Julio De Caro", "Alfredo Gobbi", "Roberto Firpo", "Carlos Bahr"]
 ---
 
 Y es tan cierto, como se puede apreciar en infinidad de imágenes donde departen, almuerzan, toman un café, se juntan para escuchar a determinada orquesta, o un cantor, o cenan luego de su trabajo, o de un estreno.. Está más que demostrada esa unión que les permitió reunirse con Perón, cuando éste era Ministro de Trabajo y eliminar la censura a los tangos. O crear la Sociedad de autores y compositores que les permitiría percibir los derechos de sus obras.

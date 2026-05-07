@@ -3,6 +3,7 @@ title: "Dorita Zárate"
 date: "2012-04-04"
 original_url: https://tangosalbardo.blogspot.com/2012/04/dorita-zarate.html
 labels: ""
+tags: ["Enrique Rodríguez", "Carlos Di Sarli", "Roberto Rufino", "Jorge Durán"]
 ---
 
 La muchacha se llamaba en realidad Teodora María García. Había nacido en Bánfield (Buenos Aires) en el año 1917. En su localidad del sur estudió canto con el maestro Pazzi y también guitarra con un músico que era familiar suyo.

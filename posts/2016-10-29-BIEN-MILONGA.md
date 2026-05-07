@@ -3,6 +3,7 @@ title: "BIEN MILONGA"
 date: "2016-10-29"
 original_url: https://tangosalbardo.blogspot.com/2016/10/bien-milonga_29.html
 labels: ""
+tags: ["Enrique Rodríguez", "Francisco Canaro"]
 ---
 
 Ha vuelto el delicioso solcito que nos calienta el alma y los motores. El otoño madrileño nunca falla. El invierno tampoco, claro, que te deprime el cuore y el ánimo. Siempre quedará la milonga, tanto para festejar como para anestesiar los malestares. Y en la nuestra nos ocupamos preferentemente de estas cuestiones para ganarle a los bajones emocionales y subirnos la autoestima.

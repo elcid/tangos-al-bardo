@@ -3,6 +3,7 @@ title: "Fue el fin de una época"
 date: "2019-09-22"
 original_url: https://tangosalbardo.blogspot.com/2019/09/fue-el-fin-de-una-epoca.html
 labels: ""
+tags: ["Carlos Gardel"]
 ---
 
 Es claro hasta la obviedad. Mal puede repetirse una conjunción de cantantes de las características de la estupenda primera línea del 40, sin orquestas típicas.

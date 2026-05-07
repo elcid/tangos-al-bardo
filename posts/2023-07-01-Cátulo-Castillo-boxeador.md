@@ -3,6 +3,7 @@ title: "Cátulo Castillo boxeador"
 date: "2023-07-01"
 original_url: https://tangosalbardo.blogspot.com/2023/07/catulo-castillo-boxeador.html
 labels: ""
+tags: ["José González Castillo", "Celedonio Flores", "Cátulo Castillo", "Miguel Caló"]
 ---
 
 Esta foto es un documento de gran valor sentimental, por los personajes que aparecen. Se trata del combate a 5 asaltos, de dos minutos cada uno, por por la categoría Gallo, en el **Club Policial** porteño.

@@ -3,6 +3,7 @@ title: "La compañía que revitalizó al Tango y lo relanzó mundialmente"
 date: "2012-05-31"
 original_url: https://tangosalbardo.blogspot.com/2012/05/la-compania-que-revitalizo-al-tango-y.html
 labels: ""
+tags: ["Juan Carlos Copes", "Roberto Goyeneche", "Horacio Salgán", "Ubaldo De Lío", "María Nieves", "Raúl Berón", "Virulazo"]
 ---
 
 Claudio Segovia y Héctor Orezzoli formaron esta maravillosa compañía en 1983 para presentar el espectáculo en París.

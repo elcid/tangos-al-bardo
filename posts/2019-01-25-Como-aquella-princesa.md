@@ -3,6 +3,7 @@ title: "Como aquella princesa"
 date: "2019-01-25"
 original_url: https://tangosalbardo.blogspot.com/2019/01/como-aquella-princesa.html
 labels: ""
+tags: ["José María Contursi", "Roberto Goyeneche", "Pascual Contursi", "Osvaldo Fresedo", "Atilio Stampone", "Hugo del Carril"]
 ---
 
 Los fantasmas de sus autores se arrastran a través de las melodías y cantos que pertenecen al acervo popular, pero que llevan implícitas en cada nota y en cada palabra un momento vital de las vidas de quienes nos legaron esas páginas. La memoria y el disco salvan así palabras y música derramadas en una partitura y que siempre encontrarán un intérprete que les devuelva la vida, la intención de los versos, el sortilegio misterioso de la música ondulante que nos transporta en la pista de baile...

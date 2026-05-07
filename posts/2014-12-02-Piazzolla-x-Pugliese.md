@@ -3,6 +3,7 @@ title: "Piazzolla x Pugliese"
 date: "2014-12-02"
 original_url: https://tangosalbardo.blogspot.com/2014/12/piazzolla-x-pugliese.html
 labels: ""
+tags: ["Osvaldo Pugliese"]
 ---
 
 Sabido y reconocido por ambos, es la mutua simpatía que sentían el uno por el otro, y sobre todo el respeto profesional por la obra de ambos. Pugliese vió el último ensayo del famoso Octeto Buenos Aires, de Ástor y lo aprobó con contundencia: "*¡Sí señores, esto es Tango*"!, para infundir ánimos a los músicos que lo integraban y salir al paso de los tangueros puristas que no admitían esa novedad.

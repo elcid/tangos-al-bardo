@@ -3,6 +3,7 @@ title: "BIEN MILONGA"
 date: "2019-06-11"
 original_url: https://tangosalbardo.blogspot.com/2019/06/bien-milonga_11.html
 labels: ""
+tags: ["Francisco Lomuto", "Ricardo Tanturi", "Enrique Campos", "Juan D'Arienzo", "Reinaldo Yiso"]
 ---
 
 *Quien no quedó suspirando*

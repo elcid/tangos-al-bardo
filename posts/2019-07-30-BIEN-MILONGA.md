@@ -3,6 +3,7 @@ title: "BIEN MILONGA"
 date: "2019-07-30"
 original_url: https://tangosalbardo.blogspot.com/2019/07/bien-milonga_30.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Francisco Lomuto", "Alberto Echagüe", "Juan D'Arienzo"]
 ---
 
 Hoy me luzco, compadreando

@@ -3,6 +3,7 @@ title: "Y siempre igual"
 date: "2023-08-05"
 original_url: https://tangosalbardo.blogspot.com/2023/08/y-siempre-igual.html
 labels: ""
+tags: ["Alberto Castillo", "Ricardo Tanturi", "Enrique Campos", "Orlando Goñi", "Lucio Demare", "Raúl Berón"]
 ---
 
 Volverlos a escuchar o bailando esos viejos tangos, siempre nos zambullen en recuerdos, en visiones antiguas, en la radio, los amigos de la barra de la esquina y del Café. Ese entrañable Café del barrio donde nos juntábamos para discutir de fútbol, la partida de naipes, para planear partidos amistosos o combinar la salida a alguna milonga. Sí, el Café era el centro de convenciones que nos aunaba después del trabajo, a la vuelta del encuentro con la novia, en esa atmósfera juvenil en la que no medíamos el tiempo con la tiranía de hoy.

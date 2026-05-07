@@ -3,6 +3,7 @@ title: "De paicas y malevos"
 date: "2012-09-30"
 original_url: https://tangosalbardo.blogspot.com/2012/09/de-paicas-y-malevos.html
 labels: ""
+tags: ["José María Otero"]
 ---
 
 El rito

@@ -3,6 +3,7 @@ title: "Mario Soto"
 date: "2017-12-08"
 original_url: https://tangosalbardo.blogspot.com/2017/12/mario-soto.html
 labels: ""
+tags: ["Celedonio Flores", "Ismael Spitalnik", "Enrique Cadícamo", "Osvaldo Pugliese", "Alberto Morán", "Pedro Laurenz", "Jorge Caldara", "Homero Manzi"]
 ---
 
 Ya pasé de largo las ochocientas mil visitas a este blog y ello me empuja para seguir recordando páginas imperecederas de la música popular rioplatense y también de los personajes que hicieron historia en el tango. Por ejemplo, creo que vale la pena traer hoy a este rincón tanguero, a un poeta que creó páginas que hicieron roncha en los años 40 y 50 y que siguen destilando ese perfume que emana de un frasco destapado, como decía Enrique Cadícamo.

@@ -3,6 +3,7 @@ title: "Leo y Eugenia"
 date: "2012-08-20"
 original_url: https://tangosalbardo.blogspot.com/2012/08/leo-y-eugenia.html
 labels: ""
+tags: ["Libertad Lamarque", "Osvaldo Pugliese", "Pedro Laurenz", "Julio De Caro"]
 ---
 
 Son dos queridos amigos con quienes he compartido infinidad de noches y chamuyetas en Madrid y otros lugares de España.

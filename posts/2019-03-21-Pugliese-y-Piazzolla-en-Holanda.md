@@ -3,6 +3,7 @@ title: "Pugliese y Piazzolla en Holanda"
 date: "2019-03-21"
 original_url: https://tangosalbardo.blogspot.com/2019/03/pugliese-y-piazzolla-en-holanda.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Aníbal Troilo", "Alfredo Gobbi"]
 ---
 
 Un día se tenía que dar... y se dió. Se encontraron en Holanda y el 29 de junio de 1989, actuaron juntas la orquesta de Osvaldo Pugliese y el sexteto de Ástor Piazzolla, en un espectáculo (**Finally Together**) en el Teatro Carré de Amsterdam. Lleno completo, grandes ovaciones y previamente se despacharon en un reportaje que fluía por la tele holandesa. Donde dijeron cosas como estas::

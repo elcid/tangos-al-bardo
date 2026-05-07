@@ -3,6 +3,7 @@ title: "Esos tangos que nos\"tocan\""
 date: "2012-04-09"
 original_url: https://tangosalbardo.blogspot.com/2012/04/normal-0-21-false-false-false.html
 labels: ""
+tags: ["Francisco Lomuto", "Carlos Di Sarli", "Miguel Caló"]
 ---
 
 Los milongueros sentimos que hay tangos, milongas o valses que nos empujan a la pista. Pero también hay algunos que cuando los escuchamos en el reproductor, en el coche o con un audífono pegado a la oreja si vamos de paseanderos, también nos transmiten la devoción instantánea por esa melodía que trae recuerdos, nostalgias, palpitaciones.

@@ -3,6 +3,7 @@ title: "BIEN MILONGA"
 date: "2021-11-02"
 original_url: https://tangosalbardo.blogspot.com/2021/11/bien-milonga.html
 labels: ""
+tags: ["Juan D'Arienzo", "Edgardo Donato", "Héctor Mauré"]
 ---
 
 La vida es una milonga

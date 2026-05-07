@@ -3,6 +3,7 @@ title: "Flor de tango"
 date: "2013-08-22"
 original_url: https://tangosalbardo.blogspot.com/2013/08/flor-de-tango.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Alberto Morán"]
 ---
 
 Se trata del primer tango que incluyó en su repertorio Osvaldo Pugliese, de uno de los integrantes de su orquesta. *Flor de tango*, del violinista uruguayo Julio Carrasco inauguró con este tema una serie de páginas maravillosas, compuestas por sus compañeros o sucesores en la orquesta del pianista de Villa Crespo.

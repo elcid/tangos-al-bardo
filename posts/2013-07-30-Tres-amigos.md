@@ -3,6 +3,7 @@ title: "Tres amigos"
 date: "2013-07-30"
 original_url: https://tangosalbardo.blogspot.com/2013/07/tres-amigos.html
 labels: ""
+tags: ["Roberto Goyeneche", "Enrique Cadícamo", "Armando Pontier", "Cátulo Castillo", "Sebastián Piana", "Alberto Marino", "Horacio Salgán", "Aníbal Troilo"]
 ---
 
 Esta vez no me refiero al tango de Enrique Cadícamo que consagrara Alberto Marino con Aníbal Troilo, sino a tres cantores de primera que dejaron grabadas infinidad de páginas para el recuerdo, y a los que hemos gozado largamente en persona.

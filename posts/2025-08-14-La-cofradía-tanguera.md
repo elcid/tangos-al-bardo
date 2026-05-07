@@ -3,6 +3,7 @@ title: "La cofradía tanguera"
 date: "2025-08-14"
 original_url: https://tangosalbardo.blogspot.com/2025/08/la-cofradia-tanguera.html
 labels: ""
+tags: ["Luis Adolfo Sierra", "Virgilio Expósito", "Armando Pontier", "Alberto Podestá", "Alberto Marino", "Horacio Ferrer", "Carlos Figari", "Héctor Marcó"]
 ---
 
 En el café Petit Colón (Libertad 505) protagonistas de la [generación del cuarenta](https://www.google.com/search?ved=1t:260882&q=generaci%C3%B3n+del+cuarenta+argentina&bbid=7165028562675286196&bpid=3568187003215118277).

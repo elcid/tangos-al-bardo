@@ -3,6 +3,7 @@ title: "Mercedes Simone"
 date: "2014-09-30"
 original_url: https://tangosalbardo.blogspot.com/2014/09/mercedes-simone.html
 labels: ""
+tags: ["Libertad Lamarque", "Sebastián Piana", "Azucena Maizani", "Mercedes Simone", "Rosita Quiroga", "Alberto Gómez", "Pedro Maffia", "Homero Manzi"]
 ---
 
 La gran dama del tango argentino, esa morocha hermosa con un canto claro, preciso, sobrio, que fue madurando, hasta convertirse en paradigma de las muchachas cantoras, vuelve una y otra vez en sus grabaciones-reliquias. Esa chica de Villa Elisa, al lado de La Plata, que subió un poco por las casualidades del destino a un escenario en Bahía Blanca, donde acompañaba a su esposo, el guitarrista Pablo Rodríguez, en 1926, y encontró allí su camino, dejó una huella grande en el tango..

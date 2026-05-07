@@ -3,6 +3,7 @@ title: "BIEN MILONGA"
 date: "2019-01-15"
 original_url: https://tangosalbardo.blogspot.com/2019/01/bien-milonga_15.html
 labels: ""
+tags: ["Alberto Castillo", "Francisco Canaro", "Carlos Di Sarli", "Juan D'Arienzo"]
 ---
 
 * Bailando nos enamoramos,*   * bailando nuestro amor juramos.*  * Testigo el bandoneón*  * nos endulzaba el corazón,*  * con el rezongo de su voz* * acariciante...*   Oscar Rubens

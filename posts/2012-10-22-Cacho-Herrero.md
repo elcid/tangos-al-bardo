@@ -3,6 +3,7 @@ title: "Cacho Herrero"
 date: "2012-10-22"
 original_url: https://tangosalbardo.blogspot.com/2012/10/cacho-herrero.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Alberto Morán"]
 ---
 
 Fue el primer violín de la orquesta de Osvaldo Pugliese durante diez triunfales años, nada menos. Y quien lo convocó para integrarse en las filas del pianista de Villa Crespo, fue Enrique Camerano, otro grande, que entonces ejercía de número uno en la fila de cuerdas y lo tuvo a su lado como segundo desde 1943 hasta 1958. Completaban aquel cuarteto Jaime* *Tursky (reemplazado por Emilio Balcarce) y Julio Carrasco. Al retirarse Camerano, Herrero pasó a ocupar el primer atril y Balcarce sería el segundo.

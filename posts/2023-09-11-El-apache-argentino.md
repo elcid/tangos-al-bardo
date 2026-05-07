@@ -3,6 +3,7 @@ title: "El apache argentino"
 date: "2023-09-11"
 original_url: https://tangosalbardo.blogspot.com/2023/09/el-apache-argentino.html
 labels: ""
+tags: ["Enrique Delfino", "Juan D'Arienzo", "Roberto Firpo"]
 ---
 
 El uruguayo Manuel Gregorio Aróztegui (Montevideo, 4 de enero de 1888-Buenos Aires, 14 de noviembre de 1938) ha de haber sido, con Roberto Firpo, de los primeros que tanguearon sentados al piano para el público de los cafés.

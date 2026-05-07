@@ -3,6 +3,7 @@ title: "Bailongo de los domingos"
 date: "2016-04-30"
 original_url: https://tangosalbardo.blogspot.com/2016/04/bailongo-de-los-domingos.html
 labels: ""
+tags: ["Francisco García Jiménez", "Enrique Rodríguez", "Alberto Echagüe", "Juan D'Arienzo"]
 ---
 
 La censura del gobierno militar le obligó a canmbiar títulos y letras a los tangos y milongas que bañaban a la ciudad de Buenos Aires, convertida en una gigantesca pista de baile. Por eso Castillo lo grabó con Tanturi, bajo el título de arriba y Demare con Berón tuvo que hacerlo como: *El baile de los domingos.* ¡Qué rayada tenían las cabezas aquellos censores que nunca se identificaron con el tango argentino! Siempre prefirieron los ritmos extranjeros, sobre todo si venían del Norte...

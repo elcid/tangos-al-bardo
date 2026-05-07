@@ -3,6 +3,7 @@ title: "BIEN MILONGA"
 date: "2018-10-23"
 original_url: https://tangosalbardo.blogspot.com/2018/10/bien-milonga_23.html
 labels: ""
+tags: ["Alfredo De Angelis", "Julio De Caro", "Carlos Dante"]
 ---
 
 [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjvTcQMijJjhzHwU87B3eMDwTrG6yim4QWrqeDZpEI2mTvPIcEH-5sG5aBlArz85dcvE93aOMdhMeFLhBOg2cxCA6sfBaUqa_d8JTkl-73WbbAty_S8_TE3AumF8h_5JQCaspVco6oeOjBx/s200/41466534_1054849841384940_7378119419139669591_n.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjvTcQMijJjhzHwU87B3eMDwTrG6yim4QWrqeDZpEI2mTvPIcEH-5sG5aBlArz85dcvE93aOMdhMeFLhBOg2cxCA6sfBaUqa_d8JTkl-73WbbAty_S8_TE3AumF8h_5JQCaspVco6oeOjBx/s1600/41466534_1054849841384940_7378119419139669591_n.jpg)

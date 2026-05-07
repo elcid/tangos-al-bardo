@@ -3,6 +3,7 @@ title: "Manuel Buzón"
 date: "2012-09-13"
 original_url: https://tangosalbardo.blogspot.com/2012/09/manuel-buzon.html
 labels: ""
+tags: ["José María Contursi", "Enrique Cadícamo", "Eduardo Arolas", "Rosita Quiroga", "Alfredo Gobbi", "Orlando Goñi", "Manuel Buzón"]
 ---
 
 Hay numerosas orquestas que no llegaron a tener la trascendencia de las más seguidas por bailarines y degustadores del tango, y que, sin embargo, al escucharlas ahora, quienes no las conocieron se dan cuenta que tienen valores interesantes, tanto para milongueros como para los que gustan de nuestra música ciudadana.

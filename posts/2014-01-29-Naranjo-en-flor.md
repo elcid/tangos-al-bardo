@@ -3,6 +3,7 @@ title: "Naranjo en flor"
 date: "2014-01-29"
 original_url: https://tangosalbardo.blogspot.com/2014/01/naranjo-en-flor.html
 labels: ""
+tags: ["Atilio Stampone", "Homero Expósito", "Aníbal Troilo", "Floreal Ruiz"]
 ---
 
 *Perfume de naranjo en flor,*

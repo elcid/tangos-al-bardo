@@ -3,6 +3,7 @@ title: "Metafísica del tango"
 date: "2018-09-27"
 original_url: https://tangosalbardo.blogspot.com/2018/09/metafisica-del-tango.html
 labels: ""
+tags: ["Aníbal Troilo"]
 ---
 
 En este país de opositores, cada vez que alguien hace algo (un presupuesto, una sinfonía o un plan de viviendas mínimas), inmediatamente brotan miles de críticos que lo demuelen con sádica minuciosidad.

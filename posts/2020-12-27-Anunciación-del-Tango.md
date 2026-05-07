@@ -3,6 +3,7 @@ title: "Anunciación del Tango"
 date: "2020-12-27"
 original_url: https://tangosalbardo.blogspot.com/2020/12/anunciacion-del-tango.html
 labels: ""
+tags: ["Julián Centeya"]
 ---
 
 Impongo en mi recuerdo un trazo de distancia: Pompeya era una inmensa latitud de baldío. Aroma la evocada palabra: una fragancia de cedrón, yerba buena, de malvón y miomío.

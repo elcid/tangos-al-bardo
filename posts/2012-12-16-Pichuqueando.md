@@ -3,6 +3,7 @@ title: "Pichuqueando"
 date: "2012-12-16"
 original_url: https://tangosalbardo.blogspot.com/2012/12/pichuqueando.html
 labels: ""
+tags: ["Alberto Echagüe", "Julián Centeya", "Horacio Ferrer", "Aníbal Troilo", "Julián Plaza", "Floreal Ruiz"]
 ---
 
 Domingo plúmbeo en Madrid. Los recuerdos de noches luminosas se atascan en la sesera y nada mejor que pasar un rato acompañado por Aníbal Troilo y su larga época de esplendor. De Pichuco uno guarda tantas anécdotas, que constituyen un reguero interminable y es lindo perorar con amigos tangueros sobre el bagayo de recuerdos lindos.

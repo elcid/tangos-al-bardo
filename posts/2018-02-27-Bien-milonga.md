@@ -3,6 +3,7 @@ title: "Bien milonga"
 date: "2018-02-27"
 original_url: https://tangosalbardo.blogspot.com/2018/02/bien-milonga_27.html
 labels: ""
+tags: ["Francisco Canaro", "Francisco Lomuto", "Osvaldo Zotto", "Miguel Caló", "Raúl Berón", "Charlo"]
 ---
 
 *El asilo que brindan tus brazos,*

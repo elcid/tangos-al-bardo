@@ -3,6 +3,7 @@ title: "D'Arienzo y La cumparsita"
 date: "2015-03-15"
 original_url: https://tangosalbardo.blogspot.com/2015/03/darienzo-y-la-cumparsita.html
 labels: ""
+tags: ["Fulvio Salamanca", "Juan D'Arienzo", "Carlos Dante"]
 ---
 
 Los milongueros asocian este tango inmortal con *El Rey del compás* porque revolucionó todo el mercado con su grabación. Y porque se impuso como cierre de las milongas de los años cincuenta en todos los clubes de Buenos Aires. Era como el gran postre de la gran cena. Y quedarse sin bailar este último tango significaba toda una frustración.

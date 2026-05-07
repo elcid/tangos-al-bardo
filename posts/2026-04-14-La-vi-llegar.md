@@ -3,6 +3,7 @@ title: "La vi llegar"
 date: "2026-04-14"
 original_url: https://tangosalbardo.blogspot.com/2026/04/la-vi-llegar.html
 labels: ""
+tags: ["Julián Centeya", "Miguel Caló"]
 ---
 
 Cuando echamos manos a nuestra discoteca, siempre terminamos encontrando algún disco que nos reengancha con el pasado tanguero-milonguero y que a la vez, nos trae algún pasado olvidado de nuestra caminata por la vida. Por supuesto, me refiero a aquellos temas que desde jovencitos los escuchábamos en la radio, en el candombear de la calesita del barrio, y en los que los silbaban por calle mientras caminaban.

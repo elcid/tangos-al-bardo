@@ -3,6 +3,7 @@ title: "MILONGUITA"
 date: "2025-04-05"
 original_url: https://tangosalbardo.blogspot.com/2025/04/milonguita.html
 labels: ""
+tags: ["Alfredo De Angelis", "Enrique Delfino", "Carlos Dante"]
 ---
 
 Puede repetirse aquí la pregunta tantas veces formulada de si "Milonguita", la inspiradora de los versos perdurables de Samuel Linnig, fue una muchacha de carne y hueso que siguió el itinerario no muy ejemplar trazado en el tango, o, por el contrario, simbolizó la imagen de un infortunio frecuente en las pibas conventilleras a partir de la década del '20, en Buenos Aires.

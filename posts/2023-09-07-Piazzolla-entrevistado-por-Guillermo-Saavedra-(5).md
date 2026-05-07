@@ -3,6 +3,7 @@ title: "Piazzolla entrevistado por Guillermo Saavedra (5)"
 date: "2023-09-07"
 original_url: https://tangosalbardo.blogspot.com/2023/09/piazzolla-entrevistado-por-guillermo_4.html
 labels: ""
+tags: ["Leopoldo Federico", "Astor Piazzolla", "Néstor Marconi"]
 ---
 
 Ante todo, el tango sin el bandoneón, a mi juicio no funciona. No justifico el tango con un saxofón como solista. El bandoneón es el instrumento del tango por excelencia. A veces, en los conciertos, cuento su curiosa historia: el bandoneón nació en una iglesia; de las iglesias europeas fue a los burdeles de Buenos Aires; de allí fue a los cafés; y hoy en día ha entrado en la sala de los conciertos. Es decir, dio toda la vuelta.

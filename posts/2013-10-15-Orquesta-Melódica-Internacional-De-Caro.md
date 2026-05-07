@@ -3,6 +3,7 @@ title: "Orquesta Melódica  Internacional De Caro"
 date: "2013-10-15"
 original_url: https://tangosalbardo.blogspot.com/2013/10/la-orquesta-melodica-internacional-de.html
 labels: ""
+tags: ["Hugo del Carril", "Eduardo Arolas", "Aníbal Troilo", "Julio De Caro", "Pedro Laurenz"]
 ---
 
 La fundó en el año 1936, el gran maestro renovador del tango, Julio De Caro. La integró con numerosos instrumentos de viento y percusión y dos pianos. Se aseguró varias grabaciones como artista exclusivo del Sello Odeón, además de las numerosas actuaciones para las que fue contratada la gran Orquesta, e incluso intervino con ella en el filme nacional: *Murió el sargento Laprida*.

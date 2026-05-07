@@ -3,6 +3,7 @@ title: "BIEN MILONGA"
 date: "2019-04-02"
 original_url: https://tangosalbardo.blogspot.com/2019/04/bien-milonga.html
 labels: ""
+tags: ["Enrique Cadícamo", "Osvaldo Pugliese", "Teófilo Ibáñez", "Juan D'Arienzo"]
 ---
 
 [](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjs8Gwxb7qDS-KZSEGj5PANSxfSTuj7n93tNlxq7ztTJFV51PPDGO5mEa4WapnFI3S5UBO-yvDnbN4ghihRgW-Ikv55bNKhesyLFrBNhTQZh0CC9q4F99OtnvRdfluH7hamIDRuQjp89fIY/s1600/curso-de-baile-tango-zapatos-altos-coreografia.jpg)

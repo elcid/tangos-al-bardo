@@ -3,6 +3,7 @@ title: "Arturo Gallucci"
 date: "2015-07-20"
 original_url: https://tangosalbardo.blogspot.com/2015/07/arturo-gallucci.html
 labels: ""
+tags: ["Alfredo De Angelis", "Celedonio Flores", "Carlos Di Sarli", "Roberto Rufino", "Enrique Dizeo", "Floreal Ruiz", "Jorge Durán"]
 ---
 
 Me parece de justicia recordar a este honbre del tango que creó una parva interminable de tangos, valses, milongas y candombes, muchos de los cuales bailamos a diario en la pista y que fueron obra suya, en yunta con músicos, o algún poeta. La vena le le llegaba de sus padres, que a él y sus hermanos los formaron musicalmente y los incluyeron en su conjunto *Los Fregolini* que actuaban en cines y circos de los barrios porteños.

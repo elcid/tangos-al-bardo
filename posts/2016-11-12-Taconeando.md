@@ -3,6 +3,7 @@ title: "Taconeando"
 date: "2016-11-12"
 original_url: https://tangosalbardo.blogspot.com/2016/11/taconeando.html
 labels: ""
+tags: ["Alberto Echagüe", "Enrique Campos", "Juan D'Arienzo", "Teófilo Ibáñez", "Pedro Maffia", "María Nieves"]
 ---
 
 *¿Quien no sintió*

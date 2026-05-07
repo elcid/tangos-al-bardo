@@ -3,6 +3,7 @@ title: "Amanecer ciudadano"
 date: "2015-10-19"
 original_url: https://tangosalbardo.blogspot.com/2015/10/amanecer-ciudadano.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Víctor Lavallén", "Atilio Stampone", "Julián Plaza", "Miguel Caló"]
 ---
 
 Éste es el titulo de un tango de Víctor Lavallén, que a la vez da nombre a un compacto en el que, el bandoneonista rosarino incluye temas clásicos como *La maleva, Milonga triste* o *El abrojito*, junto a otros de su autoría, entre los que destacan precisamente *Amanecer ciudadano* o *Meridional*. Son temas muy logrados que vuelvo a escuchar en esta mañana lluviosa y que me han empujado en dirección al Blog para revivirlas en parte.

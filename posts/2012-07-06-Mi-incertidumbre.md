@@ -3,6 +3,7 @@ title: "Mi incertidumbre"
 date: "2012-07-06"
 original_url: https://tangosalbardo.blogspot.com/2012/07/mi-incertidumbre.html
 labels: ""
+tags: ["Héctor Varela", "Lucio Demare"]
 ---
 
 Los invito a escuchar este tango poco transitado por nuestras orejas: ***Mi incertidumbre.***

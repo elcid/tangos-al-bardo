@@ -3,6 +3,7 @@ title: "Canaro y Donato"
 date: "2018-06-11"
 original_url: https://tangosalbardo.blogspot.com/2018/06/canaro-y-donato.html
 labels: ""
+tags: ["Francisco Canaro", "Edgardo Donato"]
 ---
 
 Esta interesante anécdota del encuentro entre Francisco Canaro y Edgardo Donato, la cuenta el propio Pirincho en sus memorias. Por lo simpática y llamativa, creo que vale la pena reproducirla.

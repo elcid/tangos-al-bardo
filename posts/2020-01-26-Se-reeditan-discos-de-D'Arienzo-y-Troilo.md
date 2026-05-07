@@ -3,6 +3,7 @@ title: "Se reeditan discos de D'Arienzo y Troilo."
 date: "2020-01-26"
 original_url: https://tangosalbardo.blogspot.com/2020/01/se-reeditan-discos-de-darienzo-y-troilo.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Astor Piazzolla", "Rodolfo Mederos", "Juan D'Arienzo", "Aníbal Troilo", "Julián Plaza", "Julio Sosa"]
 ---
 
 **Se reeditan discos de D'Arienzo y Troilo, dos estilos y dos pasiones**

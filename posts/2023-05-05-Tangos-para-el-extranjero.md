@@ -3,6 +3,7 @@ title: "Tangos para el extranjero"
 date: "2023-05-05"
 original_url: https://tangosalbardo.blogspot.com/2023/05/tangos-para-el-extranjero.html
 labels: ""
+tags: ["Astor Piazzolla", "Horacio Salgán"]
 ---
 
 ** ASTOR PIAZZOLLA**

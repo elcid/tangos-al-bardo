@@ -3,6 +3,7 @@ title: "El último cantor de Troilo"
 date: "2013-10-27"
 original_url: https://tangosalbardo.blogspot.com/2013/10/el-ultimo-cantor-de-troilo.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Cátulo Castillo", "Homero Expósito", "Aníbal Troilo", "Carlos García", "Lucio Demare"]
 ---
 
 Aunque la memoria colectiva no fije a Roberto Achával como cantor de Pichuco, engrosando la nómina de cantores inmensos que dejaron páginas imprescindibles para la historia del tango, este bahiense de Ingeniero White, al sur de la Provincia de Buenos Aires, ha hecho méritos suficientes para ostentar recuerdos laudatorios por su trayectoria.

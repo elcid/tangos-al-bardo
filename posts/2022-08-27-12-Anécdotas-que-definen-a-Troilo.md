@@ -3,6 +3,7 @@ title: "12 Anécdotas que definen a Troilo"
 date: "2022-08-27"
 original_url: https://tangosalbardo.blogspot.com/2022/08/12-anecdotas-que-definen-troilo.html
 labels: ""
+tags: ["Enrique Santos Discépolo", "Astor Piazzolla", "Atilio Stampone", "Homero Expósito", "Roberto Rufino", "Aníbal Troilo"]
 ---
 
 Nada mejor para delinear el perfil de Pichuco que recopilar lo que de él relatan sus amigos. El resultado da cuenta de su famosa generosidad, sus andanzas juveniles, sus pasiones y debilidades, sus virtudes y defectos

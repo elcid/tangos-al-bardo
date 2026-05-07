@@ -3,6 +3,7 @@ title: "Una joyita"
 date: "2013-03-13"
 original_url: https://tangosalbardo.blogspot.com/2013/03/una-joyita.html
 labels: ""
+tags: ["Aníbal Troilo", "Carlos Dante"]
 ---
 
 Ya ven que siempre tengo una baraja guardada para no abandonarlos, pese a que el ritmo de Buenos Aires me lleva a un lado al otro, quiero decir, de una milonga a otra.

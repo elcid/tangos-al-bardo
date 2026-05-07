@@ -3,6 +3,7 @@ title: "Julio Ahumada"
 date: "2013-10-25"
 original_url: https://tangosalbardo.blogspot.com/2013/10/julio-ahumada.html
 labels: ""
+tags: ["Leopoldo Federico", "Joaquín Do Reyes", "Alberto Castillo", "Horacio Salgán", "Horacio Ferrer", "Carlos García", "Agustín Bardi", "Lucio Demare"]
 ---
 
 Este bandoneonista y arreglador rosarino, cuyo nombre no alcanzó la resonancia popular adecuada a sus méritos, fue en cambio un profesional sumamente respetado y admirado por muchos de sus colegas.

@@ -3,6 +3,7 @@ title: "Carlos Gardel"
 date: "2012-06-24"
 original_url: https://tangosalbardo.blogspot.com/2012/06/carlos-gardel.html
 labels: ""
+tags: ["Carlos Gardel"]
 ---
 
 Soy que los que crecieron escuchando a Gardel en la radio y más tarde en la *vitrola*.

@@ -3,6 +3,7 @@ title: "Homero Manzi"
 date: "2023-12-21"
 original_url: https://tangosalbardo.blogspot.com/2023/12/homero-manzi.html
 labels: ""
+tags: ["Pedro Maffia", "Homero Manzi"]
 ---
 
 Sucedió en Chile cuando estaban de gira con Pedro Maffia. Era diciembre de 1935. Allí se encontraron con la orquesta de Efraín Orozco y Homero habló con Jaime Yankelevich y otros productores de teatro para evaluar la posibilidad de contratarlos en Buenos Aires. Cuando vinieron, fue un suceso.

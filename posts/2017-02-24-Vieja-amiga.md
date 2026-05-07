@@ -3,6 +3,7 @@ title: "Vieja amiga"
 date: "2017-02-24"
 original_url: https://tangosalbardo.blogspot.com/2017/02/vieja-amiga.html
 labels: ""
+tags: ["Francisco Fiorentino", "José María Contursi", "Hugo del Carril", "Mercedes Simone", "Aníbal Troilo", "Pedro Laurenz", "Floreal Ruiz"]
 ---
 
 Esta maravillosa página de dos enormes personajes que tuvo el tango: Pedro Laurenz y José María Contursi nos sigue iluminando en las noches milongueras por la polenta contagiante que contiene. Tanto en la música como en los versos del poeta, que cambió el lunfardo fundador de su progenitor en el género, por un lenguaje más culto, emparentado con los Manzi y Le Pera, y que irradió en infinidad de páginas. Muchas de ellas dedicadas a su amor imposible -Gricel-, que llenaron toda una época y siguen vigentes en el gusto popular.

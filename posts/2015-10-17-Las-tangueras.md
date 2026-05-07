@@ -3,6 +3,7 @@ title: "Las tangueras"
 date: "2015-10-17"
 original_url: https://tangosalbardo.blogspot.com/2015/10/las-tangueras.html
 labels: ""
+tags: ["Feliciano Brunelli", "Juan Carlos Copes", "Osvaldo Pugliese", "María Nieves"]
 ---
 
 En realidad, nos estamos refiriendo a las milongueras, porque la letra de este tango señala precisamente a esas bailarinas que engalanan las pistas y que nos atraen como la miel a las moscas. Claro, a la inversa viene a ser lo mismo, y eso lo experimentamos esta noche en **BIEN MILONGA**, que desarrollamos todos los sábados y martes a partir de las 21 horas en la **Casa de Aragón**, situada en la Plaza República Argentina nº 6 de Madrid.

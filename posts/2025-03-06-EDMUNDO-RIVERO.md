@@ -3,6 +3,7 @@ title: "EDMUNDO RIVERO "
 date: "2025-03-06"
 original_url: https://tangosalbardo.blogspot.com/2025/03/arigato-baron-megata.html
 labels: ""
+tags: ["Leopoldo Federico", "Edmundo Rivero"]
 ---
 
 **Arigató, Barón Megata**

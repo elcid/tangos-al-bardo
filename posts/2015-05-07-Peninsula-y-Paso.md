@@ -3,6 +3,7 @@ title: "Peninsula y Paso"
 date: "2015-05-07"
 original_url: https://tangosalbardo.blogspot.com/2015/05/peninsula-y-paso.html
 labels: ""
+tags: ["Enrique Rodríguez", "Juan D'Arienzo"]
 ---
 
 Conviene abrir el abanico de nuestras miradas y campanear cómo se las gastan bailando tango en la zona de Asia. Muchos milongueros podrían llevarse una sorpresa. Es cierto que ya no resulta curioso bailar en Buenos Aires con bailarinas y milongueros de los países de dicha región del globo, pero en este caso me gustaría que nos detengamos y disfrutemos viendo a estos chicos que la saben lunga a la hora de mover los pies al compás de una orquesta de tango argentina.

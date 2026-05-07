@@ -3,6 +3,7 @@ title: "Sol tropical"
 date: "2022-02-20"
 original_url: https://tangosalbardo.blogspot.com/2022/02/sol-tropical.html
 labels: ""
+tags: ["Astor Piazzolla", "Alfredo Le Pera", "Aníbal Troilo"]
 ---
 
 Quizás aparezca como una curiosidad en estas páginas, pero todo lo relativo a Gardel revista una importancia superior. Por todo lo que representó artísticamente para el tango en el mundo entero y como argentino por la proyección universal que adquirieron sus trabajos cinematográficos para la Paramount en los sets parisinos y en Long Island (Nueva York). .   Aníbal Troilo, en una charla que tuvo con Jorge Miguel Couselo, en Mar del Plata en febrero de 1970, le hablaba de Alfredo le Pera, ese poeta del tango que, a mi juicio, no ha recibido el tratamiento merecido por su obra, en líneas generales y que lo engloba entre los grandes poetas del tango:

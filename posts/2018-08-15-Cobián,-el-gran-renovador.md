@@ -3,6 +3,7 @@ title: "Cobián, el gran renovador"
 date: "2018-08-15"
 original_url: https://tangosalbardo.blogspot.com/2018/08/cobian-el-gran-renovador.html
 labels: ""
+tags: ["Francisco Fiorentino", "Juan Carlos Cobián", "Luis Adolfo Sierra", "Celedonio Flores", "Enrique Cadícamo", "Luis Petrucelli", "Aníbal Troilo", "Enrique Dizeo"]
 ---
 
 -(...) En 1928 accedió Cobián a concretar un nuevo ciclo discográfico para Victor. De esta incursión, como siempre reducida a unos pocos registros por su proverbial inconstancia en la continuidad de su actividad profesional, dejó una serie de títulos suyos de reciente composición, tales como *¿Me querés?, Hambre, Vení,vení.... El único lunar, Lamento pampeano, Ladrón *y *Mal camino*. Formó como siempre un conjunto de muy calificados instrumentistas que condujo desde el piano, compartido ahora con René Cóspito o Rodolfo Biagi alternativamente, con el objeto de hacer resaltar el apoyo rítmico de la orquesta. Y junto a ellos Luis Petrucelli, Ciriaco Ortiz, Nicolás Primiani (bandoneones); Elvino Vardaro, Manlio Francia, Fausto Frontera (violines); Humberto Constanzo (contrabajo) y la voz de Francisco Fiorentino.

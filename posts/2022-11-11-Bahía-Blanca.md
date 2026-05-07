@@ -3,6 +3,7 @@ title: "Bahía Blanca"
 date: "2022-11-11"
 original_url: https://tangosalbardo.blogspot.com/2022/11/bahia-blanca.html
 labels: ""
+tags: ["Francisco García Jiménez", "Osvaldo Fresedo", "Roberto Rufino"]
 ---
 
 "**Chau, Di Sarli..."**

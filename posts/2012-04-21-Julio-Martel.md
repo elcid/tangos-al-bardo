@@ -3,6 +3,7 @@ title: "Julio Martel"
 date: "2012-04-21"
 original_url: https://tangosalbardo.blogspot.com/2012/04/julio-martel.html
 labels: ""
+tags: ["Alfredo De Angelis", "Aníbal Troilo", "Julio Martel", "Floreal Ruiz", "Carlos Dante"]
 ---
 
 Es uno de mis cantores predilectos. Por su forma de frasear, por esa voz chiquita, gutural y tan personal. Se llamaba Julio Pedro Harispe y a los 20 años se presentó en un lote de 100 aspirantes, para conseguir una plaza de cantor en la exitosa orquesta de Alfredo De Angelis.

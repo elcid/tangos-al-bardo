@@ -3,6 +3,7 @@ title: "Paciencia"
 date: "2022-05-04"
 original_url: https://tangosalbardo.blogspot.com/2022/05/paciencia.html
 labels: ""
+tags: ["Francisco Gorrindo", "Adolfo Carabelli", "Alberto Echagüe", "Agustín Magaldi", "Juan D'Arienzo"]
 ---
 
 Una y otra vez me interesa volver con este poeta, Francisco Gorrindo, que dejó una ristra de tangos interminable y con mucha polenta. Precisamente, no pierden vigencia por su contenido y el uso emocional del lenguaje. Y aunque muchas veces esos versos quizás no son analizados en profundidad porque prima el ritmo musical, la fuerza de la orquesta-cantor interpretándolos, conviene a veces apearse de ello y analizarlos en profundidad.

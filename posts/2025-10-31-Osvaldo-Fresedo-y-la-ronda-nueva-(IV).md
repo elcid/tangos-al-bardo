@@ -3,6 +3,7 @@ title: "Osvaldo Fresedo y la ronda nueva (IV)"
 date: "2025-10-31"
 original_url: https://tangosalbardo.blogspot.com/2025/10/osvaldo-fresedo-y-la-ronda-nueva-iv.html
 labels: ""
+tags: ["Juan Carlos Cobián", "Osvaldo Fresedo", "Enrique Delfino", "Azucena Maizani", "Julio De Caro", "Ada Falcón"]
 ---
 
 **El “Cuarteto de maestros”**

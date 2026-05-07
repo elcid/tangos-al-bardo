@@ -3,6 +3,7 @@ title: "El ritmo, el tiempo y esa intimidad"
 date: "2022-10-24"
 original_url: https://tangosalbardo.blogspot.com/2022/10/el-ritmo-el-tiempo-y-esa-intimidad.html
 labels: ""
+tags: ["Eduardo Arolas", "Aníbal Troilo", "Roberto Grela", "Pedro Maffia"]
 ---
 
 Se ha dicho que el bandoneón de Aníbal Troilo heredó la oscuridad melancólica de Pedro Maffia, el empuje rítmico de Pedro Láurenz y el fraseo de Ciriaco Ortiz. La genealogía es demasiado amplia y por lo tanto inespecífica, aunque de todas formas es bien problable que la naturaleza con Troilo estuviese en línea con el tono oscuro e íntimo, la delicadeza ornamental y la contención expresiva de Maffia, propiedadades que una personalidad como la suya consiguió trasladar al sonido global de la orquesta (y también a la nobleza expresiva -melódica- de sus canciones, quienes tuvieron en Troilo un maestro de estilo).

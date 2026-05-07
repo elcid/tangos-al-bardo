@@ -3,6 +3,7 @@ title: "Leopoldo Federico"
 date: "2012-07-26"
 original_url: https://tangosalbardo.blogspot.com/2012/07/leopoldo-federico.html
 labels: ""
+tags: ["Juan Carlos Cobián", "Leopoldo Federico", "Atilio Stampone", "Horacio Salgán", "Osmar Maderna", "Julio Sosa"]
 ---
 
 Es uno de los sobrevivientes de la etapa dorada del tango. Y uno de los grandes bandoneonistas de la historia.

@@ -3,6 +3,7 @@ title: "Virgilio Expósito"
 date: "2022-02-17"
 original_url: https://tangosalbardo.blogspot.com/2022/02/virgilio-exposito.html
 labels: ""
+tags: ["Virgilio Expósito"]
 ---
 
 ** Cómo componíamos con mi hermano Homero**

@@ -3,6 +3,7 @@ title: "Golondrinas"
 date: "2022-04-11"
 original_url: https://tangosalbardo.blogspot.com/2022/04/golondrinas.html
 labels: ""
+tags: ["José María Aguilar", "Alfredo Le Pera", "Carlos Gardel"]
 ---
 
 Confieso que me encantan los animales en general, pero especialmente los pájaros y las aves. Me gusta desayunar y ver a través de la ventana a gorriones, urracas, palomas torcazas y otros ejemplares más pequeños revolotear febrilmente de un sitio a otro. Y ahora en primavera observar, como lo estoy haciendo, llegar a las golondrinas viajeras en grandes grupos. Es otro placer visual increíble.

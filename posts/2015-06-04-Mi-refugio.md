@@ -3,6 +3,7 @@ title: "Mi refugio"
 date: "2015-06-04"
 original_url: https://tangosalbardo.blogspot.com/2015/06/mi-refugio.html
 labels: ""
+tags: ["Alfredo De Angelis", "Juan Carlos Cobián", "Adolfo Carabelli", "Osvaldo Fresedo", "Carlos Di Sarli", "Cátulo Castillo", "Atilio Stampone", "Horacio Salgán"]
 ---
 
 Hoy me desperté con este tangazo en el bocho, y lo llevo escuchando en numerosas versiones, de orquestas y cantores. Mejor dicho del cantor máximo: Carlos Gardel. En la milonga lo pongo seguido por Carlos Di Sarli, que lo grabó en dos oportunidades con su conjunto, en 1941 y 1950. La letra de este tango es de Pedro Numa Córdoba y pareciera ser un vaticinio sobre la futura vida del *play boy* Juan Carlos Cobián, que no se corresponde con lo que sería la interminable aventura cotidiana del gran músico bahiense.

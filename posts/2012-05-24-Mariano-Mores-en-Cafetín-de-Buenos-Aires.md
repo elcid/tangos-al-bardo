@@ -3,6 +3,7 @@ title: "Mariano Mores en Cafetín de Buenos Aires"
 date: "2012-05-24"
 original_url: https://tangosalbardo.blogspot.com/2012/05/mariano-mores-en-cafetin-de-buenos.html
 labels: ""
+tags: ["Enrique Santos Discépolo", "Francisco Canaro", "Mariano Mores"]
 ---
 
 Mariano Mores, hizo de galán de cine, en varias comedietas romanticonas. Pero siempre se quejó, y con razón, de su voz finita, casi chillona, que conspiraba contra sus posiblidades artísticas.

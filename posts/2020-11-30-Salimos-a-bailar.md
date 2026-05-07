@@ -3,6 +3,7 @@ title: "Salimos a bailar"
 date: "2020-11-30"
 original_url: https://tangosalbardo.blogspot.com/2020/11/salimos-bailar.html
 labels: ""
+tags: ["Francisco Rotundo", "Ricardo Tanturi", "Armando Pontier", "Alberto Marino"]
 ---
 
 Los milongueros que saltamos jovencitos a las pistas de baile, lo llevamos en la sangre y seguiremos bailando el tango, la milonga y los valsecitos con la misma unción, el mismo mimo, la sensación palpitante que nos transmite esa música, aquellas orquestas y cantores, y los versos poéticos que seguirán penetrando en nuestros oídos como si estuviéramos en aquella época en que sonaban a toda hora por la radio o el tocadiscos.

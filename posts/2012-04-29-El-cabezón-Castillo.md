@@ -3,6 +3,7 @@ title: "El cabezón Castillo"
 date: "2012-04-29"
 original_url: https://tangosalbardo.blogspot.com/2012/04/el-cabezon-castillo.html
 labels: ""
+tags: ["Ricardo Tanturi", "Julio De Caro", "Augusto Berto"]
 ---
 
 Fue un cantorazo. Representó a los barrios profundos en su exagerada manera de cantar el tango. Por eso también fue rechazado por las clases altas.

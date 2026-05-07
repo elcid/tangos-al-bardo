@@ -3,6 +3,7 @@ title: "Por la vuelta"
 date: "2014-09-23"
 original_url: https://tangosalbardo.blogspot.com/2014/09/por-la-vuelta.html
 labels: ""
+tags: ["Juan Carlos Cobián", "Enrique Cadícamo", "María Graña"]
 ---
 
 Enrique Cadícamo fue el más prolífico de los grandes autores que tuvo el tango. Con su estilo sencillo pero llegador, pintó todo lo que tuvo aquel Buenos Aires en el que vivió casi cien años. De cualquier anécdota extraía los versos para un tango y la más notable era que todos sus temas tenían inmediato eco popular. Gardel le grabó nada menos que 23 obras.

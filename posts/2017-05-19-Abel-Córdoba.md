@@ -3,6 +3,7 @@ title: "Abel Córdoba"
 date: "2017-05-19"
 original_url: https://tangosalbardo.blogspot.com/2017/05/abel-cordoba.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Alfredo Belusi", "Héctor Marcó", "Tita Merello", "José Basso"]
 ---
 
 -Yo tuve la suerte de incorporarme a la orquesta de Osvaldo Pugliese cuando la misma estaba atravesando unos de sus mejores momentos. Estaba integrada por e*l tano* Ruggiero, Penón, Lavallén y Plaza en bandoneones. En los violines estaban *Cacho* Herrero, Balcarce y el uruguayo Julio Carrasco. En la viola, Norberto Bernasconi y Quique Lannó, en el bajo Alcides Rossi y, por supuesto, Osvaldo en el piano. Y yo vine a la orquesta. Debuté el 10 de Octubre de 1964 traído de la mano del negro Luis Mela, el recitador en la orquesta que me había escuchado cantar en mi ciudad, en San Francisco, en una confitería de aquel pueblo.

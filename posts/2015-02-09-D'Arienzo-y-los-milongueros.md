@@ -3,6 +3,7 @@ title: "D'Arienzo y los milongueros"
 date: "2015-02-09"
 original_url: https://tangosalbardo.blogspot.com/2015/02/darienzo-y-los-milongueros.html
 labels: ""
+tags: ["Fulvio Salamanca", "Alberto Echagüe", "Juan D'Arienzo", "Héctor Varela", "Héctor Mauré"]
 ---
 
 Despreciado por los críticos, criticado por Piazzolla pero apoyado por los directores de orquesta como Pugliese o Troilo, fue el público quien instaló a D'Arienzo en la cima del gusto popular, especialmente para bailar. Fue durante años la orquesta que más discos vendió y en ese sentido batió record tras record. Yo recuerdo como mi hermano y otros muchachos mayores se juntaban en la plaza vecina con una *victrola *de aquellas de darle a la manivela y se pasaban el rato poniendo discos de D'Arienzo, cuando arrasaba en todos los barrios porteños.

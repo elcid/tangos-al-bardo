@@ -3,6 +3,7 @@ title: "Jorge Omar"
 date: "2013-06-09"
 original_url: https://tangosalbardo.blogspot.com/2013/06/jorge-omar.html
 labels: ""
+tags: ["José María Contursi", "Antonio Bonavena", "Francisco Lomuto", "Roberto Firpo", "Charlo"]
 ---
 
 Fue un buen cantor que militó en aquellos años que los dos Franciscos: Canaro y Lomuto eran junto a Roberto Firpo los que dominaban la popularidad, en cuanto a venta de discos y difusión en radio. Este porteño del barrio de Palermo, de ascendencia vasco-navarro, se llamaba Juan Manuel Ormaechea y entró en la orquesta de Francisco Lomuto en un concurso organizado por el director.

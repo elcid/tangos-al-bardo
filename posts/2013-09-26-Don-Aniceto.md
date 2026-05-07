@@ -3,6 +3,7 @@ title: "Don Aniceto"
 date: "2013-09-26"
 original_url: https://tangosalbardo.blogspot.com/2013/09/don-aniceto.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Aníbal Troilo"]
 ---
 
 A raíz de un amigo que me habla de Aniceto Rossi, el contrabajista que luciera en la orquesta de Don Osvaldo Pugliese, me pareció que valía la pena dedicarle una página, por su gran contribución al desarrrollo del conjunto del *troesma*, gracias a su capacidad en el manejo del instrumento.

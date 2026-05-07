@@ -3,6 +3,7 @@ title: "Raúl Berón con Caló"
 date: "2012-10-23"
 original_url: https://tangosalbardo.blogspot.com/2012/10/raul-beron-con-calo.html
 labels: ""
+tags: ["Domingo Federico", "Homero Expósito", "Carlos Dante", "Miguel Caló", "Raúl Berón"]
 ---
 
 Una de las voces más hermosas que se ha paseado por el firmamento tanguero, ha sido sin duda la de Raúl Berón, ésa que al principio descartaron las grabadoras, el director de la radio y el propio Miguel Caló, por tratarse de un "*folklorista*".

@@ -3,6 +3,7 @@ title: "Nick Jones y Diana Cruz"
 date: "2014-06-04"
 original_url: https://tangosalbardo.blogspot.com/2014/06/nick-jones-y-diana-cruz.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Ignacio Corsini", "Edgardo Donato"]
 ---
 
 Se trata de una pareja de bailarines norteamericanos que impactan por su profunda comprensión del género, su compenetración y la capacidad que demuestran para sorprender permanentemente, bailando seriamente o hasta haciendo algún número humorístico con el tango.

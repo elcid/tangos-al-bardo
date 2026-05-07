@@ -3,6 +3,7 @@ title: "Así se baila hoy"
 date: "2015-10-10"
 original_url: https://tangosalbardo.blogspot.com/2015/10/asi-se-baila-hoy.html
 labels: ""
+tags: ["Alfredo De Angelis", "Francisco Rotundo", "Fulvio Salamanca", "Francisco Canaro", "Alberto Podestá", "Enrique Campos", "Floreal Ruiz", "Miguel Caló"]
 ---
 
 Traigo este tango a la palestra porque refleja unas visiones que pueden contrastarse en las pistas milongueras de todo el mundo. Justo hoy que tenemos **BIEN MILONGA** en la CASA DE ARAGÓN, de Madrid (Salón, Terraza, Restaurante, Bar) como todos los sábados y martes desde las 21 horas, es lindo refrescar las ideas, venir a milonguear con una música que te hace saltar de la silla y te conecta con lo profundo de este género.

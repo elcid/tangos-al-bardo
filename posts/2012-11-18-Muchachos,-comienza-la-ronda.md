@@ -3,6 +3,7 @@ title: "Muchachos, comienza la ronda"
 date: "2012-11-18"
 original_url: https://tangosalbardo.blogspot.com/2012/11/muchachos-comienza-la-ronda.html
 labels: ""
+tags: ["Alberto Castillo", "Carlos Di Sarli", "Ricardo Tanturi", "Armando Pontier", "Enrique Campos"]
 ---
 
 Belleza de tango, con lindo ritmo milonguero y versos acoplados al sentimiento de los bailarines. Y en el que se hace difícil contener los pies y el espíritu cuando arranca Tanturi con esa polenta llamadora y Enriquito Campos le adosa su voz nostalgiosa.

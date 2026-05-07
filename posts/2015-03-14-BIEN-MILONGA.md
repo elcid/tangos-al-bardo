@@ -3,6 +3,7 @@ title: "BIEN MILONGA"
 date: "2015-03-14"
 original_url: https://tangosalbardo.blogspot.com/2015/03/bien-milonga.html
 labels: ""
+tags: ["Ismael Spitalnik", "Osvaldo Pugliese", "Alberto Morán", "Jorge Caldara"]
 ---
 
 Utilizo el nombre del tango de Ismael Spitalnik, y toda la artillería musical de la década del cuarenta con el fin de armar una milonga para exquisitos. Para aquellos que saben degustar la música y los inspira para bailar. Pero además tenemos un piso que está a tono con la música y la milonga, porque no hay nada como un buen piso de madera, bien cuidado y lustrado, para dibujar armonías en el piso.

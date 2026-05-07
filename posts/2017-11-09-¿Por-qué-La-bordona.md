@@ -3,6 +3,7 @@ title: "¿Por qué La bordona?"
 date: "2017-11-09"
 original_url: https://tangosalbardo.blogspot.com/2017/11/por-que-la-bordona.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Aníbal Troilo"]
 ---
 
 ASÍ NACIÓ ESTE TANGO

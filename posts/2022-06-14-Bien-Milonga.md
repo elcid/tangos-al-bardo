@@ -3,6 +3,7 @@ title: "Bien Milonga"
 date: "2022-06-14"
 original_url: https://tangosalbardo.blogspot.com/2022/06/bien-milonga_14.html
 labels: ""
+tags: ["Enrique Rodríguez", "Alberto Echagüe", "Juan D'Arienzo"]
 ---
 
 Con la cadencia de un tango

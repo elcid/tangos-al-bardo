@@ -3,6 +3,7 @@ title: "BIEN MILONGA"
 date: "2019-09-17"
 original_url: https://tangosalbardo.blogspot.com/2019/09/bien-milonga_17.html
 labels: ""
+tags: ["Alberto Castillo", "Francisco Canaro", "Ricardo Tanturi"]
 ---
 
 *Muchachos, comienza la ronda*

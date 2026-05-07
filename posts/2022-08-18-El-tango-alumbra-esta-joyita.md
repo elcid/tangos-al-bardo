@@ -3,6 +3,7 @@ title: "El tango alumbra esta joyita"
 date: "2022-08-18"
 original_url: https://tangosalbardo.blogspot.com/2022/08/el-tango-alumbra-esta-joya.html
 labels: ""
+tags: ["Domingo Federico", "Osvaldo Pugliese"]
 ---
 
 Podemos escuchar de fondo el tango de Esteban Gilardi: **El embrollo**. Pero no hay embrollo sino una obrita de arte entre la foca y la maestra de danza. La complicidad de ella con el animal es increíble..

@@ -3,6 +3,7 @@ title: "Noelia y Carlos"
 date: "2014-05-04"
 original_url: https://tangosalbardo.blogspot.com/2014/05/noelia-y-carlos.html
 labels: ""
+tags: ["Carlos Gavito"]
 ---
 
 Días pasados un amigo me mandó el vídeo de Noelia Hurtado y Carlos Espinoza bailando *La payanca* por D'Arienzo en un Festival y me preguntó si los conocía. A ella yo la seguía desde que ganó el Campeonato Mundial de Tango en pareja con Pablo Rodríguez en 2006. En el rubro Milonga, fueron segundos, pero se les abrió un gran abanico de posibilidades, no sólo en la Argentina sino en Festivales internacionales donde mostraron su donaire y se formaron como maestros.

@@ -3,6 +3,7 @@ title: "DE PAICAS Y MALEVOS"
 date: "2024-04-13"
 original_url: https://tangosalbardo.blogspot.com/2024/04/de-paicas-y-malevos.html
 labels: ""
+tags: ["José María Otero"]
 ---
 
 EL RITO

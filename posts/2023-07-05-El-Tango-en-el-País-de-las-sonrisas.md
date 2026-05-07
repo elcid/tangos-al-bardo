@@ -3,6 +3,7 @@ title: "El Tango en el País de las sonrisas"
 date: "2023-07-05"
 original_url: https://tangosalbardo.blogspot.com/2023/07/el-tango-en-el-pais-de-las-sonrisas.html
 labels: ""
+tags: ["Enrique Cadícamo", "Rosita Quiroga", "Alberto Gómez"]
 ---
 
 Con 31 grados de calor al mediodía, las calles de Tokio -más que largarse a revolver los magazines de GINZA o a enchufarse en el tan mencionado tren bala que no baja de los 200 km/h, para echar un vistazo a la antigua y tradicional ciudad de Kioto (Kioto al revés es Tokio; como vemos el lunfardo también corre en Japón)-, nos invita a refugiarnos en el hotel donde el aire acondicionado realizar el milagro de hacer descender los infernales 31º, a 22º.

@@ -3,6 +3,7 @@ title: "José Colángelo"
 date: "2019-05-06"
 original_url: https://tangosalbardo.blogspot.com/2019/05/jose-colangelo.html
 labels: ""
+tags: ["Leopoldo Federico", "Libertad Lamarque", "Roberto Goyeneche", "Horacio Malvicino", "Francisco Rotundo", "Florindo Sassone", "Astor Piazzolla", "Armando Pontier"]
 ---
 
 José “Pepe” Colángelo pasa revista a su vida con el tango  “Tocar con Troilo era como tocar con Dios”

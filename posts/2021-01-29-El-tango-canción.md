@@ -3,6 +3,7 @@ title: "El tango canción"
 date: "2021-01-29"
 original_url: https://tangosalbardo.blogspot.com/2021/01/el-tango-cancion.html
 labels: ""
+tags: ["José González Castillo", "José María Aguilar", "Luis Adolfo Sierra", "Francisco Canaro", "Pascual Contursi", "Enrique Delfino", "Azucena Maizani", "Ignacio Corsini"]
 ---
 
 Originalmente danza, luego de un proceso de transformación temperamental y estética, el tango fue también canción. Apareció la letra ya con un sentido literario argumental. A poco queda establecida una diferenciación externa de forma y expresión, entre el tango para bailar y el tango para cantar, pero conservando ambas modalidades -como habría de serlo posteriormente el tango exclusivamente para ser escuchado- esencias comunes de ritmo y melodía.

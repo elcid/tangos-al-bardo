@@ -3,6 +3,7 @@ title: "BIEN MILONGA"
 date: "2018-11-13"
 original_url: https://tangosalbardo.blogspot.com/2018/11/bien-milonga_13.html
 labels: ""
+tags: ["Juan D'Arienzo"]
 ---
 
 *Yo soy la milonga*

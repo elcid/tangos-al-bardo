@@ -3,6 +3,7 @@ title: "Fresedo-Ray"
 date: "2013-09-13"
 original_url: https://tangosalbardo.blogspot.com/2013/09/fresedo-ray.html
 labels: ""
+tags: ["Osvaldo Fresedo"]
 ---
 
 Cuando hablamos con toda propiedad, de lo que fueron esos binomios de orquesta-cantor que hicieron roncha en la Buenos Aires tanguera de fines del treinta hasta llegar a los cincuenta, dejando tantas páginas inmortales para la recordación permanente, la lista es muy nutrida. Bastaría con los ejemplos de Troilo-Fiore, D'Arienzo-Echagüe, Tanturi-Castillo-Campos, De Ángelis-Dante-Martel, D'Agostino-Vargas, Di-Sarli-Rufino-Podestá, Pugliese-Morán, Caló-Berón-Iriarte o Francini-Pontier-Sosa, por citar los más recurridos, no podemos dejarnos en el tintero a la diada Fresedo-Ray.

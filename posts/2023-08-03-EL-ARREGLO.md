@@ -3,6 +3,7 @@ title: "EL ARREGLO"
 date: "2023-08-03"
 original_url: https://tangosalbardo.blogspot.com/2023/08/el-arreglo.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Fulvio Salamanca", "Ismael Spitalnik", "Carlos Di Sarli", "Héctor Varela", "Osmar Maderna", "Pedro Laurenz", "Roberto Firpo"]
 ---
 
 Se denomina así a lo que se realiza con lo escrito por el compositor. A diferencia de la música clásica donde todo viene escrito y se respeta, en la música popular se le da forma y se redondea musicalmente lo anotado por el autor, que generalmente viene escrito en partes para piano.

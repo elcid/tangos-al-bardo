@@ -3,6 +3,7 @@ title: "Homenaje a Pichuco"
 date: "2014-01-14"
 original_url: https://tangosalbardo.blogspot.com/2014/01/homenaje-pichuco.html
 labels: ""
+tags: ["Feliciano Brunelli", "Víctor Lavallén", "Daniel Binelli", "Aníbal Troilo", "Ernesto Baffa", "Alfredo Gobbi", "Walter Ríos"]
 ---
 
 Hermoso homenaje el que le brindan estos próceres del fueye al querido Aníbal Troilo. Participan del mismo, de izquierda a derecha: Aberto Garralda (que fuera durante años primer bandoneón de Alfredo Gobbi), Víctor Lavallén, Walter Ríos, Alfredo Cordisco, Daniel Binelli, Ernesto Baffa y Juan Carlos Cavielllo.

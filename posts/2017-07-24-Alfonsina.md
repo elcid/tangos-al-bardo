@@ -3,6 +3,7 @@ title: "Alfonsina"
 date: "2017-07-24"
 original_url: https://tangosalbardo.blogspot.com/2017/07/alfonsina.html
 labels: ""
+tags: ["Francisco Pracánico"]
 ---
 
 Félix Luna y Ariel Ramírez inmortalizaron a esta genial poeta en una canción que dió la vuelta al mundo, por su belleza, y por la protagonista que ocupó un papel estelar en la literatura americana de los años veinte y treinta del siglo pasado. En Uruguay la homenajearon junto a Gabriela Mistral y Juana de Ibarborou, por todo lo que significó para la mujer, la obra de estas grandes escritoras.

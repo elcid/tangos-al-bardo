@@ -3,6 +3,7 @@ title: "Pa'lo que te va a durar"
 date: "2020-01-05"
 original_url: https://tangosalbardo.blogspot.com/2020/01/palo-que-te-va-durar.html
 labels: ""
+tags: ["Roberto Goyeneche", "Celedonio Flores", "Edmundo Rivero", "Aníbal Troilo", "Carlos Gardel", "Mario Demarco", "Jorge Casal"]
 ---
 
 Este tango tiene una historia sumamente curiosa detrás suyo y encierra además el pedido de Carlos Gardel para que fuese compuesto. Es sabido la predilección que tuvo el gran cantor por su guitarrista Guillermo Barbieri. No sólo como acompañante, por sus virtudes de músico, sino incluso como compositor. Estuvo al lado del *Máximo* desde 1921 hasta el trágico final en Medellín.

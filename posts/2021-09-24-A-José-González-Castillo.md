@@ -3,6 +3,7 @@ title: "A José González Castillo"
 date: "2021-09-24"
 original_url: https://tangosalbardo.blogspot.com/2021/09/a-jose-gonzalez-castillo.html
 labels: ""
+tags: ["José González Castillo", "Cátulo Castillo"]
 ---
 
 **Papá entre nosotros**

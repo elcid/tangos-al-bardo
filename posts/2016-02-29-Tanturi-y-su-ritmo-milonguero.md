@@ -3,6 +3,7 @@ title: "Tanturi y su ritmo milonguero"
 date: "2016-02-29"
 original_url: https://tangosalbardo.blogspot.com/2016/02/tanturi-y-su-orquesta-milonguera.html
 labels: ""
+tags: ["Alfredo De Angelis", "Luis Adolfo Sierra", "Enrique Rodríguez", "Francisco Canaro", "Alberto Castillo", "Osvaldo Pugliese", "Francisco Lomuto", "Carlos Di Sarli"]
 ---
 
 Me escribe una amiga que baila muy bien el tango, para pedirme que le hable de la orquesta de Ricardo Tanturi. Yo le explico que ya hice un par de notas sobre este músico, su conjunto y sus cantores fundamentales. Y sigo opinando que es indispensable la tanda de Tanturi en la selección que armo para las milongas, en las que funjo de discjockey, *anche* de milonguero.

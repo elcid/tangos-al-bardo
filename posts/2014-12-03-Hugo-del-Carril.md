@@ -3,6 +3,7 @@ title: "Hugo del Carril"
 date: "2014-12-03"
 original_url: https://tangosalbardo.blogspot.com/2014/12/hugo-del-carril.html
 labels: ""
+tags: ["Libertad Lamarque", "Francisco Canaro", "Armando Pontier", "Alfredo Le Pera", "Hugo del Carril", "Edgardo Donato", "Horacio Salgán", "Carlos Gardel"]
 ---
 
 Creo que la historia del tango, *é anche piú*, ha sido muy injusta con este cantor. Polilifacético artista, ya que comenzó su carrera como locutor de radio, cuando este elemento era el acompañante ideal de las familias, dado que no existía la televisión. Antes, con un amigo del barrio porteño de Flores, compartían serenatas y cantos en algún boliche. Ese amigo -Floreal Ruiz, también treparía alto en el cariño de los tangueros.

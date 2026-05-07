@@ -3,6 +3,7 @@ title: "Ojos negros"
 date: "2013-12-09"
 original_url: https://tangosalbardo.blogspot.com/2013/12/ojos-negros.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Florindo Sassone", "Horacio Salgán", "Vicente Greco", "Carlos Gardel", "Aníbal Troilo", "José Martínez"]
 ---
 
 Este hermoso tango es obra del bandoneonista Vicente Greco, que antes fue flautista y guitarrero y perteneció a una familia de músicos que dejaron sus señas de identidad impregnadas en el tango. Él pergeñó el nombre de *Orquesta típica criolla*, para las que ejecutaban tangos y música de esta rama, para diferenciarla de las que ejecutaban otro tipo de géneros y que pudieron llamarse Característica, jazz, tropical, folklore, internacional y demás.

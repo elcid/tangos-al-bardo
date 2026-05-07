@@ -3,6 +3,7 @@ title: "BIEN MILONGA"
 date: "2019-11-12"
 original_url: https://tangosalbardo.blogspot.com/2019/11/bien-milonga_12.html
 labels: ""
+tags: ["Enrique Rodríguez", "Alberto Marino", "Aníbal Troilo"]
 ---
 
 Muchachos, en esta milonga

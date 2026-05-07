@@ -3,6 +3,7 @@ title: "Pichuco y Quejas de bandoneón"
 date: "2012-04-24"
 original_url: https://tangosalbardo.blogspot.com/2012/04/pichuco-quejas-de-bandoneon.html
 labels: ""
+tags: ["Feliciano Brunelli", "Aníbal Troilo"]
 ---
 
 Fue uno de los más grandes sucesos que cosechó Aníbal Troilo en toda su carrera, el que consiguió con este tango de Juan De Dios Filiberto.

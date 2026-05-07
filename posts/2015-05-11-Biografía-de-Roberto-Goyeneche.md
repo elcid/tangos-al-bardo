@@ -3,6 +3,7 @@ title: "Biografía de Roberto Goyeneche"
 date: "2015-05-11"
 original_url: https://tangosalbardo.blogspot.com/2015/05/biografia-de-roberto-goyeneche.html
 labels: ""
+tags: ["Roberto Goyeneche", "Roberto Pansera", "Enrique Campos", "Alberto Marino", "Edmundo Rivero", "Horacio Salgán", "Carlos Gardel", "Aníbal Troilo"]
 ---
 
 Creo que ésta es la mejor manera de comenzar tangueramente la semana. Un hermoso trabajo que me obsequió el amigo Ruben Polola y que está realizado con los mejores medios, en un estudio especializado en filmografías y videos de todo tipo.

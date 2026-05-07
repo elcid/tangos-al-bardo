@@ -3,6 +3,7 @@ title: "Ubaldo De Lio"
 date: "2012-04-28"
 original_url: https://tangosalbardo.blogspot.com/2012/04/ubaldo-de-lio.html
 labels: ""
+tags: ["Juan Carlos Cobián", "Horacio Salgán", "Mariano Mores", "Ubaldo De Lío"]
 ---
 
 Murió un grande del tango y de la guitarra y lo menos que puedo hacer, después de haberlo gozado tanto, es difrutarlo en su homenaje.

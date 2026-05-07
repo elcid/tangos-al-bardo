@@ -3,6 +3,7 @@ title: "Gaby, la voz sensual"
 date: "2015-03-27"
 original_url: https://tangosalbardo.blogspot.com/2015/03/gaby-la-voz-sensual.html
 labels: ""
+tags: ["José María Contursi", "Carlos Di Sarli", "Armando Pontier", "Alberto Podestá", "Homero Manzi", "Julio Sosa"]
 ---
 
 Aunque la presenten con este aditamento vendedor, realmente la sensualidad está en su cuerpo juvenil, su sonrisa y rostro gatunos, sus maneras, su equipaje de vestimentas y el modus gentil. Por todo esto sorprende que se haya dedicado al tango, que, supuestamente, reclama otros bríos, voces pesadas y barrio, mucho barrio.

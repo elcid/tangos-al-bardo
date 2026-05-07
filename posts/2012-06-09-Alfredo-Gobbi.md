@@ -3,6 +3,7 @@ title: "Alfredo Gobbi"
 date: "2012-06-09"
 original_url: https://tangosalbardo.blogspot.com/2012/06/alfredo-gobbi.html
 labels: ""
+tags: ["Juan Andrés Caruso", "Alfredo Gobbi", "Agustín Bardi", "Mario Demarco"]
 ---
 
 Fue una especie de padrino mío en el ambiente tanguero. A su lado aprendí muchas cosas. Incluso las malas en que no debía caer, gracias a sus sanos consejos, aunque a Alfredo no le gustaba mucho, dar consejos.

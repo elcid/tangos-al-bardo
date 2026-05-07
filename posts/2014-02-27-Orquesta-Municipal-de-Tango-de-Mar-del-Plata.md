@@ -3,6 +3,7 @@ title: "Orquesta Municipal de Tango de Mar del Plata"
 date: "2014-02-27"
 original_url: https://tangosalbardo.blogspot.com/2014/02/orquesta-municipal-de-tango-de-mar-del.html
 labels: ""
+tags: ["José María Contursi", "Enrique Cadícamo", "Armando Pontier"]
 ---
 
 La Orquesta Municipal de Tango de la ciudad de Mar del Plata –Provincia de Buenos Aires, República Argentina- es el organismo musical de más reciente creación de los que dependen del Ente de Cultura de la Municipalidad de General Pueyrredon. Los otros son la Orquesta Sinfónica Municipal, la Banda Municipal de Música, el Quinteto Municipal de Piano y Cuerdas y el Quinteto Municipal de Vientos.

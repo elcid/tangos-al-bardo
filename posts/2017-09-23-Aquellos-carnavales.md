@@ -3,6 +3,7 @@ title: "Aquellos carnavales..."
 date: "2017-09-23"
 original_url: https://tangosalbardo.blogspot.com/2017/09/aquellos-carnavales.html
 labels: ""
+tags: ["Enrique Rodríguez", "Francisco Canaro", "Edgardo Donato", "Pedro Laurenz", "Roberto Firpo"]
 ---
 
 Para quien no los vivió *in person*, es difícil calibrar lo que eran los Grandes Bailes de Carnaval en la Buenos Aires del cuarenta y cincuenta. Yo estuve metido de lleno en estos últimos y doy fe del gentío que se movía en los distintos clubes, salas de teatros, cabarets e incluso el luna Park. En la Sede Social del Club Atlético Huracán, adonde concurría con la barra de amigos, identificados con una camisa de colores que nos hacía una señora del barrio, calculo que fácilmente podían, moverse y bailar en las distintas pistas del club, entre 800 y 1000 personas.

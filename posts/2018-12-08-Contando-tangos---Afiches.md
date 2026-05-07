@@ -3,6 +3,7 @@ title: "Contando tangos - Afiches"
 date: "2018-12-08"
 original_url: https://tangosalbardo.blogspot.com/2018/12/contando-tangos-afiches.html
 labels: ""
+tags: ["Atilio Stampone", "Homero Expósito"]
 ---
 
 Me encanta este trabajo de Félix Taylor, un locutor de gran prestigo, que además canta y lo hace realmente bien, porque su interpretación, está atravesada por pulsiones tan variadas, como el relato y los versos y música de este hermoso tango de Atilio Stampone y Homero Expósito. Un tema donde cohabitan acentos, voces y timbres, con relieve y atmósfera poética.

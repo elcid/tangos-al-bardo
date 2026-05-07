@@ -3,6 +3,7 @@ title: "Mario Soto"
 date: "2022-03-04"
 original_url: https://tangosalbardo.blogspot.com/2022/03/mario-soto.html
 labels: ""
+tags: ["Cátulo Castillo", "Pedro Laurenz", "Alberto Morán", "Homero Manzi"]
 ---
 
 **En esta entrega, la historia de Mario Soto, que no sólo es Pasional, sino también otros temazos, el troesma Pugliese, Laurenz, D'Agostino, George Scotto y Van Johnson. Su paso de 18 años por España y su vuelta a casita, jamás vencido.**

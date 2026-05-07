@@ -3,6 +3,7 @@ title: "El primero de Troilo"
 date: "2013-07-16"
 original_url: https://tangosalbardo.blogspot.com/2013/07/el-primero-de-troilo.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Alberto Podestá", "Alberto Morán", "Raúl Berón", "Charlo"]
 ---
 
 El poeta Héctor Gagliardi tuvo momentos de gran popularidad, vendía libros y actuaba en radio con mucho éxito. Sus versos eran sencillos, pero entrañables. Pinturas de barrio, de hogares, de tipismos de aquel Buenos Aires de los años cuarenta que florecía en tangos.

@@ -3,6 +3,7 @@ title: "“En la orquesta respirábamos todos juntos”...."
 date: "2024-10-08"
 original_url: https://tangosalbardo.blogspot.com/2024/10/en-la-orquesta-respirabamos-todos-juntos.html
 labels: ""
+tags: ["José María Contursi", "Roberto Goyeneche", "Enrique Cadícamo", "Carlos Di Sarli", "Astor Piazzolla", "Cátulo Castillo", "Alberto Marino", "Edmundo Rivero"]
 ---
 
 ...recuerda José Votti, violinista de la orquesta de Aníbal Troilo, que desgrana, en esta nota, otros recuerdos sobre el Gordo Troilo en acción.

@@ -3,6 +3,7 @@ title: "Somos como somos"
 date: "2014-10-07"
 original_url: https://tangosalbardo.blogspot.com/2014/10/somos-como-somos.html
 labels: ""
+tags: ["Cátulo Castillo", "Homero Expósito", "Eladia Blázquez"]
 ---
 
 La genial Eladia Blázquez, esa cantante, ejecutante de piano y de guitarra, que irrumpió a puro talento en el tango que escribían los hombres de letras con letras para los hombres, dejó un tendal de poesías en nuestra música popular que son crudas radiografías de los porteños, de sus sentimientos, sus fracasos, sus mitos, metejones, broncas. Y también de sus tics, su carpeta, su modo de entender la vida, y el deschave de una personalidad que engrupe, que gana, que chorrea desencantos y mufas.

@@ -3,6 +3,7 @@ title: "El tango es salud"
 date: "2014-09-12"
 original_url: https://tangosalbardo.blogspot.com/2014/09/el-tango-es-salud.html
 labels: ""
+tags: ["Domingo Federico", "Homero Expósito", "Aníbal Troilo"]
 ---
 
 Se acaba de realizar el *"Primer estudio internacional sobre el cerebro de tangueros"*, un trabajo casi increible realizado por un grupo de científicos del **Instituto de Neurología Cognitiva**. (¡Agarrate Catalina!). En realidad dicho estudio está realizado, no sobre tangueros como anuncia el epígrafe, sino sobre milongueros que puede o no, ser lo mismo. Porque el tanguero debe saber bastante del tema y muchos milongueros/as, no reconocen ni las orquestas, ni los títulos de los temas que bailan.

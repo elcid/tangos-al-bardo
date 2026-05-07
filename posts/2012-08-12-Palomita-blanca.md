@@ -3,6 +3,7 @@ title: "Palomita blanca"
 date: "2012-08-12"
 original_url: https://tangosalbardo.blogspot.com/2012/08/palomita-blanca.html
 labels: ""
+tags: ["Francisco García Jiménez", "Libertad Lamarque", "Ricardo Tanturi", "Alberto Marino", "Aníbal Troilo", "Carlos Gardel", "Roberto Grela", "Anselmo Aieta"]
 ---
 
 Este hermoso valsecito del bandoneonista Anselmo Aieta con letra de Francisco García Jiménez pasó a la posteridad desde que Carlos Gardel lo grabara el 20 de marzo de 1930, acompañado por las guitarras de Barbieri y Riverol.

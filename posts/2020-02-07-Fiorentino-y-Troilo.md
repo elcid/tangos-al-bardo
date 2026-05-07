@@ -3,6 +3,7 @@ title: "Fiorentino y Troilo"
 date: "2020-02-07"
 original_url: https://tangosalbardo.blogspot.com/2020/02/fiorentino-y-troilo.html
 labels: ""
+tags: ["Francisco Fiorentino", "José María Contursi", "Juan Carlos Cobián", "Francisco Canaro", "Alberto Marino", "Juan D'Arienzo", "Aníbal Troilo", "Julio Pollero"]
 ---
 
 La magia del tango obró estos milagros. Aníbal Troilo buscaba un cantor para su flamante y primera orquesta y no se le dio el que pretendía: Antonio Rodríguez Lesende. Un español, nacido en Vigo, llegado tempranamente a la Argentina y que cantaba los estribillos con diferentes orquestas. Pichuco creyó que era el ideal para arrancar y éste prefirió seguir con sus contratos que le proporcionaban buenos dividendos.

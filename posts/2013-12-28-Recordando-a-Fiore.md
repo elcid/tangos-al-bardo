@@ -3,6 +3,7 @@ title: "Recordando a Fiore"
 date: "2013-12-28"
 original_url: https://tangosalbardo.blogspot.com/2013/12/recordando-fiore.html
 labels: ""
+tags: ["Leopoldo Federico", "Cátulo Castillo", "Aníbal Troilo", "Elba Berón"]
 ---
 
 Fue el cantor de orquesta por antonomasia. Después de sus sesenta grabaciones con la orquesta inicial de Aníbal Troilo, no volvió a ser el mismo que ovacionaban los fans en *Marabú, Germinal* o *Tibidabo. *Curiosamente tampoco lo fue antes de Pichuco. Y de Goñi que le marcaba las entradas y salidas.

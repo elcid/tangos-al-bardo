@@ -3,6 +3,7 @@ title: "Alma de bohemio"
 date: "2016-03-21"
 original_url: https://tangosalbardo.blogspot.com/2016/03/alma-de-bohemio.html
 labels: ""
+tags: ["Juan Andrés Caruso", "Francisco Canaro", "Alberto Castillo", "Alberto Podestá", "Ignacio Corsini", "Teófilo Ibáñez", "Alberto Gómez", "Carlos Gardel"]
 ---
 
 Este tango forma parte de la historia grande del tango porque sus formas muestran el espíritu de avanzada que necesitaba la música popular para evolucionar y mostrar su singular belleza, una vez transcurrida la etapa iniciática del tango canyengue y los esbozos que lucían la inspiración creadora de los Arolas o Bardi.

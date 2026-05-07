@@ -3,6 +3,7 @@ title: "Danza maligna"
 date: "2017-12-04"
 original_url: https://tangosalbardo.blogspot.com/2017/12/danza-maligna.html
 labels: ""
+tags: ["Francisco Pracánico", "Enrique Rodríguez", "Francisco Lomuto", "Agustín Magaldi", "Azucena Maizani", "Edgardo Donato", "Alberto Gómez", "Floreal Ruiz"]
 ---
 
 Hoy me voy a meter en un batuque interesante con este tango que, en principio pareciera emerger de la temática europea, por la forma como trataban en general a los temas que venían del sur del nuevo mundo, caricaturizando con lenguaje exagerado, la réplica que inventaban por estos lares. Y lo más llamativo del caso es que se trata de un tango bien porteño, por el origen de sus autores.

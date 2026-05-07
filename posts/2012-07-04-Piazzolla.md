@@ -3,6 +3,7 @@ title: "Piazzolla"
 date: "2012-07-04"
 original_url: https://tangosalbardo.blogspot.com/2012/07/piazzolla.html
 labels: ""
+tags: ["Leopoldo Federico"]
 ---
 
 Hoy se cumple un nuevo aniversario del fallecimiento del genial músico marplatense.

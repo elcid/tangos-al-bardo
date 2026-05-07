@@ -3,6 +3,7 @@ title: "La cumparsita"
 date: "2013-09-14"
 original_url: https://tangosalbardo.blogspot.com/2013/09/la-cumparsita.html
 labels: ""
+tags: ["Juan D'Arienzo"]
 ---
 
 ¿Qué tanguero de ley no tiene 100 o 400 versiones de este tango inmortal?¿Qué milonguero posta con algunos kilómetros bailados, no lo ha dibujado en la pista 300 o 600 veces? Pues hoy sábado me he puesto a escuchar algunas de esas versiones de orquestas internacionales, y cada tanto las matizo con alguna de las que realizó D'Arienzo, o la de Maffia, Di Sarli o Fresedo, y claro son muy distintas, tienen otro color y las nuestras no recurren a ese latiguillo tipo: *El escondite de Hernando,* de las europeas que cada tanto le agregan, *.*

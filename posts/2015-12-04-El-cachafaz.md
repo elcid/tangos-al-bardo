@@ -3,6 +3,7 @@ title: "El cachafaz"
 date: "2015-12-04"
 original_url: https://tangosalbardo.blogspot.com/2015/12/el-cachafaz.html
 labels: ""
+tags: ["Francisco García Jiménez", "Francisco Canaro", "Osvaldo Pugliese", "Carlos Gardel", "Pedro Maffia"]
 ---
 
 Dejó, tras sus pasos de bailarín de tango, un halo de leyenda que ningún otro pudo alcanzar. Cuando uno piensa en aquel tango iniciático del tango juguetón y canyengue, su figura emerge como símbolo del bailarín de tango que ganó batallas duras y riesgosas gracias a su arte en el manejo de los tiempos, de sus piernas dibujantes y del dueto que supo armar con compañeras de lujo, como Elsa O'Connor (luego devenida en gran actriz dramática), Isabel San Martín y Carmencita Calderón.

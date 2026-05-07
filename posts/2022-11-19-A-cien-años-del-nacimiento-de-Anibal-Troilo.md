@@ -3,6 +3,7 @@ title: " A cien años del nacimiento de Anibal Troilo"
 date: "2022-11-19"
 original_url: https://tangosalbardo.blogspot.com/2022/11/a-cien-anos-del-nacimiento-de-anibal.html
 labels: ""
+tags: ["Astor Piazzolla", "Horacio Ferrer", "Raúl Garello"]
 ---
 
 Aquiles Giacometti fue un eslabón imprescindible en la difusión del tango. Siendo director artístico de la RCA Víctor tuvo gran olfato para fichar a lo más granado del género allá por la década del sesenta, pero su vínculo con los artistas no era solamente empresarial: el tipo estaba en el estudio en cada grabación porque entre otras cosas era un amante de la buena música.

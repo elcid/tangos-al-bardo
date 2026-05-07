@@ -3,6 +3,7 @@ title: "El último adiós"
 date: "2016-03-26"
 original_url: https://tangosalbardo.blogspot.com/2016/03/el-ultimo-adios.html
 labels: ""
+tags: ["Francisco Canaro", "Carlos Di Sarli", "Juan D'Arienzo", "María Nieves"]
 ---
 
 Se trata de un hermoso valsecito que compusiera Juan Santini, un italiano, criado en Argentina, afincado por entonces en Córdoba, aunque luego se establecería en la provincia de Buenos Aires y, que entre otras coas había comenzado a estudiar el bandoneón y compondría un tango que consagró D'Arienzo: *El simpático*.

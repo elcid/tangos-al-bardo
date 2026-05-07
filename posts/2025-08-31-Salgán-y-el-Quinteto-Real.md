@@ -3,6 +3,7 @@ title: "Salgán y el Quinteto Real"
 date: "2025-08-31"
 original_url: https://tangosalbardo.blogspot.com/2025/08/salgan-y-el-quinteto-real.html
 labels: ""
+tags: ["Leopoldo Federico", "Roberto Goyeneche", "Néstor Marconi", "Horacio Salgán", "Aníbal Troilo", "Ubaldo De Lío", "Pedro Laurenz", "Roberto Firpo"]
 ---
 
 Horacio Salgán fue un músico reconocido por sus colegas, en su argamasa de vanguardia y conservadurismo. Ha sido original en sus planteamientos, y, al revés de Piazzolla, alcanza su objetivo desde un comienzo anárquico, por su obsesión de meterse dentro del tango, tocando al modo tradicional.

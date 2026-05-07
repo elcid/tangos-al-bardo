@@ -3,6 +3,7 @@ title: "El tobiano"
 date: "2016-04-15"
 original_url: https://tangosalbardo.blogspot.com/2016/04/el-tobiano.html
 labels: ""
+tags: ["Alberto Castillo", "Osvaldo Pugliese", "Julio Camilloni", "Alberto Marino", "Edgardo Donato", "Alfredo Belusi", "Julián Plaza", "Jorge Durán"]
 ---
 
 Un amigo, desde Alemania, me pide que escriba sobre algunos de los tantos hermosos tangos que fue grabando Osvaldo Pugliese a lo largo de su prolífica carrera como director de Orquesta, que se extendió desde 1943 a 1989. Nada menos que cuarenta y seis años, dejándonos una herencia maravillosa en forma de registros discográficos que nos permiten valorar en toda su dimensión, el arte de este pianista-director-compositor, que siempre supo alinear músicos que se consustanciaran con su estilo tan particular.

@@ -3,6 +3,7 @@ title: "Bien Milonga"
 date: "2022-05-03"
 original_url: https://tangosalbardo.blogspot.com/2022/05/bien-milonga.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Ricardo Tanturi", "Julio De Caro"]
 ---
 
 Salir a bailar este tango

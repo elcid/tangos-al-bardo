@@ -3,6 +3,7 @@ title: "Juan Polito"
 date: "2012-12-29"
 original_url: https://tangosalbardo.blogspot.com/2012/12/juan-polito.html
 labels: ""
+tags: ["Francisco Gorrindo", "Alberto Echagüe", "Juan D'Arienzo", "Anselmo Aieta", "Juan Maglio"]
 ---
 
 Aunque su nombre no fulgure como otros pianistas de Juan D'Arienzo, lo cierto es que Juan Polito dió motivos más que suficientes como para merecer unos elogios que, raramente, se le mezquinaron.

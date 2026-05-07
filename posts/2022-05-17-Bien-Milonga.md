@@ -3,6 +3,7 @@ title: "Bien Milonga"
 date: "2022-05-17"
 original_url: https://tangosalbardo.blogspot.com/2022/05/bien-milonga_17.html
 labels: ""
+tags: ["Alfredo De Angelis", "Osvaldo Pugliese", "Juan D'Arienzo", "Carlos Dante"]
 ---
 
 Salir a bailar este tango es empezar a quererte,

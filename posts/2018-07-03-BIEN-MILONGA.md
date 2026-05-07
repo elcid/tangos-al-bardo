@@ -3,6 +3,7 @@ title: "BIEN MILONGA"
 date: "2018-07-03"
 original_url: https://tangosalbardo.blogspot.com/2018/07/bien-milonga.html
 labels: ""
+tags: ["Francisco Canaro", "Carlos Bahr"]
 ---
 
 *Compás floreado de tango*

@@ -3,6 +3,7 @@ title: "Canta pajarito"
 date: "2013-08-08"
 original_url: https://tangosalbardo.blogspot.com/2013/08/canta-pajarito.html
 labels: ""
+tags: ["Carlos Di Sarli", "Homero Expósito", "Roberto Rufino", "Carlos Gardel", "Lucio Demare", "Raúl Berón", "José Canet"]
 ---
 
 Este tango se creó en el año 1943 y aunque no ha sido muy reiterado en distintos repertorios, ha dejado una hermosa estela en las versiones de Raúl Berón con la orquesta de Lucio Demare y por Roberto Rufino con el maestro Carlos Di Sarli. Quizás por ser insuperables en estos dos registros, no se han repetido.

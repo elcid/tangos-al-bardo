@@ -3,6 +3,7 @@ title: "Bahía Blanca"
 date: "2015-08-31"
 original_url: https://tangosalbardo.blogspot.com/2015/08/bahia-blanca.html
 labels: ""
+tags: ["Francisco García Jiménez", "Carlos Di Sarli", "Cátulo Castillo"]
 ---
 
 Aunque ya le he dedicado una página del blog a este delicioso tango de Don Carlos Di Sarli, hoy me levanté con esta música en mi cabeza y no puedo dejar de paladearla. Porque es como un sedante para los nervios, según feliz expresión de Francisco García Jiménez, pero a la vez muy milonguera la música y la interpretación de la orquesta.

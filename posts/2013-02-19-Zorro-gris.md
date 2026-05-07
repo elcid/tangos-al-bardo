@@ -3,6 +3,7 @@ title: "Zorro gris"
 date: "2013-02-19"
 original_url: https://tangosalbardo.blogspot.com/2013/02/zorro-gris.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Eduardo Arolas", "Carlos Gardel"]
 ---
 
 Día gris en Madrid. Gris de ganas, gris de fiaca, gris de ideas. Como diría el Catunga: Qué ganas de llorar en esta tarde gris.

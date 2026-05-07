@@ -3,6 +3,7 @@ title: "La galarcita"
 date: "2019-09-15"
 original_url: https://tangosalbardo.blogspot.com/2019/09/la-galarcita.html
 labels: ""
+tags: ["Juan D'Arienzo", "Roberto Firpo"]
 ---
 
 Siempre me llamó la atención este tango, por su factura rítmica, el título sugerente, el cargamento milonguero que atesora, sobre todo en el registro discográfico de la orquesta de D'Arienzo. También destaca su permanencia en los poblados caminos del tango, pese a que el autor de la música, es un flautista que apenas registra este tema solitario en su curriculum: Mauricio Guariglia.

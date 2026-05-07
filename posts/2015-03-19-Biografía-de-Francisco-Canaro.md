@@ -3,6 +3,7 @@ title: "Biografía de Francisco Canaro"
 date: "2015-03-19"
 original_url: https://tangosalbardo.blogspot.com/2015/03/biografia-de-francisco-canaro.html
 labels: ""
+tags: ["Francisco Canaro"]
 ---
 
 Como les hablaba estos días de la obra enorme de este hombre nacido en San José (Uruguay) y radicado con su familia en Buenos Aires, cuando era un niño, junto a sus hermanos, ya que la prole del matrimonio italiano llegó a diez hijos. Pirincho, como lo bautizó la comadrona que asistió al parto, no tuvo prácticamente colegio y se crió en la más absoluta pobreza, por lo cual debió trabajar desde pequeño para ayudar al sostenimiento de la familia.

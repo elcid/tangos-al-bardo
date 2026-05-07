@@ -3,6 +3,7 @@ title: "Tangueando y bardeando al nuevo año"
 date: "2015-12-21"
 original_url: https://tangosalbardo.blogspot.com/2015/12/tangueando-y-bardeando-al-nuevo-ano.html
 labels: ""
+tags: ["Charlo"]
 ---
 
 ¿Qué me contursi? El 2015 se toma el piro y desde gotanes al bardo, te dizeo de vardaro que lo pases do reyes**,** bon viván, que aprendas la lesende, que te juegues por lo que Vargas y no te duermas en los laurenz, que bailes y gires como un troilo con una linda minotto, que la vivas como un ray hasta agotar el cupo, que vivas con de caro, gambeteando a la canaro y al spitalnik, y rajando de lío. Que tu casal sea un castillo, ledesmas al amor, miranda siempre como floreal la vida, sin salirte del carril, mimando tu panzera, el basso siempre repleto y haciendo algún biagi interesante.

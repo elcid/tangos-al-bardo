@@ -3,6 +3,7 @@ title: "BIEN MILONGA"
 date: "2019-10-29"
 original_url: https://tangosalbardo.blogspot.com/2019/10/bien-milonga_29.html
 labels: ""
+tags: ["Alberto Castillo", "Alberto Podestá", "Pedro Laurenz"]
 ---
 
 Ahora es el momento

@@ -3,6 +3,7 @@ title: "Luna llena"
 date: "2019-02-23"
 original_url: https://tangosalbardo.blogspot.com/2019/02/luna-llena.html
 labels: ""
+tags: ["Cátulo Castillo", "Aníbal Troilo", "Homero Manzi", "Floreal Ruiz", "Raúl Garello"]
 ---
 
 Esta semana tuvimos el milagro de una luna que iluminó de manera especial, como guiándonos por el camino y acompañándonos en nuestra caminata noctámbula o mientras le dábamos máquina al coche. Ese pedazo de círculo luminoso, tan hermoso, me llevó por las calles y me retrotrajo a muchas páginas del historial tanguero que la recuerdan, la veneran y precisamente, por ser nocheros, en nuestras vigilias milongueras la apreciamos de modo especial.

@@ -3,6 +3,7 @@ title: "Rivero analiza a Gardel"
 date: "2020-06-30"
 original_url: https://tangosalbardo.blogspot.com/2020/06/rivero-analiza-gardel.html
 labels: ""
+tags: ["Edmundo Rivero"]
 ---
 
 En su libro **Las voces GARDEL y el canto**, entre otros, Edmundo Rivero hace un profundo análisis de las virtudes canoras del gran cantor nacido en Francia y muerto en Colombia. Vale la pena recordar esas sabias palabras de alguien que conocía a fondo el *mettier* donde también destacó y fue otro lujo para el tango. Por eso entiendo que es importante reproducir unas partes de este artículo que nos aclara muchas cosas para poder entender el gran fenómeno que fue Gardel, el inventor del tango cantado.

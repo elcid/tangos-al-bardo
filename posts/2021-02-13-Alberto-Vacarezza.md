@@ -3,6 +3,7 @@ title: "Alberto Vacarezza"
 date: "2021-02-13"
 original_url: https://tangosalbardo.blogspot.com/2021/02/alberto-vacarezza.html
 labels: ""
+tags: ["Libertad Lamarque", "Enrique Delfino", "Azucena Maizani", "Aníbal Troilo", "Jorge Casal"]
 ---
 
 Creo que sería muy injusto no destacar la importancia que tuvo el sainete en el desarrollo del teatro argentino y los actores de ambos sexos que le dieron vida a los personajes de aquellos cuadros escénicos. A la vez, este tipo de espectáculo sirvió para la aparición de infinidad de tangos que reverberaron en la continuidad de epígonos, nutriéndose con esa materia de sainete que reflejaba la vida en los conventillos y barrios porteños. Aquellas costumbres, los inmigrantes que se apiñaban en ellos, amores, nostalgias, las familias que se iban formando...

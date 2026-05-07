@@ -3,6 +3,7 @@ title: "Los Lipesker"
 date: "2013-06-30"
 original_url: https://tangosalbardo.blogspot.com/2013/06/los-lipesker.html
 labels: ""
+tags: ["José María Contursi", "Leopoldo Federico", "Francisco Canaro", "Cátulo Castillo", "Alfredo Belusi", "Aníbal Troilo", "Julio De Caro", "Reinaldo Yiso"]
 ---
 
 Hijos de un matrimonio judío de Odessa, Rusia, que se estableció en Rosario, fueron seis los hermanos que vinieron al mundo en suelo argentino. De ellos, cuatro se dedicarían profesionalmente a la música luego de haber estudiado seriamente en la capital santafecina: Félix, León, Santos y Freddy.

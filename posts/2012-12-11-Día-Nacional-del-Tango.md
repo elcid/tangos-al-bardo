@@ -3,6 +3,7 @@ title: "Día Nacional del Tango"
 date: "2012-12-11"
 original_url: https://tangosalbardo.blogspot.com/2012/12/dia-nacional-del-tango.html
 labels: ""
+tags: ["Carlos Gardel", "Julio De Caro", "Tita Merello"]
 ---
 
 Se festeja este día merced al Decreto 3781/77, establecido el 19 de diciembre de 1977, propiciado por Ben Molar que se le ocurrió la idea, el mismo día, pero de 1965, yendo a la casa de Julio De Caro para festejar su cumpleaños. Primero lo consiguió a nivel Municipal y un tiempo más tarde a nivel Nacional, aprovechando la coincidencia en el día de nacimiento de Carlos Gardel (1890) y Julio De Caro (1899).

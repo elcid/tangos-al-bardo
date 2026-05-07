@@ -3,6 +3,7 @@ title: "El Rey del Tango"
 date: "2014-10-06"
 original_url: https://tangosalbardo.blogspot.com/2014/10/el-rey-del-tango.html
 labels: ""
+tags: ["Florindo Sassone"]
 ---
 
 Así denominaron en vida al compositor letón Oscar Davydovich Strok, autor de más de 300 tangos y composiciones de todo tipo, muchas de las cuales fueron famosas, dieron la vuelta al mundo y fueron cantadas por diferentes cantantes y ejecutadas por orquestas de todo tipo. Algunas de sus composiciones más famosas fueron *Black eyes* (Ojos negros), *Tell me why *(Dime ¿por qué?) o *Moon rhapsody* (Rapsodia a la luna).

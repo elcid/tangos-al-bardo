@@ -3,6 +3,7 @@ title: "AUDICIONES RADIALES DE TANGO"
 date: "2023-06-27"
 original_url: https://tangosalbardo.blogspot.com/2023/06/audiciones-radiales-de-tango.html
 labels: ""
+tags: ["Francisco García Jiménez", "Luis Adolfo Sierra", "Julián Centeya", "Lito Bayardo"]
 ---
 
 Las audiciones consagradas especialmente al género son, desde los comienzos hasta nuestros días, una cantidad importantísima y algunas de ellas han quedado para siempre en el recuerdo popular, como** Ronda de ases, Grandes valores del tango** o el **Glostora tango club.**

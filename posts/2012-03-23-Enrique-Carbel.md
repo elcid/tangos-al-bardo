@@ -3,6 +3,7 @@ title: "Enrique Carbel"
 date: "2012-03-23"
 original_url: https://tangosalbardo.blogspot.com/2012/03/enrique-carbel.html
 labels: ""
+tags: ["Francisco Gorrindo", "Alberto Echagüe", "Juan D'Arienzo", "Horacio Salgán", "Héctor Marcó"]
 ---
 
 La página de hoy nos trae a un cantor lamentablemente fallecido cuando aún no había cumplido 28 años y tenía un mundo de posibilidades artísticas por delante.

@@ -3,6 +3,7 @@ title: "Bien milonga"
 date: "2016-05-14"
 original_url: https://tangosalbardo.blogspot.com/2016/05/bien-milonga.html
 labels: ""
+tags: ["Ismael Spitalnik", "Alberto Echagüe", "Juan D'Arienzo"]
 ---
 
 Hoy es sábado, día o mejor dicho: noche de milonga. Y en Madrid llamamos así, como el tango de Ismael Spitalnik, a la que manejo en la Casa de Aragón, de la Plaza República Argentina nº 6, todos los sábados y martes del año, a partir de las 21 horas. Realizamos una selección primorosa de tangos, milongas y valsecitos, como para que no quede nadie sentado a lo largo de la noche, como aprendí en carne propia, en aquellos años fervorosos del 50, en los clubes más milongueros de Buenos Aires.

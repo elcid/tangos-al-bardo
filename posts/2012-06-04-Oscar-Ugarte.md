@@ -3,6 +3,7 @@ title: "Oscar Ugarte"
 date: "2012-06-04"
 original_url: https://tangosalbardo.blogspot.com/2012/06/oscar-ugarte.html
 labels: ""
+tags: ["Rosita Quiroga", "Aníbal Troilo", "Carlos Gardel"]
 ---
 
 Fue lo que se dió en llamar "Cantor nacional". Lo era todo aquel que en su repertorio tanto podía tener tangos, como milongas pampeanas, zambas, tonadas y páginas en general del folklore.

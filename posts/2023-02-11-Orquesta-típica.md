@@ -3,6 +3,7 @@ title: "Orquesta típica"
 date: "2023-02-11"
 original_url: https://tangosalbardo.blogspot.com/2023/02/orquesta-tipica-la-misa-de-arrabal.html
 labels: ""
+tags: ["Vicente Greco", "Aníbal Troilo", "Pedro Maffia"]
 ---
 
 La misa de arrabal restalla su filarmonía en los diablescos instrumentos que

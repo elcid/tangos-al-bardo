@@ -3,6 +3,7 @@ title: "Guillermo Rico"
 date: "2012-05-08"
 original_url: https://tangosalbardo.blogspot.com/2012/05/guillermo-rico.html
 labels: ""
+tags: ["Feliciano Brunelli", "Francisco Canaro", "Azucena Maizani", "Hugo del Carril", "Mercedes Simone", "Alberto Gómez"]
 ---
 
 Con el seudónimo de Guillermo Coral cantó en la orquesta de Francisco Canaro entre 1945 y 1947. Alto, buena pinta, y gran facilidad para imitar a otros colegas, su destino estuvo marcado por esta faceta.

@@ -3,6 +3,7 @@ title: "Bien milonga"
 date: "2018-03-13"
 original_url: https://tangosalbardo.blogspot.com/2018/03/bien-milonga_13.html
 labels: ""
+tags: ["Francisco Canaro", "Fulvio Salamanca", "Carlos Bahr"]
 ---
 
 * Compás floreado de tango*

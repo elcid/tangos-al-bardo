@@ -3,6 +3,7 @@ title: "Dioni d'Amaral"
 date: "2014-04-14"
 original_url: https://tangosalbardo.blogspot.com/2014/04/dioni-damaral.html
 labels: ""
+tags: ["José María Contursi", "Virgilio Expósito", "Armando Pontier"]
 ---
 
 *O acaso aquel romance / que solo nombra / cuando se pone triste / con el alcohol...*

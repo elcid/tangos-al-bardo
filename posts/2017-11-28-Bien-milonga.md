@@ -3,6 +3,7 @@ title: "Bien milonga"
 date: "2017-11-28"
 original_url: https://tangosalbardo.blogspot.com/2017/11/bien-milonga_28.html
 labels: ""
+tags: ["Enrique Cadícamo", "Ricardo Tanturi", "Juan D'Arienzo", "Enrique Campos"]
 ---
 
 *Con su gemir de corazones *  * los bandoneones lloran su pena,*  * *  * igual que yo sollozan ellos,*  * *  * porque en sus notas hay amores*  * *  * y por amores hoy sufro yo.*  * *Enrique Cadícamo *

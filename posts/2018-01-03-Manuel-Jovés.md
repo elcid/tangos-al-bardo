@@ -3,6 +3,7 @@ title: "Manuel Jovés"
 date: "2018-01-03"
 original_url: https://tangosalbardo.blogspot.com/2018/01/manuel-joves.html
 labels: ""
+tags: ["Carlos Di Sarli", "Ignacio Corsini", "Edmundo Rivero", "Carlos Gardel", "Manuel Romero"]
 ---
 
 "*El argentino desciende... de los barcos"*, sentenció en una oportunidad Jorge Luis Borges, dando a entender que la llegada de tantísimos inmigrantes europeos al puerto de Buenos Aires, había generado infinidad de hijos de aquellos que huían de guerras y miserias y buscaban su porvenir en la lejana tierra que los acogía, y de la que habían oído hablar a algún familiar o vecino que se les había adelantado en el viaje.

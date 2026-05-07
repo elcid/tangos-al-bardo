@@ -3,6 +3,7 @@ title: "Bien milonga"
 date: "2021-09-14"
 original_url: https://tangosalbardo.blogspot.com/2021/09/bien-milonga_14.html
 labels: ""
+tags: ["Juan D'Arienzo", "Ángel Villoldo", "Aníbal Troilo", "Carlos Gavito"]
 ---
 
 TANGO EL 14

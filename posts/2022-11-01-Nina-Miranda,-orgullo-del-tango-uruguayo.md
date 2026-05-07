@@ -3,6 +3,7 @@ title: "Nina Miranda, orgullo del tango uruguayo"
 date: "2022-11-01"
 original_url: https://tangosalbardo.blogspot.com/2022/11/nina-miranda-montevideo-1925-era.html
 labels: ""
+tags: ["Libertad Lamarque", "José María Otero", "Donato Racciatti", "Ignacio Corsini"]
 ---
 
 Nina Miranda (Montevideo, 1925) era uruguaya, pero vivía en Buenos Aires. Fue seguramente la mejor voz tanguera nacida en ese pequeño país. Se llamaba en realidad Nelly María Hunter y hasta el último momento siguió conservando el brillo y potencia de su voz y actuando ocasionalmente. Su nombre artístico lo tomó del personaje dramático que interpretaba Libertad Lamarque en la película Puerta cerrada, que vio a los 13 años y que, en aquel mismo momento, decidió que adoptaría el día que fuese artista. Falleció en Buenos Aires el pasado domingo, a los 86 años.

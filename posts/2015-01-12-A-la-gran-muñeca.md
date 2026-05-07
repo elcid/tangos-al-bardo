@@ -3,6 +3,7 @@ title: "A la gran muñeca"
 date: "2015-01-12"
 original_url: https://tangosalbardo.blogspot.com/2015/01/a-la-gran-muneca.html
 labels: ""
+tags: ["Francisco García Jiménez", "Alfredo De Angelis", "Osvaldo Pugliese", "Joaquín Do Reyes", "Donato Racciatti", "Alberto Di Paulo", "Francisco Lomuto", "Carlos Di Sarli"]
 ---
 
 Fue un exitazo y todo un descubrimiento cuando lo registró la orquesta de Carlos Di Sarli en forma instrumental. A la semana de salir el disco a la venta, se escuchaba reiteradamente por radio y en las milongas causaba furor. Era la época de oro del tango, y este tema había pasado sin pena ni gloria desde que se estrenara en el desaparecido Teatro Buenos Aires de la calle Cangallo, por donde hoy pasa la Avenida 9 de Julio, en 1919.

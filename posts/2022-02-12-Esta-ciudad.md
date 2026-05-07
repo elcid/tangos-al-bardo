@@ -3,6 +3,7 @@ title: "Esta ciudad"
 date: "2022-02-12"
 original_url: https://tangosalbardo.blogspot.com/2022/02/esta-ciudad.html
 labels: ""
+tags: ["Osvaldo Pugliese"]
 ---
 
 Reconozco que toda la obra del poeta Héctor Negro me fascina, me acerca al barrio natal, a la adolescencia y la juventud, las primeras aventuras, los códigos de la barra y todo aquello que fue quedando atrás pero que tanto sirvió para transitar la ruta de la vida. Sus versos son filosofía pura. Porteñería al mango. El lenguaje que se encuentra imaginariamente con lo visual.

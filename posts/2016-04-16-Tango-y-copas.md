@@ -3,6 +3,7 @@ title: "Tango y copas"
 date: "2016-04-16"
 original_url: https://tangosalbardo.blogspot.com/2016/04/tango-y-copas.html
 labels: ""
+tags: ["Francisco Canaro", "Juan D'Arienzo", "Manuel Romero", "Miguel Caló", "Carlos Bahr"]
 ---
 
 Este tango de Carlos Bahr y Héctor María Artola, que fuera un éxito en la versión de Troilo-Marino, es de los que nos invitan a acudir a la fiesta diaria de la milonga, como hacemos nosotros en la Casa de Aragón de Madrid, los sábados y martes al caer la nochecita, desde las 21 horas. En BIEN MILONGA, sabemos resaltar los valores de la música nacida en Buenos Aires que hoy reina en todo el mundo, como vaticinaba Manuel Romero. Bahr lo pinta así:

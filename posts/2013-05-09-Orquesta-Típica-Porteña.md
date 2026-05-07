@@ -3,6 +3,7 @@ title: "Orquesta Típica Porteña"
 date: "2013-05-09"
 original_url: https://tangosalbardo.blogspot.com/2013/05/orquesta-tipica-portena.html
 labels: ""
+tags: ["Luis César Amadori", "Adolfo Carabelli", "Luis Petrucelli", "Teófilo Ibáñez", "Alberto Gómez", "Aníbal Troilo", "Juan Maglio"]
 ---
 
 La RCA Víctor creó varias denominaciones de orquestas con el único popósito de vender discos, en la década del treinta. La *Orquesta Típica Porteña* vino a ser un símil de la *Típica Víctor*, con otra denominación y los mismos músicos.

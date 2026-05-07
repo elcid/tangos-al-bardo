@@ -3,6 +3,7 @@ title: "Pedro Laurenz"
 date: "2015-02-19"
 original_url: https://tangosalbardo.blogspot.com/2015/02/pedro-laurenz.html
 labels: ""
+tags: ["José María Contursi", "Luis Adolfo Sierra", "Eduardo Del Piano", "Osvaldo Pugliese", "Alberto Podestá", "Aníbal Troilo", "Julio De Caro", "Pedro Laurenz"]
 ---
 
 Entre las muchas cosas que lamento de la herencia que nos dejaron los músicos enormes que tuvo el tango y sus orquestas, está la escasa producción discográfica de algunos de ellos. Sobre todo de algunos grandes, como Pedro Laurenz por ejemplo. Es cierto que hay numerosos grabaciones de su etapa en el sexteto de Julio De Caro o con el Quinteto Real, pero echo de menos que su excelente orquesta de fines de los años treinta a los cuarenta, nos dejara apenas 60 temas registrados en placas.

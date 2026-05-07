@@ -3,6 +3,7 @@ title: "Julio De Caro abrió los caminos de la evolución"
 date: "2022-04-21"
 original_url: https://tangosalbardo.blogspot.com/2022/04/julio-de-caro-abrio-los-caminos-de-la.html
 labels: ""
+tags: ["Juan Carlos Cobián", "Leopoldo Federico", "Osvaldo Pugliese", "Carlos Di Sarli", "José Libertella", "Daniel Binelli", "Néstor Marconi", "Horacio Salgán"]
 ---
 
 La escuela decareana abrió todos los caminos de la evolución del tango. Francisco De Caro -hermano de Julio- fue quien revolucionó lo iniciado por Juan Carlos Cobián. Con él y por él quedó claramente definido que el piano debía realizar el acompañamiento armónico.

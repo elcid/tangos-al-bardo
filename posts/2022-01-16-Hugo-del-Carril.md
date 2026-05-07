@@ -3,6 +3,7 @@ title: "Hugo del Carril"
 date: "2022-01-16"
 original_url: https://tangosalbardo.blogspot.com/2022/01/hugo-del-carril.html
 labels: ""
+tags: ["Francisco Canaro", "Armando Pontier", "Hugo del Carril", "Edgardo Donato", "Carlos Gardel", "Manuel Romero", "Mariano Mores", "Floreal Ruiz"]
 ---
 
 Hablar de Hugo del Carril es recordar a un grande de verdad. Como cantor de tango, galán de cine, director de infinidad de películas, hombre recto que tuvo que pagar su orientación política con la cárcel, el posterior destierro, para seguir triunfando en el cine y escenarios de México. Quizás el tango le debe un mayor reconocimiento por todo lo que aportó en este apartado, más allá de sus grandes logros en la pantalla cinematográfica.

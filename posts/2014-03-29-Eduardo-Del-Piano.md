@@ -3,6 +3,7 @@ title: "Eduardo Del Piano"
 date: "2014-03-29"
 original_url: https://tangosalbardo.blogspot.com/2014/03/eduardo-del-piano.html
 labels: ""
+tags: ["Eduardo Del Piano", "Eduardo Arolas", "Pedro Maffia", "Ángel Vargas"]
 ---
 
 Bandoneonista de fuste, de estudios y de calle, por su barrio natal de Barracas bebió en las fuentes nutricias y solía pasar por delante de la casa de Eduardo Arolas, a quien admiraba profundamente, aunque no llegó a conocerlo. Familia de inmigrantes italianos arracimados en un conventillo, el padre se las ingenió para mantener a la prole integrada por ocho hijos, entre los cuales el larguirucho Eduardo, segundo del lote, dividía su tiempo juvenil entre el fútbol y el tango.

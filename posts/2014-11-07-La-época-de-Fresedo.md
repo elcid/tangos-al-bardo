@@ -3,6 +3,7 @@ title: "La época de Fresedo"
 date: "2014-11-07"
 original_url: https://tangosalbardo.blogspot.com/2014/11/la-epoca-de-fresedo.html
 labels: ""
+tags: ["José María Contursi", "Osvaldo Fresedo", "Carlos Di Sarli", "Cátulo Castillo", "Roberto Pansera", "Alberto Gómez", "Ricardo Ruiz", "Carlos Bahr"]
 ---
 
 Evidentemente fue uno de los que propiciaron con su talento y su empuje, la evolución del tango. Ese es su mayor aporte al género, donde dejó una lista de temas de largo recorrido. Muchos realizados con su hermano Emilio, que dejó el violín por la poesía tanguera y firmó con Osvaldo temas inolvidables como *Aromas, Vida mía, Siempre es carnaval, Cielito mío, Volverás, Porque, Sollozos, El Once, Madre dime por qué, No supe vivir, Rosarina linda, Tango mío, Pobre chica, Canto de amor.*

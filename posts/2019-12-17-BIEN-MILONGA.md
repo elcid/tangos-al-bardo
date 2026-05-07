@@ -3,6 +3,7 @@ title: "BIEN MILONGA"
 date: "2019-12-17"
 original_url: https://tangosalbardo.blogspot.com/2019/12/bien-milonga_17.html
 labels: ""
+tags: ["Carlos Di Sarli", "Roberto Rufino", "Juan D'Arienzo"]
 ---
 
 Fugaz historia de los dos.

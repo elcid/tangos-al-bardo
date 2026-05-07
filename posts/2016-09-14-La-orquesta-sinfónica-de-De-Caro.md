@@ -3,6 +3,7 @@ title: "La orquesta sinfónica de De Caro"
 date: "2016-09-14"
 original_url: https://tangosalbardo.blogspot.com/2016/09/la-orquesta-sinfonica-de-de-caro.html
 labels: ""
+tags: ["Aníbal Troilo", "Pedro Laurenz", "Julio De Caro"]
 ---
 
 Ocurrió en 1932, cuando todavía el tango no terminaba de encontrar sus formas definitivas, aunque infinidad de páginas creadas por aquellos músicos de la era iniciática, quedarían como paradigma de tangos señeros y lustrosos. Arolas y Bardi principalmente habían dejado ya una herencia que sería base del tango futuro por la maravilla de sus composiciones.

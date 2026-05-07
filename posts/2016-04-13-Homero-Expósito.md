@@ -3,6 +3,7 @@ title: "Homero Expósito"
 date: "2016-04-13"
 original_url: https://tangosalbardo.blogspot.com/2016/04/homero-exposito.html
 labels: ""
+tags: ["Enrique Santos Discépolo", "Libertad Lamarque", "Domingo Federico", "Francisco Lomuto", "Armando Pontier", "Hugo del Carril", "Homero Expósito", "Miguel Caló"]
 ---
 
 Está unánimamente reconocido como el gran renovador en la *letrística* del tango, como él le llamaba a los versos alineados con la música, dentro del género al cual se adscribió como referente. Y lo hizo en una época vital para el mismo, porque Buenos Aires se había abrazado definitivamente a la causa y silbar o cantar un tango por la calle era muy común en esos años de gloria, cuando la radio despachaba tangos a toda hora, y tanto orquestas como cantantes no sabían de pausas en su trabajo diario.

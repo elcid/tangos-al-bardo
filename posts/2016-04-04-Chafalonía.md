@@ -3,6 +3,7 @@ title: "Chafalonía"
 date: "2016-04-04"
 original_url: https://tangosalbardo.blogspot.com/2016/04/chafalonia.html
 labels: ""
+tags: ["Osvaldo Fresedo"]
 ---
 
 Hoy es un día gris, brumoso, típicamente primaveral de Madrid. Y además, descargando agua desde el cielo, a partir de las primeras horas del día, sin interrupciones. Días que invitan a la desgana, la pereza, al *dolce far niente*. Pero la cabeza sigue funcando a media máquina y los recuerdos bullen en mi cabeza mientras escucho tangos viejos y románticos.

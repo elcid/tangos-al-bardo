@@ -3,6 +3,7 @@ title: "Los recuerdos del Polaco"
 date: "2021-01-08"
 original_url: https://tangosalbardo.blogspot.com/2021/01/los-recuerdos-del-polaco.html
 labels: ""
+tags: ["Homero Expósito", "Astor Piazzolla", "Horacio Salgán", "Raúl Kaplún"]
 ---
 
 ** Los comienzos**

@@ -3,6 +3,7 @@ title: "Quiero papita"
 date: "2016-01-18"
 original_url: https://tangosalbardo.blogspot.com/2016/01/quiero-papita.html
 labels: ""
+tags: ["Alberto Gómez"]
 ---
 
 Este tango fue compuesto por el violinista Ernesto Ponzio en los albores del siglo veinte y le adaptaría posteriormente unos versos una letra María Luisa Carnelli, usando como seudónimo habitual el nombre de su hijo: Luis Mario. En su primera época supo tener un estribillo que decía:

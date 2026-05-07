@@ -3,6 +3,7 @@ title: "Chupita Stamponi"
 date: "2012-07-14"
 original_url: https://tangosalbardo.blogspot.com/2012/07/chupita-stamponi.html
 labels: ""
+tags: ["Homero Expósito", "Ricardo Ruiz", "Miguel Caló", "Raúl Lavié"]
 ---
 
 Héctor Stamponi fue un notable pianista del tango, oscurecido por los grandes de ese instrumento que brillaron más que él.

@@ -3,6 +3,7 @@ title: "La última grela"
 date: "2013-01-30"
 original_url: https://tangosalbardo.blogspot.com/2013/01/la-ultima-grela.html
 labels: ""
+tags: ["Cátulo Castillo", "Aníbal Troilo", "Walter Ríos", "Raúl Lavié"]
 ---
 
 Es uno de mis frecuentes viajes a Montevideo, allá por 1967, concurrí como lo hacía habitualmente a una Librería donde compraba libros de tango y otros rubros, que en Buenos Aires no encontraba.

@@ -3,6 +3,7 @@ title: "¿Tanguero o milonguero?"
 date: "2023-02-20"
 original_url: https://tangosalbardo.blogspot.com/2023/02/tanguero-o-milonguero.html
 labels: ""
+tags: ["Enrique Rodríguez", "Carlos Di Sarli", "Edmundo Rivero", "Carlos Gardel", "Roberto Firpo", "Orlando Goñi", "Lucio Demare", "Raúl Berón"]
 ---
 
 Esta pregunta, formulada en Europa, seguramente tendrá fácil decantación de uno u otro lado. El tango tiene muchos años de permanencia en el viejo mundo y por acá han pasado los grandes cantores, desde Carlos Gardel hacia adelante, como también numerosas orquestas típicas. Incluso han habido algunas radicadas en este continente, y arrancando desde París para actuar en otros países.

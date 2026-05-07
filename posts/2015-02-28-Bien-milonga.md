@@ -3,6 +3,7 @@ title: "Bien milonga"
 date: "2015-02-28"
 original_url: https://tangosalbardo.blogspot.com/2015/02/bien-milonga_28.html
 labels: ""
+tags: ["Homero Manzi", "Charlo"]
 ---
 
 "* En tu teclado está, como escondida* / *hermano bandoneón toda mi vida...".*

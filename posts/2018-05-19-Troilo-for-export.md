@@ -3,6 +3,7 @@ title: "\"Troilo for export\""
 date: "2018-05-19"
 original_url: https://tangosalbardo.blogspot.com/2018/05/troilo-for-export.html
 labels: ""
+tags: ["Juan D'Arienzo", "Aníbal Troilo"]
 ---
 
 Corría el mes de marzo del año 1963, cuando llegó a Buenos Aires, el directivo de la RCA Victor en Nueva York, Lee Shapiro. Era administrador de música popular y extranjera, en la División de comercialización de la discográfica. Venía con la misión de grabar temas de tango con lo último del sistema y más moderno de las técnicas. Fundamentalmente, la idea primordial era difundir esos registros discográficos en Estados Unidos. Para ello contrataron a Aníbal Troilo y Juan D'Arienzo..

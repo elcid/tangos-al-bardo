@@ -3,6 +3,7 @@ title: "Roberto Rufino"
 date: "2012-06-26"
 original_url: https://tangosalbardo.blogspot.com/2012/06/roberto-rufino.html
 labels: ""
+tags: ["Carlos Di Sarli", "Cátulo Castillo", "Roberto Rufino", "Aníbal Troilo", "Mario Demarco", "Héctor Marcó", "Miguel Caló"]
 ---
 
 Como a cualquier buen tanguero o fana milonguero, me gusta constantemente repasar mi discoteca, recrearme en una música determinada, con la orquesta que me motiva en ese momento, o una voz que remueva mis recuerdos y mi pasión.

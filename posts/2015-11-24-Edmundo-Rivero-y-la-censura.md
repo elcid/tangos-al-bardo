@@ -3,6 +3,7 @@ title: "Edmundo Rivero y la censura"
 date: "2015-11-24"
 original_url: https://tangosalbardo.blogspot.com/2015/11/edmundo-rivero-y-la-censura.html
 labels: ""
+tags: ["Leopoldo Federico", "Celedonio Flores", "Edmundo Rivero"]
 ---
 
 En su libro subtitulado: *El lunfardo y yo*, Edmundo Rivero habla de los avatares de la censura y lo que sucedió con tantas letras de tango que se esfurmaron temporalmente porque no tenían arreglo en su métrica y sentido expresivo. Ahí tallaba la larga mano de los inquisidores de los años 40, detrás de los cuales estaba el Cardenal Capello, que fuera antes Arzobispo de Buenos Aires . Y Rivero lo recordaba así:

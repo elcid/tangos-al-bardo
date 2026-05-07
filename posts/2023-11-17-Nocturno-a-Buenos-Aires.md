@@ -3,6 +3,7 @@ title: "Nocturno a Buenos Aires"
 date: "2023-11-17"
 original_url: https://tangosalbardo.blogspot.com/2023/11/nocturno-buenos-aires.html
 labels: ""
+tags: ["Horacio Ferrer", "Raúl Garello"]
 ---
 
 Y fue un extraño laberinto,

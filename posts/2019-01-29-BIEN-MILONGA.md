@@ -3,6 +3,7 @@ title: "BIEN MILONGA"
 date: "2019-01-29"
 original_url: https://tangosalbardo.blogspot.com/2019/01/bien-milonga_29.html
 labels: ""
+tags: ["Juan D'Arienzo", "Edgardo Donato", "Julio De Caro"]
 ---
 
 * Tango, compás y amor...*

@@ -3,6 +3,7 @@ title: "Pompas de jabón"
 date: "2026-01-31"
 original_url: https://tangosalbardo.blogspot.com/2026/01/pompas-de-jabon.html
 labels: ""
+tags: ["Roberto Goyeneche", "Enrique Cadícamo", "Carlos Gardel", "Julio De Caro", "Pedro Laurenz"]
 ---
 
 En 1925, o sea hace un poquito más de cien años, [Enrique Cadícamo](https://www.google.com/search?ved=1t:260882&q=Enrique+Cad%C3%ADcamo&bbid=7165028562675286196&bpid=1720151406796601600) debutaba en el [tango](https://www.google.com/search?ved=1t:260882&q=define+tango&bbid=7165028562675286196&bpid=1720151406796601600) como poeta, con este tango que musicalizaría el pianista [Roberto Emilio Goyeneche](https://www.google.com/search?ved=1t:260882&q=Roberto+Emilio+Goyeneche&bbid=7165028562675286196&bpid=1720151406796601600). Lamentablemente, el 22 de abril de dicho año, fallecería tempranamente el citado músico que en 1922 viajó a España con la compañía teatral Muiño-Alippi.

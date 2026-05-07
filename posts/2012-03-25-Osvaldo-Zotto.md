@@ -3,6 +3,7 @@ title: "Osvaldo Zotto"
 date: "2012-03-25"
 original_url: https://tangosalbardo.blogspot.com/2012/03/osvaldo-zotto.html
 labels: ""
+tags: ["Celedonio Flores", "Osvaldo Zotto"]
 ---
 
 Hace un poquito más de dos años que se fue definitivamente un gran bailarín de tango y un gran amigo.

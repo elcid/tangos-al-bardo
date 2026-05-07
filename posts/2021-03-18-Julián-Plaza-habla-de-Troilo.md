@@ -3,6 +3,7 @@ title: "Julián Plaza habla de Troilo"
 date: "2021-03-18"
 original_url: https://tangosalbardo.blogspot.com/2021/03/julian-plaza-y-troilo.html
 labels: ""
+tags: ["Astor Piazzolla", "Alberto Gómez", "Julián Plaza", "Miguel Caló"]
 ---
 
 Yo admiraba desde chico a Pichuco. Y un día -todos nos conocíamos entonces- me escuchó tocar en Radio El Mundo. Recuerdo que con él estaban Piazzolla (que después recordaría este contacto), el cantor Fiorentino, el pianista Goñi. Bueno ahí recibí el primer aliento del Gordo. Pero me faltaba recorrer camino.Yo tenía apenas 17 años y me enrolé en la orquesta de Miguel Caló.

@@ -3,6 +3,7 @@ title: "BIEN MILONGA"
 date: "2018-11-27"
 original_url: https://tangosalbardo.blogspot.com/2018/11/bien-milonga_27.html
 labels: ""
+tags: ["Alfredo De Angelis", "Francisco Canaro", "Aníbal Troilo"]
 ---
 
 * Ya está sonando la orquesta*

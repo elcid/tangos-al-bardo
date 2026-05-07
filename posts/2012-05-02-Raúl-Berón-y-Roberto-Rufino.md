@@ -3,6 +3,7 @@ title: "Raúl Berón y Roberto Rufino"
 date: "2012-05-02"
 original_url: https://tangosalbardo.blogspot.com/2012/05/raul-beron-y-roberto-rufino.html
 labels: ""
+tags: ["Carlos Di Sarli", "Armando Pontier", "Homero Expósito", "Roberto Rufino", "Lucio Demare", "Miguel Caló", "Raúl Berón"]
 ---
 
 Ya conocen mi devoción por Raúl Berón. Por su su voz melódica y modélica. Por su fraseo, su acento gardeliano y el sentido rítmico del tango.

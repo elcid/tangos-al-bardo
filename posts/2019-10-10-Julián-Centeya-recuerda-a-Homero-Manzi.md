@@ -3,6 +3,7 @@ title: "Julián Centeya recuerda a Homero Manzi"
 date: "2019-10-10"
 original_url: https://tangosalbardo.blogspot.com/2019/10/julian-centeya-recuerda-homero-manzi.html
 labels: ""
+tags: ["Julián Centeya", "Homero Manzi"]
 ---
 
 HOMERO MANZI

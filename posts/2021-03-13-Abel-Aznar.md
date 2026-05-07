@@ -3,6 +3,7 @@ title: "Abel Aznar"
 date: "2021-03-13"
 original_url: https://tangosalbardo.blogspot.com/2021/03/abel-aznar.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Florindo Sassone", "Carlos Di Sarli", "Julio Camilloni", "Alberto Morán", "Alfredo Gobbi", "Héctor Varela", "Jorge Casal"]
 ---
 
 Es de justicia volver a aquellos años cincuenta, cuando el tango iba atravesando todavía un período de gran prosperidad. Con mucha repercusión en los bailes de los clubes, las confiterías céntricas, en la radio y en los discos que se vendían a puñados. Las orquestas estaban en su apogeo y había compositores y poetas uniéndose en su destino de crear obras para el presente y la posteridad.

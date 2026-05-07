@@ -3,6 +3,7 @@ title: "El flaco Morán"
 date: "2012-09-28"
 original_url: https://tangosalbardo.blogspot.com/2012/09/el-flaco-moran.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Jorge Caldara", "Alberto Morán"]
 ---
 
 Fue el cantor que más arrastre tuvo entre la parroquia femenina. Los temas que interpretaba eran pasionales, desgarrantes, sentimentales. En esa tesitura no tuvo rival.

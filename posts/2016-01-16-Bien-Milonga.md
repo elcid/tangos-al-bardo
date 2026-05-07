@@ -3,6 +3,7 @@ title: "Bien Milonga"
 date: "2016-01-16"
 original_url: https://tangosalbardo.blogspot.com/2016/01/bien-milonga.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Carlos Di Sarli", "Alberto Podestá", "Osvaldo Zotto"]
 ---
 
 Sí, hoy es sábado, el día justo para milonguear y para eso tenemos un hermoso salón con piso de madera lustrada, ideal para gastar suela, o eso que tienen hoy día por debajo, los zapatos de baile. Nos citamos en la CASA DE ARAGÓN, (Pza. República Argentina nº 6). El día se presta, fresquito, con un solcito que calienta la osamenta, y que entibiaremos aún más cuando nos movamos al compás de esos maravillosos temas que inventaron las orquestas del treinta y cuarenta, y que cada día que pasa son más entrañables.

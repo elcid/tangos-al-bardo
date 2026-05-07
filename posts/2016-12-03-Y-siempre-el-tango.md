@@ -3,6 +3,7 @@ title: "Y siempre el tango"
 date: "2016-12-03"
 original_url: https://tangosalbardo.blogspot.com/2016/12/y-siempre-el-tango.html
 labels: ""
+tags: ["Alberto Castillo", "Carlos Di Sarli", "Roberto Rufino", "Mario Pomar"]
 ---
 
 *"Bailarines de afición*

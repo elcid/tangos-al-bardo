@@ -3,6 +3,7 @@ title: "Fresedo y la ronda nueva (XI)"
 date: "2025-11-04"
 original_url: https://tangosalbardo.blogspot.com/2025/11/fresedo-y-la-ronda-nueva-xi.html
 labels: ""
+tags: ["Juan Carlos Cobián", "Francisco Canaro", "Enrique Delfino", "Eduardo Arolas", "Julio De Caro", "Pedro Maffia"]
 ---
 
 ** El “estilo Fresedo” según Fresedo**

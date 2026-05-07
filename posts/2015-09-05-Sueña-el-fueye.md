@@ -3,6 +3,7 @@ title: "Sueña el fueye..."
 date: "2015-09-05"
 original_url: https://tangosalbardo.blogspot.com/2015/09/suena-el-fueye.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Francisco Canaro", "Juan D'Arienzo", "Homero Manzi", "Lucio Demare"]
 ---
 
 Así arrancaba Homero Manzi los versos evocativos del tango **Tal vez será su voz**. Y en este como en tantos poemas musicales que registra el tango a lo largo de su andadura, flotan historias, remembranzas, encuentros y desencuentros que se producen en el desfile de las parejas por la pista. La milonga es un muestrario de personajes, de sentimientos y la música le pone el condimento esencial para que se desarrollen esos novelones, por la pasión que que anida en las milongas.

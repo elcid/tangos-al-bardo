@@ -3,6 +3,7 @@ title: "Bailarín compadrito"
 date: "2025-04-12"
 original_url: https://tangosalbardo.blogspot.com/2025/04/bailarin-compadrito.html
 labels: ""
+tags: ["Luis Bayón Herrera", "Francisco Canaro", "Julio De Caro", "Manuel Romero", "Charlo"]
 ---
 
 Ya hablé en otras notas de mi estimado amigo Miguel Bucino, con quien compartí tardes turfísticas en el Hipódromo de Palermo y también en diálogos tangueros. Porque en el programa radial "*Dialogando con swing*", que yo compartía con Osvaldo Papaleo, lo tuvimos toda una mañana y ahí aproveché para sonsacarle la entraña de muchas de sus creaciones que tuvieron notable repercusión.

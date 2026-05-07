@@ -3,6 +3,7 @@ title: "Pepe Libertella"
 date: "2013-07-25"
 original_url: https://tangosalbardo.blogspot.com/2013/07/pepe-libertella.html
 labels: ""
+tags: ["Carlos Di Sarli", "José Libertella", "Edmundo Rivero", "Osmar Maderna", "Julio De Caro", "Julián Plaza", "Ángel Vargas", "Luis Stazo"]
 ---
 
 Fue uno de esos tipos laburadores que aunaron el trabajo al talento, y no paró nunca desde que descubrió un bandoneón en su barrio de Villa Lugano en la periferia porteña. Había nacido en Calvera, perteneciente a Potenza, en la Basilicata, del sur profundo de Italia. Su padre que era especialista en tejados, resolvió emigrar a la Argentina y se instaló en Villa Lugano. Allí fue construyendo una casita con sus propias manos y cuando la tuvo lista, mandó llamar a la familia en la cual estaba Giuseppe, el niño de once meses que se criaría en ese suburbio campestre y sería un porteño de pura cepa.

@@ -3,6 +3,7 @@ title: "Salgán-De Lío"
 date: "2012-05-25"
 original_url: https://tangosalbardo.blogspot.com/2012/05/salgan-de-lio.html
 labels: ""
+tags: ["Horacio Salgán", "Anselmo Aieta", "Mariano Mores", "Ubaldo De Lío"]
 ---
 
 Una yunta inamovible por un espacio de más de 50 años, es algo rarísimo entre artistas. Máxime cuando se trata de dos genios como en el caso del enorme pianista Horacio Salgán y el genial guitarrista Ubaldo De Lío, cuyo obituario tuve la desgraciada oportunidad de escribir hace pocos días en el *Diario El País*.

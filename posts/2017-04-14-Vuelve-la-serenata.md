@@ -3,6 +3,7 @@ title: "Vuelve la serenata"
 date: "2017-04-14"
 original_url: https://tangosalbardo.blogspot.com/2017/04/vuelve-la-serenata.html
 labels: ""
+tags: ["Alberto Castillo", "Cátulo Castillo", "Teófilo Ibáñez", "Aníbal Troilo", "Jorge Casal", "Raúl Berón"]
 ---
 
 Cátulo Castillo y Aníbal Troilo tejieron en común una ristra imperdible de tangos, milongas y valsecitos que nos siguen sacudiendo a través de las versiones que quedaron grabadas. Con el gesto de situarse en el pasado, mostrando las estampas de la época, los desamores, rituales, romances y costumbres de aquellos tiempos, Cátulo desborda su fluencia versicular. Y Pichuco le pone el cáliz de su música para dejarnos estos temas instalados en el alma.

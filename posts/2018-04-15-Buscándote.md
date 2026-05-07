@@ -3,6 +3,7 @@ title: "Buscándote"
 date: "2018-04-15"
 original_url: https://tangosalbardo.blogspot.com/2018/04/buscandote.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Osvaldo Fresedo", "Pedro Maffia", "Lito Bayardo", "Ricardo Ruiz", "Homero Manzi"]
 ---
 
 Haber llegado a las 850.000 visitas en este blog no es cosa menor. Y pensando en que estos principios de siglo son profundamente melancólicos, y que esa melancolía se fundamenta en el desarraigo, en los desplazamientos de masas de ciudadanos que huyen de situaciones complejas en sus países, me lleva a concluir en que el tango es también una fuente de conocimiento que puede combatir esa melancolía.

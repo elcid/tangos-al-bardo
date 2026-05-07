@@ -3,6 +3,7 @@ title: "El Rey del compás"
 date: "2014-08-14"
 original_url: https://tangosalbardo.blogspot.com/2014/08/el-rey-del-compas.html
 labels: ""
+tags: ["Fulvio Salamanca", "Arturo De Bassi", "Alberto Echagüe", "Juan D'Arienzo", "Julio De Caro", "Carlos Waiss"]
 ---
 
 Nunca mejor puesto ese título por Ángel Sánchez Carreño -el *Príncipe cubano*, que manejaba el Chantecler-, a la orquesta de Juan D'Arienzo. La que reinó en una Buenos Aires que silbaba y cantaba tangos por la calle y los milongueaba en los grandes templos de la ciudad. Los discos que salían al mercado eran mercadería que se vendía en cantidades increíbles.

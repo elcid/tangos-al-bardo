@@ -3,6 +3,7 @@ title: "Cuando tallan los recuerdos"
 date: "2016-08-29"
 original_url: https://tangosalbardo.blogspot.com/2016/08/cuando-tallan-los-recuerdos.html
 labels: ""
+tags: ["Juan Carlos Cobián", "Luis Adolfo Sierra", "Enrique Cadícamo", "Eugenio Nóbile", "Aníbal Troilo", "Orlando Goñi", "Manuel Buzón"]
 ---
 
 Y recurro al título de ese grato y evocador tango que hicieron Enrique Cadícamo y Rafael Rossi, para reflejar mi estado de ánimo, cuando repaso antiguas páginas y observo imágenes con hermosas historias detrás. La música completa el cuadro, con el fueye de Pichuco destapando sus esencias. Y es un poco la historia de tres músicos amigos, bandoneonistas ellos, que supieron brillar en aquella Buenos Aires poblada de tangos, de noches interminables y de silbidos que orlaban las calles porteñas.

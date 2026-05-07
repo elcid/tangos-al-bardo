@@ -3,6 +3,7 @@ title: "Buenos Aires en los ojos"
 date: "2015-11-07"
 original_url: https://tangosalbardo.blogspot.com/2015/11/buenos-aires-en-los-ojos.html
 labels: ""
+tags: ["Edgardo Donato", "Romeo Gavioli", "Héctor Varela"]
 ---
 
 Claro, si estamos bailando los mismos tangos impresionantes que bailábamos hace *taytantos* años. Y cada día nos suenan más hermosos, más milongueros. ¿O será que los llevamos en el cuore y nos transmiten electricidad a los remos? Cuántos argentinos que tuvieron que marcharse por dictaduras o por políticas erráticas, aprendieron a bailarlos en otros lugares y se convirtieron en milongueros casi sin quererlo.

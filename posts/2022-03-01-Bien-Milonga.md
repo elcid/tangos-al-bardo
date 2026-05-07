@@ -3,6 +3,7 @@ title: "Bien Milonga "
 date: "2022-03-01"
 original_url: https://tangosalbardo.blogspot.com/2022/03/bien-milonga.html
 labels: ""
+tags: ["Juan D'Arienzo", "Héctor Mauré"]
 ---
 
 Novela del bailarínque escrita está.

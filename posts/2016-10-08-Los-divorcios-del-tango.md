@@ -3,6 +3,7 @@ title: "Los divorcios del tango"
 date: "2016-10-08"
 original_url: https://tangosalbardo.blogspot.com/2016/10/los-divorcios-del-tango.html
 labels: ""
+tags: ["Juan Carlos Copes", "Enrique Rodríguez", "Juan D'Arienzo", "María Nieves"]
 ---
 
 El título de la nota sería fuerte, de no suceder eso tan común en los tiempos que vivimos, la separación de las parejas. Sean matrimonios o parejas de hecho. Ha sucedido y sucederá. El tango, con su fuerte carga sensual y la música que nos emociona al bailar, fomenta la creación de parejas. Muchas de ellas, luego, deciden profesionalizarse y hoy día viajan por todo el mundo, viven nuevas y grandes experiencias.

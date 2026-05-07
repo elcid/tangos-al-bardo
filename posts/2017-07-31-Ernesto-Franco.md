@@ -3,6 +3,7 @@ title: "Ernesto Franco"
 date: "2017-07-31"
 original_url: https://tangosalbardo.blogspot.com/2017/07/ernesto-franco.html
 labels: ""
+tags: ["José María Contursi", "Alfredo De Angelis", "Leopoldo Federico", "Osvaldo Fresedo", "Juan D'Arienzo", "Osmar Maderna", "Julián Plaza", "Miguel Caló"]
 ---
 
 Lleva la marca en el orillo de su paso por la orquesta de Juan D'Arienzo, que siempre tuvo en su formación a fueyes de este calibre, porque la fila de bandoneonistas tenía que picar en el momento adecuado, sucediendo a la marca vibrante del piano y la suave intervención del violín de Cayetano Puglisi para luego entrar en *staccato* desbordante, Y así convertir la pista en una vibrante sucesión de figuras rápidas, envolventes, siguiendo la marca de esas variaciones *made in D'Arienzo* que siguen agitando el suelo de tantas milongas del mundo.

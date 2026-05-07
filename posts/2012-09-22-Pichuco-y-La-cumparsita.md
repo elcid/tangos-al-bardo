@@ -3,6 +3,7 @@ title: "Pichuco y La cumparsita"
 date: "2012-09-22"
 original_url: https://tangosalbardo.blogspot.com/2012/09/pichuco-y-la-cumparsita.html
 labels: ""
+tags: ["José Colángelo", "Aníbal Troilo", "Julián Plaza", "Pedro Maffia"]
 ---
 
 Aníbal Troilo grabó en cuatro oportunidades el tango más famoso de la historia. Incluso lo cantó Fiorentino con su orquesta, pero ése no lo grabó y queda un registro radial del mismo.

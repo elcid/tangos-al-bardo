@@ -3,6 +3,7 @@ title: "La milonga y yo"
 date: "2015-09-12"
 original_url: https://tangosalbardo.blogspot.com/2015/09/la-milonga-y-yo.html
 labels: ""
+tags: ["Francisco Canaro", "Edgardo Donato", "Juan D'Arienzo"]
 ---
 
 Como hoy es sábado y tengo la milonga, mientras termino de seleccionar la música para esta noche, concuerdo con los versos que escribió un cantor y milonguero como Leopoldo Díaz Vélez, que la sabía lunga por haber caminado las madrugadas porteñas después de las veladas de rigor. Sabía perfectamente describir el ambiente noctámbulo y las alternativas de aquellas milongas porteñas.

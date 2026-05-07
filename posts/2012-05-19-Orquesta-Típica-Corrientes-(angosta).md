@@ -3,6 +3,7 @@ title: "Orquesta Típica Corrientes (angosta)"
 date: "2012-05-19"
 original_url: https://tangosalbardo.blogspot.com/2012/05/orquesta-tipica-corrientes-angosta-1930.html
 labels: ""
+tags: ["Eduardo Del Piano", "Osvaldo Pugliese"]
 ---
 
 El nombre de la Orquesta no puede ser más porteño. Nada menos que la calle Corrientes "cuando era sencilla y angosta".

@@ -3,6 +3,7 @@ title: "Oscar Castagniaro"
 date: "2013-08-18"
 original_url: https://tangosalbardo.blogspot.com/2013/08/oscar-castagniaro.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Eduardo Arolas", "Jorge Caldara", "Reinaldo Yiso"]
 ---
 
 Excelente bandoneonista de quien se esperaba bastante más, una vez alejado de la orquesta de Osvaldo Pugliese, para formar rancho propio. Arrancó con su presentación en Radio Belgrano, con las voces de Horacio Quintana Y Héctor Insúa y la orquesta tenía buen sonido, arreglos interesantes y la yunta de cantores combinaba perfectamente con la ilusión trazada por el director.

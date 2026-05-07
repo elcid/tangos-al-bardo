@@ -3,6 +3,7 @@ title: "Pucherito de gallina"
 date: "2012-06-10"
 original_url: https://tangosalbardo.blogspot.com/2012/06/pucherito-de-gallina.html
 labels: ""
+tags: ["Edmundo Rivero"]
 ---
 
 Era una tradición de los porteños noctámbulos. Después de milonguear o escuchar a alguna orquesta o un cantor en el centro, o el Teatro, nos esperaba la cena y la charleta en *Pipo, Pepito, Bachín* o *El Tropezón*.

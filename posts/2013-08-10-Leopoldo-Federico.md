@@ -3,6 +3,7 @@ title: "Leopoldo Federico"
 date: "2013-08-10"
 original_url: https://tangosalbardo.blogspot.com/2013/08/leopoldo-federico.html
 labels: ""
+tags: ["Juan Carlos Cobián", "Leopoldo Federico", "Florindo Sassone", "Carlos Di Sarli", "Atilio Stampone", "Roberto Rufino", "Alberto Marino", "Horacio Salgán"]
 ---
 
 El tango engloba lo existencial, lo moral, lo costumbrista, ráfagas, rachas, fulgores y su fascinación torrencial. Es música y es poesía. Un laboratorio de alquimia existencial y emocional. Y el bandoneón es el rezongo vital en medio de un torbellino ordenado.

@@ -3,6 +3,7 @@ title: "Bien milonga"
 date: "2017-10-17"
 original_url: https://tangosalbardo.blogspot.com/2017/10/bien-milonga_17.html
 labels: ""
+tags: ["Juan D'Arienzo", "Aníbal Troilo"]
 ---
 
 * Cuando llegué al fondo del salón *

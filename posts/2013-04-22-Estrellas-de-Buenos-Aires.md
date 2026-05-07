@@ -3,6 +3,7 @@ title: "Estrellas de Buenos Aires"
 date: "2013-04-22"
 original_url: https://tangosalbardo.blogspot.com/2013/04/estrellas-de-buenos-aires.html
 labels: ""
+tags: ["Feliciano Brunelli", "Jorge Caldara", "Alberto Morán"]
 ---
 
 En aquella ciudad que se respiraba, se cantaba, se tocaba y se oía tango a todas horas, se formaban orquestas nuevas, se desgajaban músicos de un conjunto para injertarse en otro o para constituir orquesta propia, los cantores pasaban de una a otra, pero Pugliese seguía siendo Pugliese, Di Sarli ídem, Troilo, D'Arienzo, Salgán, Tanturi, continuaban teniendo su hinchada propia.

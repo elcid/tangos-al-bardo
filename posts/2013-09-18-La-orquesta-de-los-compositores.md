@@ -3,6 +3,7 @@ title: "La orquesta de los compositores"
 date: "2013-09-18"
 original_url: https://tangosalbardo.blogspot.com/2013/09/la-orquesta-de-los-compositores.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Susana Rinaldi", "Mario Demarco"]
 ---
 
 Fue uno de los grandes aportes que le hizo Osvaldo Pugliese al tango: Darle paso, incentivándolos, a la constante inventiva de sus músicos para que compongan temas. Para luego además, encargarse ellos mismos de los arreglos de la obra. Si la orquesta del maestro de Villa Crespo fue pionera en cuanto a crear una cooperativa dentro del conjunto, para que, de acuerdo a los méritos de cada uno pudieran incrementar sus haberes mensuales, también lo fue en este apartado tan importante.

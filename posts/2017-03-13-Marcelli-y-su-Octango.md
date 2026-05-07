@@ -3,6 +3,7 @@ title: "Marcelli y su Octango"
 date: "2017-03-13"
 original_url: https://tangosalbardo.blogspot.com/2017/03/marcelli-y-su-octango.html
 labels: ""
+tags: ["Fernando Suárez Paz", "Fulvio Salamanca", "Osvaldo Pugliese", "Néstor Marconi", "Aníbal Troilo", "Alfredo Gobbi", "Jorge Caldara", "Mario Demarco"]
 ---
 
 Pegó fuerte con su ingreso en el tango, destacando junto a Fernando Suárez Paz y Antonio Agri, como uno de los mejores solistas de violín dentro del género. Su itálico padre, músico amateur, lo incitó a tocar el violín, que comenzó a estudiar con 6 años de edad y en sus estudios tuvo de profesor, entre otros, a José Martí Llorca, que también fuera maestro de Enrique Mario Francini.

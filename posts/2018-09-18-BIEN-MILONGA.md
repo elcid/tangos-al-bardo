@@ -3,6 +3,7 @@ title: "BIEN MILONGA"
 date: "2018-09-18"
 original_url: https://tangosalbardo.blogspot.com/2018/09/bien-milonga_18.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Héctor Mauré"]
 ---
 
 *El asilo que brindan tus brazos*

@@ -3,6 +3,7 @@ title: "Firuletear de bandoneón"
 date: "2014-10-09"
 original_url: https://tangosalbardo.blogspot.com/2014/10/firuletear-de-bandoneon.html
 labels: ""
+tags: ["Alfredo De Angelis", "Florindo Sassone", "Osvaldo Pugliese", "Alberto Podestá", "Armando Pontier", "Edmundo Rivero", "Pedro Laurenz", "José Rótulo"]
 ---
 
 Hoy tengo este tango metido en la oreja, en el cuore, y de paso cañazo, me lo bailo solo en el salón, porque me parece una belleza y la versión que hiciera de este tango la orquesta de Pedro Laurenz con la voz de Juan Carlos Casas, es de prima. El fueye de Laurenz te arrastra , te lleva, te empuja. Me parece un tema que debió tener más llegada y mereció figurar en las partituras de otras orquestas.

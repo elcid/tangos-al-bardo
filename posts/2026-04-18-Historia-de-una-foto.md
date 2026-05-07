@@ -3,6 +3,7 @@ title: "Historia de una foto"
 date: "2026-04-18"
 original_url: https://tangosalbardo.blogspot.com/2026/04/historia-de-una-foto.html
 labels: ""
+tags: ["Alfredo De Angelis", "Juan Carlos Copes", "Eduardo Del Piano", "Joaquín Do Reyes", "Osvaldo Pugliese", "Enrique Delfino", "Cátulo Castillo", "Julián Centeya"]
 ---
 
 Esta imagen reúne a los tangueros que se reunieron en el Hipódromo de Palermo, para asistir a la inauguración de un busto de Carlos Gardel en el circo hípico, el 24 de junio de 1985, recordando el cincuentenario de la desaparición del gran cantor.

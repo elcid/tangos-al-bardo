@@ -3,6 +3,7 @@ title: "Chau Horacio..."
 date: "2014-12-22"
 original_url: https://tangosalbardo.blogspot.com/2014/12/chau-horacio.html
 labels: ""
+tags: ["Roberto Goyeneche", "Cátulo Castillo", "Horacio Ferrer", "Aníbal Troilo"]
 ---
 
 Ayer fue un día muy triste para el tango, ya que se nos fué uno de sus más grandes poetas contemporáneos: Horacio Ferrer. Ya está inscripto entre los grandes trovadores populares que ha tenido el género, absolutamente novedoso y distinto en sus formas y su espíritu, mezcla rara de gorrión de barrio y de murciélago nocturno, capaz de darle infinitas vueltas al idioma y de encontrarle nuevas formas literarias a la poesía tanguera.

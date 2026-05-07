@@ -3,6 +3,7 @@ title: "¿Tanguero o milonguero?"
 date: "2021-06-13"
 original_url: https://tangosalbardo.blogspot.com/2021/06/tanguero-o-milonguero.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Carlos Di Sarli", "Alfredo Gobbi", "Roberto Firpo", "Héctor Marcó", "Jorge Durán", "Mario Pomar"]
 ---
 
 Aunque parezcan la misma cosa, no siempre coinciden. Un milonguero de postín es muy posible que no pueda discutir con un tanguero de alma sobre los años de cada orquesta, los autores de determinados temas, las cancionistas, los entretelones de un tango, una milonga, o la historia del género en su evolución. El tanguero vive, escucha, siente, recuerda lo que dijo un músico determinado o un comentarista, relator radial o periodista sobre protagonistas, músicos, poetas, temas. El milonguero, en su gran mayoría obvia todos estos relatos, los ignora o no le interesan.

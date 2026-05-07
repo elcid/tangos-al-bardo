@@ -3,6 +3,7 @@ title: "Llorarás, llorarás"
 date: "2014-06-26"
 original_url: https://tangosalbardo.blogspot.com/2014/06/lloraras-lloraras.html
 labels: ""
+tags: ["Libertad Lamarque", "Francisco Lomuto", "Aníbal Troilo", "Homero Manzi", "Floreal Ruiz"]
 ---
 
 Este valsecito que compusieran entre el gran Homero Manzi, con dedicatoria incluída, y el violinista Hugo Gutiérrez, autor de hermosas melodías, perdura en mi ánimo por la gran interpretación que lograran Aníbal Troilo con su orquesta y esa voz inconfundible de Floreal Ruiz.

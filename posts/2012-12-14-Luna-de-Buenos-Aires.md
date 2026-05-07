@@ -3,6 +3,7 @@ title: "Luna de Buenos Aires"
 date: "2012-12-14"
 original_url: https://tangosalbardo.blogspot.com/2012/12/luna-de-buenos-aires.html
 labels: ""
+tags: ["Celedonio Flores", "Enrique Cadícamo", "Francisco Canaro", "Francisco Lomuto", "Cátulo Castillo", "Alfredo Le Pera", "Homero Manzi"]
 ---
 
 Es el *satélite* más cantado por músicos y poetas. Siempre lo asociamos al romanticismo y realmente ver una luna llena iluminando la tierra desde allá arriba es, además de romántico, una hermosura que nos aporta vida interior. Provoca prácticamente el imperativo amoroso, nos entrega luminosidad y no sólo inspiró este fenómeno astrológico a Beethoven o Debussy; infinidad de músicos de todos los registros se apoyan en el íncipit lunar y flotan en torno a ella, en el decurso del poema musical.

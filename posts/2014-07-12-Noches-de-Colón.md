@@ -3,6 +3,7 @@ title: "Noches de Colón"
 date: "2014-07-12"
 original_url: https://tangosalbardo.blogspot.com/2014/07/noches-de-colon.html
 labels: ""
+tags: ["Francisco Canaro", "Alberto Castillo", "Osvaldo Fresedo", "Ricardo Tanturi", "Carlos Gardel"]
 ---
 
 Este tangazo que grabara Ricardo Tanturi con el inolvidable Alberto Castillo, sigue sonando en las milongas de medio mundo, con una fuerza inusitada. Genial la versión que lograra el pianista de Barracas, con este tema del pianista Raúl de los Hoyos y el sainetero Roberto Lino Cayol.

@@ -3,6 +3,7 @@ title: "Bajo el cono azul"
 date: "2025-10-06"
 original_url: https://tangosalbardo.blogspot.com/2025/10/bajo-el-cono-azul.html
 labels: ""
+tags: ["Alfredo De Angelis", "Horacio Salgán", "Floreal Ruiz"]
 ---
 
 Un tango grabado por la orquesta de Alfredo De Angelis, cantando Floreal Ruiz, en 1944, pero que sigue destilando el espíritu placentero del recuerdo en las pistas de baile. Aunque la orquesta no sea de las más predilectas para milonguear, este tema tiene un gancho que nos impulsa. Y Floreal con la orquesta de De Angelis ya mostraba su potencial interpretativo.

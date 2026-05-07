@@ -3,6 +3,7 @@ title: "D'Agostino-Vargas"
 date: "2016-08-20"
 original_url: https://tangosalbardo.blogspot.com/2016/08/dagostino-vargas.html
 labels: ""
+tags: ["Eduardo Del Piano", "José María Otero", "Juan D'Arienzo"]
 ---
 
 Fue una de las grandes sociedades del Buenos Aires tanguero en aquella gran época de oro, y nos sigue acompañando en las veladas milongueras, incluso mucho más allá de las fronteras del Río de la Plata. La orquesta tiene un tono especial para los bailarines, distinto al de otras grandes formaciones y el *touch* de Angelito Vargas con su voz y estilo tan personales, nos deja ese tono intimista que invita al baile y la concentración interior.

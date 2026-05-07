@@ -3,6 +3,7 @@ title: "Cantando se van las penas"
 date: "2025-09-11"
 original_url: https://tangosalbardo.blogspot.com/2025/09/cantando-se-van-las-penas.html
 labels: ""
+tags: ["Francisco Canaro", "Francisco Lomuto", "Alberto Marino", "Aníbal Troilo", "Jorge Ortiz"]
 ---
 
 El tango tiene muchas historias curiosas, después de haber desgranado el quejumbroso lamento malevo descrito con letra gorda, el tenue farolito del suburbio, el puñal de los guapos, las andanzas de paicas y gaviones y ese sur trasnochado de guitarras y de aljibes. Muchos poetas de calibre fueron renovando los versos y una ponchada de músicos con polenta supieron transmitir aquel chamuyo inconfundible de la noche porteña.

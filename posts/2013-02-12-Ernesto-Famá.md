@@ -3,6 +3,7 @@ title: "Ernesto Famá"
 date: "2013-02-12"
 original_url: https://tangosalbardo.blogspot.com/2013/02/ernesto-fama.html
 labels: ""
+tags: ["Enrique Cadícamo", "Francisco Canaro", "Osvaldo Fresedo", "Carlos Di Sarli", "Ignacio Corsini", "Julián Centeya", "Carlos Gardel", "Mariano Mores"]
 ---
 
 Estuvo entre los primeros cantores de orquesta que tuvieron plaza fija en las mismas. Fue uno de los tantos que emergieron del Teatro infantil Labardén y a los 18 años ya pisaba el escenario del Teatro Nacional. Un año más tarde se embarcaba con las huestes de Osvaldo Fresedo rumbo a París.

@@ -3,6 +3,7 @@ title: "Ignacio Varchausky:"
 date: "2021-12-08"
 original_url: https://tangosalbardo.blogspot.com/2021/12/ignacio-varchausky.html
 labels: ""
+tags: ["Leopoldo Federico", "Víctor Lavallén", "Pedro Laurenz", "Julián Plaza", "Miguel Caló", "Lidia Borda", "Nelly Omar"]
 ---
 
 ** *“Es emocionante poder volver a tocar y festejar los 25 años de El Arranque”***

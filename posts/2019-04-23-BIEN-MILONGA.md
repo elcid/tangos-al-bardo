@@ -3,6 +3,7 @@ title: "BIEN MILONGA"
 date: "2019-04-23"
 original_url: https://tangosalbardo.blogspot.com/2019/04/bien-milonga_23.html
 labels: ""
+tags: ["Enrique Rodríguez", "Osvaldo Pugliese", "Francisco Canaro", "Homero Expósito"]
 ---
 
 *Quiero música maestro, se lo pido por favor*

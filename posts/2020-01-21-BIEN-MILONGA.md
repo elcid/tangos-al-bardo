@@ -3,6 +3,7 @@ title: "BIEN MILONGA"
 date: "2020-01-21"
 original_url: https://tangosalbardo.blogspot.com/2020/01/bien-milonga_21.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Alberto Echagüe", "Juan D'Arienzo", "Héctor Mauré"]
 ---
 
 ¡Soy milonguero de ley!

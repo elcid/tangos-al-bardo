@@ -3,6 +3,7 @@ title: "Como perro en cancha'e bochas"
 date: "2021-02-01"
 original_url: https://tangosalbardo.blogspot.com/2021/02/como-perro-en-canchae-bochas.html
 labels: ""
+tags: ["Francisco García Jiménez", "Alberto Marino", "Aníbal Troilo"]
 ---
 
 Mi Corrientes calle brava, ¡corazón de Buenos Aires!  en un tremendo desaire tu cambio me dio la biaba. Te digo -porque tal vez vos ni lo sabrás, coqueta- que sangré con la piqueta que volteó los "36"...

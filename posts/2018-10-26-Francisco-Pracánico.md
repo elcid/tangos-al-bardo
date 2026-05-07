@@ -3,6 +3,7 @@ title: "Francisco Pracánico"
 date: "2018-10-26"
 original_url: https://tangosalbardo.blogspot.com/2018/10/francisco-pracanico.html
 labels: ""
+tags: ["Francisco Pracánico", "Celedonio Flores", "Adolfo Carabelli", "Arturo De Bassi", "Azucena Maizani", "Ignacio Corsini", "Carlos Gardel", "Augusto Berto"]
 ---
 
 Cuántas veces oimos nombrar a los autores de algunas páginas popular del nomenclátor tanguero, y nos suenan mucho, pero lo vamos dejando escurrir de la memoria sin prestarles la atención debida. Sobre todo a algunos de estos *próceres* que se labraron a pulso una nombradía y respeto debidos. ya que su obra sigue mostrando que no fue cosa de una efímera moda, como tantas en la música, sino que siguen sonando sus creaciones y despertando justa admiración.

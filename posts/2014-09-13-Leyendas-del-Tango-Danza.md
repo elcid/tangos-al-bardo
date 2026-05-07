@@ -3,6 +3,7 @@ title: "Leyendas del Tango Danza"
 date: "2014-09-13"
 original_url: https://tangosalbardo.blogspot.com/2014/09/leyendas-del-tango-danza.html
 labels: ""
+tags: ["Carlos Di Sarli", "Manuel Romero", "Aníbal Troilo"]
 ---
 
 Es lo que siempre reclamamos los seguidores del tango. Con la fuerza que siempre ha tenido nuestro cine, parece increíble que no le hayan dedicado películas y/o documentales a la historia del tango, a la danza, a las grandes figuras. Primero tuvo que ser un español, Carlos Saura, el que hizo el filme: **Tango,** en el año 1998. Tuvo éxito, en Argentina, España y otros países, aunque no mostrara las milongas que tanta tradición tienen en nuestro país.

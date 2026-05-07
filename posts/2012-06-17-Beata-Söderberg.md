@@ -3,6 +3,7 @@ title: "Beata Söderberg"
 date: "2012-06-17"
 original_url: https://tangosalbardo.blogspot.com/2012/06/beata-soderberg.html
 labels: ""
+tags: ["Horacio Salgán", "Aníbal Troilo"]
 ---
 
 Ahora está sufriendo con la Selección sueca en la Eurocopa de fútbol, pero a cambio festeja el nuevo título que acaricia Boca Juniors, su club de Argentina, porque lleva los colores de la bandera sueca y porque fue a verlos una vez en la Bombonera y flipó con el espectáculo.

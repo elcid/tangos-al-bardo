@@ -3,6 +3,7 @@ title: "Soledad, la de Barracas"
 date: "2021-04-17"
 original_url: https://tangosalbardo.blogspot.com/2021/04/soledad-la-de-barracas.html
 labels: ""
+tags: ["Enrique Rodríguez", "Armando Pontier", "Alberto Marino", "Edmundo Rivero", "Aníbal Troilo", "Carlos Figari", "Tita Merello", "Miguel Caló"]
 ---
 
 No será un tango genial pero nos suena como una cosa familiar, lejana en el tiempo, que nos lleva a aquellos años de Barracas, Parque Patricios, Boedo, Pompeya, Paternal, Balvanera... Recuerdo que un compañero mío de la revista *El Gráfico*, me aseguraba que su padre -que había regentado un local de tango en la Boca en los años cuarenta y cincuenta-, había conocido a la Soledad del tango. Porque ellos eran de Barracas también.

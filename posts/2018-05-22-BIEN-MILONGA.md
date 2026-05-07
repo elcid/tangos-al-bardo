@@ -3,6 +3,7 @@ title: "BIEN MILONGA"
 date: "2018-05-22"
 original_url: https://tangosalbardo.blogspot.com/2018/05/bien-milonga_22.html
 labels: ""
+tags: ["Teófilo Ibáñez", "Miguel Caló"]
 ---
 
 *Nació de la milonga esta pasión,*

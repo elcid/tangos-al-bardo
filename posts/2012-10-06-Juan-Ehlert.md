@@ -3,6 +3,7 @@ title: "Juan Ehlert"
 date: "2012-10-06"
 original_url: https://tangosalbardo.blogspot.com/2012/10/juan-ehlert.html
 labels: ""
+tags: ["Armando Pontier", "Homero Expósito"]
 ---
 
 Respondiendo al amigo Paco da Capo que dejó un interesante comentario en mi apunte sobre Juan Ehlert, el músico alemán que, huyendo de la guerra, llegó con un conjunto sinfónico para tocar en el Colón, agrego estas líneas. En posterior gira por el Paraná abajo, Ehlert conoció a una zarateña, se enamoró y decidió afincarse en esa ciudad.

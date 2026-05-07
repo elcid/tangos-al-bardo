@@ -3,6 +3,7 @@ title: "Melancólico"
 date: "2015-09-25"
 original_url: https://tangosalbardo.blogspot.com/2015/09/melancolico.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Carlos Di Sarli", "Atilio Stampone", "Edgardo Donato", "Aníbal Troilo", "Julián Plaza", "Miguel Caló"]
 ---
 
 Estoy escuchando este hermoso tango de Julián Plaza, interpretado por la orquesta de Aníbal Troilo, y me encaja perfectamente con este comienzo otoñal en Madrid, que es una estación propicia a la melanco y a los recuerdos. Y de paso recorro un poco todos aquellos temas suyos que le grabara Pichuco y que fueron una bocanada de aire fresco en una época en que el género languidecía.

@@ -3,6 +3,7 @@ title: "Oscar Arona"
 date: "2015-08-03"
 original_url: https://tangosalbardo.blogspot.com/2015/08/oscar-arona.html
 labels: ""
+tags: ["Francisco García Jiménez", "Francisco Pracánico", "Celedonio Flores", "Francisco Lomuto", "Francisco Canaro", "Alberto Echagüe", "Manuel Romero", "Anselmo Aieta"]
 ---
 
 Acabo de volver de mis vacaciones junto al mar, durante las cuales aproveché para disfrutar a tope de las cálidas aguas del Mediterráneo y la suavidad de sus arenas. Y de paso, también las utilicé para cargar pilas con vistas a las milongas del resto del año y para estar con ustedes en el blog, repasando las historias del tango que son tantas, tan variadas y emotivas.

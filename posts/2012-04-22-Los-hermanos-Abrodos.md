@@ -3,6 +3,7 @@ title: "Los hermanos Abrodos"
 date: "2012-04-22"
 original_url: https://tangosalbardo.blogspot.com/2012/04/los-hermanos-abrodos.html
 labels: ""
+tags: ["Alfredo De Angelis", "Libertad Lamarque"]
 ---
 
 Esta agrupación familiar representó durante años, una de las mejores expresiones del folklore argentino. Manuel, el primogénito de la familia nació en Zárate, provincia de Buenos Aires, a orillas del Paraná.

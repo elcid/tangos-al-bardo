@@ -3,6 +3,7 @@ title: "Adolfo Carabelli"
 date: "2015-03-12"
 original_url: https://tangosalbardo.blogspot.com/2015/03/adolfo-carabelli.html
 labels: ""
+tags: ["Francisco Pracánico", "Adolfo Carabelli", "Luis Petrucelli", "Arturo De Bassi", "Eugenio Nóbile", "Juan D'Arienzo", "Aníbal Troilo", "Alberto Gómez"]
 ---
 
 Aunque no haya sido un tanguero de pura cepa, este pianista nacido en San Fernando a orillas del Río de la Plata, formado académicamente como pianista de altos vuelos, pasaría a la historia de la música popular por haber dirigido la Orquesta del Sello Victor, bajo su nombre, por indicación de este sello y dando comienzo a una sucesión de conjuntos bajo el paraguas de la misma discográfica, que tuvieron un tono distinto, particular que sigue vigente en el gusto de los bailarines.

@@ -3,6 +3,7 @@ title: "BIEN MILONGA"
 date: "2014-12-27"
 original_url: https://tangosalbardo.blogspot.com/2014/12/bien-milonga_27.html
 labels: ""
+tags: ["Ricardo Tanturi", "Enrique Campos"]
 ---
 
 Nos quedan dos milongas para cerrar el año 2014 a puro gotán y recibir al nuevo año con aromas tangueros, como si Troilo, Pugliese, D'Arienzo, Di Sarli y compañía siguieran existiendo al frente de su orquesta para hacernos felices en la pista y a través de la oreja.

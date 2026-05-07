@@ -3,6 +3,7 @@ title: "Roberto Takafumi Sugiura"
 date: "2014-12-10"
 original_url: https://tangosalbardo.blogspot.com/2014/12/roberto-takafumi-sugiura.html
 labels: ""
+tags: ["Enrique Cadícamo", "Osvaldo Pugliese", "Roberto Rufino"]
 ---
 
 Este cantante japonés que reúne unos atributos artísticos muy especiales, nació en 1970 en una de las ciudades más importantes de ese país llamada Nagoya. Se recibió en la Universidad de Otani, en la Facultad de Ciencias filosóficas. Su vida experimentó un vuelco radical cuando descubrió el tango y se dio cuenta que le venía como anillo al dedo para expresarse en el mismo con unas acertadas virtudes vocales. Las que le llevarían a la Argentina en 1993, para conocer a su ídolo, Roberto Rufino, quien lo apadrinaría y agregaría su nombre: Roberto, a la identidad del joven artista Takafumi Sugiura.

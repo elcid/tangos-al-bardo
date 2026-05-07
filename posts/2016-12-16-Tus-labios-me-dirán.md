@@ -3,6 +3,7 @@ title: "Tus labios me dirán"
 date: "2016-12-16"
 original_url: https://tangosalbardo.blogspot.com/2016/12/tus-labios-me-diran.html
 labels: ""
+tags: ["Carlos Di Sarli", "Héctor Marcó", "Jorge Durán"]
 ---
 
 *A mi querido amigo Eduardo Sibilin*

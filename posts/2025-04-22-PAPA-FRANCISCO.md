@@ -3,6 +3,7 @@ title: "PAPA FRANCISCO"
 date: "2025-04-22"
 original_url: https://tangosalbardo.blogspot.com/2025/04/papa-francisco.html
 labels: ""
+tags: ["Carlos Gardel"]
 ---
 
 ** Bailador de tango, pasión por el fútbol y cocinero para su familia: datos curiosos que no sabías del papa Francisco**

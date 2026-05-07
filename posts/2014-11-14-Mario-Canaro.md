@@ -3,6 +3,7 @@ title: "Mario Canaro"
 date: "2014-11-14"
 original_url: https://tangosalbardo.blogspot.com/2014/11/mario-canaro.html
 labels: ""
+tags: ["Francisco García Jiménez", "José María Contursi", "Libertad Lamarque", "Enrique Rodríguez", "Francisco Canaro", "Francisco Lomuto", "Carlos Di Sarli", "Alberto Podestá"]
 ---
 
 Fue el menor de la saga que tantos aportes le dió al tango y el único que nació en Buenos Aires. Con la ayuda del mayor, Francisco, emergiendo de una pobreza extrema, luchando contra toda clase de dificultades y viviendo apiñados en una sola habitación, salieron todos adelante, menos una hermana, María Esther, que falleció por la epidemia de viruela. Era tan estrecha la pieza, que Mario debía dormir con sus padres. Otro hermano, Luis, era depositado por el jefe de familia en una canasta de panadero y la colgaba del techo mediante una roldana, para que durmiese.

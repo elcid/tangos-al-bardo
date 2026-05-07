@@ -3,6 +3,7 @@ title: "Julián Plaza"
 date: "2013-01-24"
 original_url: https://tangosalbardo.blogspot.com/2013/01/julian-plaza.html
 labels: ""
+tags: ["Florindo Sassone", "Osvaldo Pugliese", "Carlos Di Sarli", "Atilio Stampone", "Edgardo Donato", "Aníbal Troilo", "Julián Plaza", "Miguel Caló"]
 ---
 
 Un músico que mereció páginas importantes en el catastro tanguero, pero que fue oscurecido por no haber encabezado en su mejor momento una orquesta, en la cual mostrara sus grandes condiciones de ejecutante, director, compositor y arreglador.

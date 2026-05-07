@@ -3,6 +3,7 @@ title: "LA VETERANA"
 date: "2023-09-25"
 original_url: https://tangosalbardo.blogspot.com/2023/09/la-veterana.html
 labels: ""
+tags: ["Horacio Ferrer"]
 ---
 
 Horacio Ferrer

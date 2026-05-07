@@ -3,6 +3,7 @@ title: "Cambalache"
 date: "2026-04-04"
 original_url: https://tangosalbardo.blogspot.com/2026/04/cambalache.html
 labels: ""
+tags: ["Enrique Santos Discépolo", "Luis César Amadori", "Leopoldo Federico", "Libertad Lamarque", "Julio Sosa"]
 ---
 
 Fue otra pegada discepoleana muy grosa que impactó fuertemente en el estamento tanguero. Había sido creado para un filme que dirigiría Mario Soficci, en 1934, donde lo cantaría Ernesto Famá. Pero lo estrenaría con enorme éxito Sofía Bozán en el Teatro Maipo y se difundió rápidamente en los medios radiales y periodísticos.

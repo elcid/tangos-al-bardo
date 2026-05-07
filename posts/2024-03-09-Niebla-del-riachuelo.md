@@ -3,6 +3,7 @@ title: "Niebla del riachuelo"
 date: "2024-03-09"
 original_url: https://tangosalbardo.blogspot.com/2024/03/niebla-del-riachuelo.html
 labels: ""
+tags: ["Juan Carlos Cobián", "Enrique Cadícamo", "Edmundo Rivero", "Tita Merello", "Lucio Demare"]
 ---
 
 Enrique Cadícamo, el poeta al que nunca se le agotó el talento poético y llenó infinidad de pentagramas, recordaba como después del gran éxito que tuvo "**Nostalgias**", el tango que compusiera con su gran socio, Juan Carlos Cobián, nacerá otro tema de esta yunta que también se encarrilaría en la ruta de los sucesos musicales del año.

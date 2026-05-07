@@ -3,6 +3,7 @@ title: "Tiempo de tranvías"
 date: "2017-09-11"
 original_url: https://tangosalbardo.blogspot.com/2017/09/tiempo-de-tranvias.html
 labels: ""
+tags: ["Celedonio Flores", "Osvaldo Pugliese", "Homero Expósito", "Héctor Varela", "Raúl Garello"]
 ---
 
 Hoy traigo al blog este tango de Héctor Negro, con música de Raúl Garello para recordar a uno de los poetas más interesantes y más genuinos que ha tenido el género popular en los últimos sesenta años. Se llamaba Ismael Héctor Varela, nació en 1934 en el porteño barrio de Belgrano, falleció en septiembre de 2015, y en toda su obra intenta reflejar el espíritu del habitante de la ciudad, sus angustias, su *élan vita*l, y las circunstancias que rondan la época de sus trabajos.

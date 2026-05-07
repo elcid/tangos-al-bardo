@@ -3,6 +3,7 @@ title: "GOYENECHE"
 date: "2025-02-05"
 original_url: https://tangosalbardo.blogspot.com/2025/02/goyeneche.html
 labels: ""
+tags: ["José María Otero"]
 ---
 
 *"Hagan rueda, va a cantar un ruiseñor..:"*

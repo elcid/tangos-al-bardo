@@ -3,6 +3,7 @@ title: "BIEN MILONGA"
 date: "2018-06-05"
 original_url: https://tangosalbardo.blogspot.com/2018/06/bien-milonga.html
 labels: ""
+tags: ["Francisco Canaro", "Juan D'Arienzo", "Alberto Marino", "Aníbal Troilo"]
 ---
 
 *Nació de la milonga esta pasión*

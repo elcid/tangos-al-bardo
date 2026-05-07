@@ -3,6 +3,7 @@ title: "Dos que se aman"
 date: "2025-08-11"
 original_url: https://tangosalbardo.blogspot.com/2025/08/dos-que-se-aman.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Ricardo Tanturi", "Alberto Morán", "Alfredo Gobbi", "Ricardo Ruiz", "José Basso"]
 ---
 
 Manuel María Flores (1840-1885), nació en San Andrés Chalchicomula, México. Estudió Filosofía en el Colegio de San Juan de Letrán hasta el año 1859, fecha en que abandonó sus estudios. Perteneció al Partido Liberal, luchó contra los franceses, estuvo preso en el Castillo de Perote.

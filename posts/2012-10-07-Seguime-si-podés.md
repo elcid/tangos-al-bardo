@@ -3,6 +3,7 @@ title: "Seguime si podés"
 date: "2012-10-07"
 original_url: https://tangosalbardo.blogspot.com/2012/10/seguime-si-podes.html
 labels: ""
+tags: ["Francisco García Jiménez", "Francisco Canaro", "Osvaldo Pugliese", "Juan D'Arienzo", "Ángel Vargas"]
 ---
 
 Después del éxito de su tango* Canaro en París* (1926), el bandoneonista Alejandro Scarpino y el guitarrista Juan Caldarella idearon un nuevo tema que titularon: *Seguime si podés*. La línea melódica la escribió Scarpino y Caldarella repitió la fórmula de las variaciones.

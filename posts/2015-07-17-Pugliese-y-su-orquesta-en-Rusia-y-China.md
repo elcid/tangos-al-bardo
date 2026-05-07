@@ -3,6 +3,7 @@ title: "Pugliese y su orquesta en Rusia y China"
 date: "2015-07-17"
 original_url: https://tangosalbardo.blogspot.com/2015/07/pugliese-y-su-orquesta-en-asia.html
 labels: ""
+tags: ["Ismael Spitalnik", "Osvaldo Pugliese", "Víctor Lavallén", "Horacio Ferrer", "Julián Plaza"]
 ---
 
 He comentado algunas veces la sorpresa que me pude llevar cuando descubrí lo bien que bailan en lugares tan alejados de Argentina, como Rusia o China, y entonces no puedo menos que recordar aquella gira que realizó Pugliese con sus muchachos en 1959, por dichos lugares. Una hermosa manera de abrir la puerta con el talento de estos músicos que conviene recordar para valorar el resultado de su increíble gira.

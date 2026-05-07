@@ -3,6 +3,7 @@ title: "Tango y folklore"
 date: "2012-04-30"
 original_url: https://tangosalbardo.blogspot.com/2012/04/tango-y-folklore.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Francisco Canaro"]
 ---
 
 En Argentina, el tango –música ciudadana porteña- y el folklore –música del interior- están unidos por infinidad de lazos.

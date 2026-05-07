@@ -3,6 +3,7 @@ title: "Años de Pugliese"
 date: "2014-09-09"
 original_url: https://tangosalbardo.blogspot.com/2014/09/pugliese-por-dos.html
 labels: ""
+tags: ["Aníbal Troilo", "Pedro Laurenz", "Alfredo Gobbi", "Roberto Firpo", "Pedro Maffia", "Miguel Caló"]
 ---
 
 Me parece sumamente importante y muy agradable reconstruir el andamio musical de Pugliese, sus avatares, su período de aprendizaje y maduración, las distintas facetas que transitó en su periplo musical y el resultado final al frente de su orquesta. La consagración de ese estilo cadencioso y envolvente, que sigue constituyendo un deleite para tangueros recalcitrantes e irreductibles, y para milongueros de todas partes.

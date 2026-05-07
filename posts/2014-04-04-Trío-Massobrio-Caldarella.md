@@ -3,6 +3,7 @@ title: "Trío Massobrio-Caldarella"
 date: "2014-04-04"
 original_url: https://tangosalbardo.blogspot.com/2014/04/trio-massobrio-caldarella.html
 labels: ""
+tags: ["Feliciano Brunelli", "Carlos Gardel", "Lito Bayardo"]
 ---
 
 Estos dos infatigable *tanos*, grabaron infinidad de temas bajo distintas denominaciones. Cuando estaban en Odeón lo hacían bajo el rubro *Massobrio-Caldarella*. Pasaron a la Víctor y entonces eran el *Trío Los Nativos*. Luego en el sello Brunswick serían simplemente *Pampeanos*, porque grabaron mucha música folklórica, rancheras y demás. Algunos de estos temas fueron creados por ellos mismos y unos tuvieron más fortuna que otros.

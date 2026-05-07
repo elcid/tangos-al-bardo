@@ -3,6 +3,7 @@ title: "La ausencia"
 date: "2023-11-23"
 original_url: https://tangosalbardo.blogspot.com/2023/11/la-ausencia.html
 labels: ""
+tags: ["Julián Centeya"]
 ---
 
 La ausencia en ese caso es un farol de esquina.

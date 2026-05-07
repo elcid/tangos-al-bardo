@@ -3,6 +3,7 @@ title: "BIEN MILONGA"
 date: "2020-02-04"
 original_url: https://tangosalbardo.blogspot.com/2020/02/bien-milonga.html
 labels: ""
+tags: ["Alberto Castillo", "Francisco Canaro", "Ricardo Tanturi", "Ada Falcón"]
 ---
 
 Vamos subiendo la cuesta

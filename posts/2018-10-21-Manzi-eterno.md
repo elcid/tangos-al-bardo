@@ -3,6 +3,7 @@ title: "Manzi eterno"
 date: "2018-10-21"
 original_url: https://tangosalbardo.blogspot.com/2018/10/manzi-eterno.html
 labels: ""
+tags: ["Sebastián Piana", "Cátulo Castillo", "Pedro Maffia", "Homero Manzi"]
 ---
 
 *"Estoy lleno de voces y de colores / que juraron acompañarme hasta la muerte / como amantes resignadas / al breve paso de mi eternidad".*

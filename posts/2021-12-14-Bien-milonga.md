@@ -3,6 +3,7 @@ title: "Bien milonga"
 date: "2021-12-14"
 original_url: https://tangosalbardo.blogspot.com/2021/12/bien-milonga_14.html
 labels: ""
+tags: ["Alfredo De Angelis", "Juan D'Arienzo", "Alfredo Gobbi", "Osvaldo Zotto", "Orlando Goñi", "Carlos Dante"]
 ---
 
 Entre tango y tango, tango,

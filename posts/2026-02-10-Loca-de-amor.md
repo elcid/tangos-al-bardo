@@ -3,6 +3,7 @@ title: "Loca de amor"
 date: "2026-02-10"
 original_url: https://tangosalbardo.blogspot.com/2026/02/loca-de-amor.html
 labels: ""
+tags: ["Teófilo Ibáñez"]
 ---
 
 Uno de los valsecitos que introdujeron su ronda tempranera en el tango y que dejó una estela que llega hasta nuestros días, fue sin ninguna duda éste que compusieron Ricardo Podestá y Pablo Vázquez. Puede engramparse entre los clásicos de esa lista que incluye a *Desde el alma, Lágrimas y sonrisas, El aeroplano, Orillas del Plata, Pabellón de las rosas, Tu diagnóstico, A su memoria, Un placer, Obsesión*...

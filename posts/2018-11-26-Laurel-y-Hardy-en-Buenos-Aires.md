@@ -3,6 +3,7 @@ title: "Laurel y Hardy en Buenos Aires"
 date: "2018-11-26"
 original_url: https://tangosalbardo.blogspot.com/2018/11/stan-laurel-y-oliver-hardy-en-buenos.html
 labels: ""
+tags: ["Francisco García Jiménez"]
 ---
 
 Antes de convertirse en el maravilloso dúo cómico que tantas horas felices nos hicieron pasar cuando éramos niños, Stan Laurel y Oliver Hardy actuaron en Buenos Aires. El empresario Charles Seguín fue quien los contrató. El inglés Stan Laurel llegó en 1915 y se presentó en el Teatro Casino. Oliver Hardy estuvo en 1914 y actuó en el Pabellón de las Rosas y el Parque Japonés.

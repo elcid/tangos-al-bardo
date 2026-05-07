@@ -3,6 +3,7 @@ title: "Miguel Osés"
 date: "2017-08-06"
 original_url: https://tangosalbardo.blogspot.com/2017/08/miguel-oses.html
 labels: ""
+tags: ["Libertad Lamarque", "Francisco Lomuto", "Carlos Gardel", "Miguel Caló"]
 ---
 
 Como homenaje al amigo, historiador tanguero y creador del celebrado portal TODO TANGO, hoy publico en mi blog una biografía que escribiera, el citado Ricardo García Blaya. Trata sobre Miguel Osés, un hombre de teatro, autor además de los versos de un célebre tango.

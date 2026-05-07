@@ -3,6 +3,7 @@ title: "Murales de tango"
 date: "2018-04-18"
 original_url: https://tangosalbardo.blogspot.com/2018/04/murales-de-tango.html
 labels: ""
+tags: ["Alberto Morán", "Tita Merello", "Julio Sosa"]
 ---
 
 Ha costado mucho, muchísimo más de lo que se pueda pensar, que el Tango sea un bien cultural muy valioso, valiosímo que tiene Argentina -lo mismo Uruguay-. Que ha sido necesario esfuerzo, éxitos, apoyo popular, triunfos en Europa, América y Japón de orquestas y cantantes, con el desinterés permanente de tantos gobiernos que jamás lo apoyaron. Por eso las caídas en ventas de discos, actuaciones y salas de baile, que sufrió el género popular en distintas etapas.

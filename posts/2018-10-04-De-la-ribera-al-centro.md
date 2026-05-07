@@ -3,6 +3,7 @@ title: "De la ribera al centro"
 date: "2018-10-04"
 original_url: https://tangosalbardo.blogspot.com/2018/10/de-la-ribera-al-centro.html
 labels: ""
+tags: ["Francisco García Jiménez", "Vicente Greco"]
 ---
 
 En la esquina de Suárez y Necochea las cantinas meridionales habían vuelto por sus fueros de apetitosos "maccheroni" con armoniosa "mandulinata" y por las puertas de los cafés-concierto habían iniciado su éxodo los instrumentos del tango, junto con aquellas pizpiretas camareras que acompañaban sus acordes golpeando con los nudillos las bandejas...

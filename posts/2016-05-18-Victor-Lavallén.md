@@ -3,6 +3,7 @@ title: "Victor Lavallén"
 date: "2016-05-18"
 original_url: https://tangosalbardo.blogspot.com/2016/05/victor-lavallen.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Ismael Spitalnik", "Víctor Lavallén", "Mario Demarco"]
 ---
 
 Otra excelente idea del trío integrado por los directores Daniel Tonelli y Marcelo Turrisi, con la coordinación de producción de Silvina Damiani, ha permitido que podemos ver un filme documental sobre la trayectoria de este excelente bandoneonista, director, compositor y arreglador. Un hombre que siempre eligió los segundos planos, debido a su carácter, pero que, por fin, ha merecido el reconocimiento de la familia tanguera por sus más que sobrados méritos.

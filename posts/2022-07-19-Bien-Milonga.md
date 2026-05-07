@@ -3,6 +3,7 @@ title: "Bien Milonga"
 date: "2022-07-19"
 original_url: https://tangosalbardo.blogspot.com/2022/07/bien-milonga.html
 labels: ""
+tags: ["Francisco Canaro", "Carlos Di Sarli"]
 ---
 
 [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiBtcQebN_RM1rNNbXC7cHI-QRNf6H-JG79E9HBE3M50wF-mpoJfik9huoN5Yuf-25JsHTF9oHpDOF3CJx3FIJBbtQEyhwnvQ9qsmGXPJuPTL3yHY7k0AoFCZ2gSBNpjuahuMiCWAHQjofbYa8dslWKFSDyVk1PbWUl5yjNU3zNaL1VMp55jZUH2wPUKQ/w200-h133/Japare.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiBtcQebN_RM1rNNbXC7cHI-QRNf6H-JG79E9HBE3M50wF-mpoJfik9huoN5Yuf-25JsHTF9oHpDOF3CJx3FIJBbtQEyhwnvQ9qsmGXPJuPTL3yHY7k0AoFCZ2gSBNpjuahuMiCWAHQjofbYa8dslWKFSDyVk1PbWUl5yjNU3zNaL1VMp55jZUH2wPUKQ/s669/Japare.jpg)

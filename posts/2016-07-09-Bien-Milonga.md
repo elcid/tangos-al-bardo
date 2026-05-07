@@ -3,6 +3,7 @@ title: "Bien Milonga"
 date: "2016-07-09"
 original_url: https://tangosalbardo.blogspot.com/2016/07/bien-milonga.html
 labels: ""
+tags: ["Francisco Canaro", "Carlos Di Sarli"]
 ---
 
 Sí, me refiero a la milonguita que armo en la Casa de Aragón de Madrid, en la Plaza República Argentina nº6. Las autoridades de la casa han resuelto efectuar unas reformas en el salón y en otras dependencias, y después de este Martes 12 de Julio, haremos un parón. Aprovecharé para irme al Mediterráneo, que me espera con los brazos o sus aguas, abiertos de par de par. Y como en Agosto cierra la Casa, todos los años, volveremos a vernos algún día, como cantaba Reynal con D´'Arienzo...

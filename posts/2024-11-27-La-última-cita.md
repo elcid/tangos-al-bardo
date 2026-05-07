@@ -3,6 +3,7 @@ title: "La última cita"
 date: "2024-11-27"
 original_url: https://tangosalbardo.blogspot.com/2024/11/la-ultima-cita.html
 labels: ""
+tags: ["Francisco García Jiménez", "Florindo Sassone", "Francisco Canaro", "Osvaldo Pugliese", "Mercedes Simone", "Eduardo Arolas", "Agustín Bardi", "Julio De Caro"]
 ---
 
 Agustín Bardi nos dejó un legado tanguero que nos ilumina permanentemente y nos acompaña, no sólo en el recuerdo, sino también en el repaso de sus temas y bailándolos en la milonga por las grandes orquestas típicas. Porque Bardi, junto a su amigo Eduardo Arolas, dejaron un archivo convertido en un mosaico de realidades e imágenes musicales que capturan tiempos diversos y nos atrapan.

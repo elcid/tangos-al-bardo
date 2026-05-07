@@ -3,6 +3,7 @@ title: "Charlo, un artista genial"
 date: "2018-10-14"
 original_url: https://tangosalbardo.blogspot.com/2018/10/charlo-un-artista-genial.html
 labels: ""
+tags: ["José María Contursi", "Enrique Cadícamo", "Adolfo Carabelli", "Alberto Gómez", "Manuel Romero", "Anselmo Aieta", "Charlo"]
 ---
 
 Lo tuvo todo: la pinta, el talento musical, la voz, los modos y un pasaporte plagado de sellos de aduanas. Porque recorrió casi toda Sudamérica, Estados Unidos, España, Portugal, Francia. En todas partes fue aplaudido como el gran artista que fue. Su estilo gardeliano, lo fue dejando a un lado, para forjar su propio estilo. Maestro de la dicción, la entonación, su manera de frasear, angulosa y propensa al virtuosismo vocal, caracterizaron su pesonalidad de intérprete.

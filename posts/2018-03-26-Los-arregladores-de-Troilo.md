@@ -3,6 +3,7 @@ title: "Los arregladores de Troilo"
 date: "2018-03-26"
 original_url: https://tangosalbardo.blogspot.com/2018/03/los-arregladores-de-troilo.html
 labels: ""
+tags: ["Juan Carlos Cobián", "Alberto Caracciolo", "Ismael Spitalnik", "Francisco Canaro", "Osvaldo Fresedo", "Roberto Pansera", "Eduardo Arolas", "Horacio Salgán"]
 ---
 
 El sexteto de Julio De Caro y la orquesta de Juan Carlos Cobián, fueron precursores del arreglador profesional que ya se atisbaba en sus interpretaciones. A partir de 1930 aparecería ese arreglador cuando, tanto el citado Julio De Caro como Osvaldo Fresedo ofrecieron versiones de tangos con agrupaciones numerosas de instrumental más variado. Hubo arregladores que destacaron sobremanera por su trabajo, como Piazzolla, Argentino Galván, Héctor Artola, Emilio Balcarce, Julián Plaza, Mario Demarco, Horacio Salgán, Máximo Mori, Carlos García, Héctor Stamponi, Lucio Demare y otros.

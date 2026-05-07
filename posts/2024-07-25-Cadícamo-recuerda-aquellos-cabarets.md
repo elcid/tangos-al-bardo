@@ -3,6 +3,7 @@ title: "Cadícamo recuerda aquellos cabarets..."
 date: "2024-07-25"
 original_url: https://tangosalbardo.blogspot.com/2024/07/cadicamo-recuerda-aquellos-cabarets.html
 labels: ""
+tags: ["Juan Carlos Cobián", "Osvaldo Fresedo", "Anselmo Aieta"]
 ---
 
 En aquel lejano espectáculo de entonces no se incluían vocalistas en las orquestas. El tango era solamente para bailarlo. Todo lo contrario de lo que viene sucediendo ahora. Los *habitués* acostumbraban concurrir a estas veladas tanguísticas vestidos como para asistir a una reunión social.

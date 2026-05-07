@@ -3,6 +3,7 @@ title: "Victor D'Amario"
 date: "2018-08-28"
 original_url: https://tangosalbardo.blogspot.com/2018/08/victor-damario.html
 labels: ""
+tags: ["Homero Expósito", "Julián Centeya", "José Martínez", "Enrique Dizeo", "Anselmo Aieta", "Pedro Maffia", "Abel Aznar"]
 ---
 
 Este bandoneonista de La Plata merece el recordatorio por su trayectoria, la herencia musical que dejó, su obra autoral y la orquesta que se pudo escuchar en las décadas del cuarenta y cincuenta por varias emisoras, e incluso bailar con la misma. Cosa que me sucedió, por acompañar a un amigo, al Palacio de las Flores en la calle Basavilbaso, cerca de Retiro. Esa noche tocaba la típica de D'Amario y una de jazz. A las cuatro de la mañana cuando salíamos, abajo, había una cantidad impresionante de canastos muy grandes de flores de todo tipo para vender a los distribuidores, como era habitual.

@@ -3,6 +3,7 @@ title: "Christian Márquez & Anabela Brogioli"
 date: "2014-11-18"
 original_url: https://tangosalbardo.blogspot.com/2014/11/christian-marquez-anabela-brogioli.html
 labels: ""
+tags: ["José María Contursi", "Juan Carlos Copes", "Carlos Di Sarli", "Alberto Podestá", "Juan D'Arienzo", "Romeo Gavioli"]
 ---
 
 Se empajeraron este año para bailar tango y da gusto verlos. Parece que lo llevaran haciendo juntos durante mucho tiempo. Tienen eso que define a los guardianes del Tango bien bailado: Musicalidad, pasión, ensamble y elegancia. El Toti Márquez se incorporó a las filas del tango en 1996, después de estudiar con muy buenos profesores.

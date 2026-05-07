@@ -3,6 +3,7 @@ title: "Bien Milonga"
 date: "2022-02-08"
 original_url: https://tangosalbardo.blogspot.com/2022/02/bien-milonga_8.html
 labels: ""
+tags: ["Juan D'Arienzo"]
 ---
 
 [![](https://blogger.googleusercontent.com/img/a/AVvXsEhqz_lHJLGJmTBKy2eXdESoM53X5LrnF51Zw0IwOOJpWwwBquFwxDyhDKPn8zY4o0NrMqr9GKMmKRRbr54lw9LncYgMGvk33ULcKmZM57LMLZiBpvmR0tt2MpkiTQNQCsyNgxAfkGeXqCAU8-aBrYy0wIg3digNxNRiwTrmUB6pyrd0aWP8-RbDcPO3HA=w200-h137)](https://blogger.googleusercontent.com/img/a/AVvXsEhqz_lHJLGJmTBKy2eXdESoM53X5LrnF51Zw0IwOOJpWwwBquFwxDyhDKPn8zY4o0NrMqr9GKMmKRRbr54lw9LncYgMGvk33ULcKmZM57LMLZiBpvmR0tt2MpkiTQNQCsyNgxAfkGeXqCAU8-aBrYy0wIg3digNxNRiwTrmUB6pyrd0aWP8-RbDcPO3HA=s271)¡Seguime, corazón!

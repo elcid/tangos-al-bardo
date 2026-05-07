@@ -3,6 +3,7 @@ title: "BIEN MILONGA"
 date: "2019-05-07"
 original_url: https://tangosalbardo.blogspot.com/2019/05/bien-milonga.html
 labels: ""
+tags: ["Carlos Di Sarli", "Juan D'Arienzo", "Héctor Mauré"]
 ---
 
 *Seguí... muchacha seguí*

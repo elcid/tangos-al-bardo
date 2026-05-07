@@ -3,6 +3,7 @@ title: "BIEN MILONGA"
 date: "2018-10-02"
 original_url: https://tangosalbardo.blogspot.com/2018/10/bien-milonga.html
 labels: ""
+tags: ["Alfredo De Angelis", "Francisco Canaro", "Juan D'Arienzo", "Julio Martel", "Carlos Dante"]
 ---
 
 [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg8JnR537jSpIAVuhdW4AFSizzcX8ZmB2SST8NNgeRmFZ5RyvqSy_waRu61qAf7vAEfGZyMDaZOfbFXsVAuQyoFZD4O24uWTiq7ELvTSLZc3HhXWC50rEg9QYtCQEoqKivjEMaBT5bWynNM/s320/Pareju.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg8JnR537jSpIAVuhdW4AFSizzcX8ZmB2SST8NNgeRmFZ5RyvqSy_waRu61qAf7vAEfGZyMDaZOfbFXsVAuQyoFZD4O24uWTiq7ELvTSLZc3HhXWC50rEg9QYtCQEoqKivjEMaBT5bWynNM/s1600/Pareju.jpg) *Cuando llegué al fondo del salón*

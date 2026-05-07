@@ -3,6 +3,7 @@ title: "A unos ojos"
 date: "2024-06-11"
 original_url: https://tangosalbardo.blogspot.com/2024/06/a-unos-ojos.html
 labels: ""
+tags: ["Edmundo Rivero"]
 ---
 
 Calos Montbrun Ocampo dejó su Albardón natal (Provincia de San Juan) y junto a su amigo Hernán Videla Flores, también de Albardón, viajaron a Buenos Aires donde formaron el dúo Ocampo -Flores. Este dúo tuvo mucho éxito, grabó para el sello Odeón y actuó en las principales radios del país. Después de 10 años de gran éxito se separan.

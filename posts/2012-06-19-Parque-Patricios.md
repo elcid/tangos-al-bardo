@@ -3,6 +3,7 @@ title: "Parque Patricios"
 date: "2012-06-19"
 original_url: https://tangosalbardo.blogspot.com/2012/06/parque-patricios.html
 labels: ""
+tags: ["Francisco Lomuto"]
 ---
 
 Hoy estoy con el *cuore in ritornello *hacia el barrio donde me crié. Donde mastiqué tantos códigos que siguen rigiendo mi andar por la vida.

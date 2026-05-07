@@ -3,6 +3,7 @@ title: "Edmundo Rivero: \"El último trovador\""
 date: "2020-01-20"
 original_url: https://tangosalbardo.blogspot.com/2020/01/edmundo-rivero-el-ultimo-trovador.html
 labels: ""
+tags: ["Edmundo Rivero", "Horacio Salgán", "Aníbal Troilo", "Carlos Gardel", "Julio De Caro", "Nelly Omar"]
 ---
 
 “Un día cayó en mis manos la *Ilíada*, de Homero; me la leí de un tirón, como una novela de aventuras, y me gustó tanto que decidí trasladar algunos de sus pasajes a las sextinas criollas. Cuando le puse una música de milonga pampeana y se la canté a la barra de la esquina sentado en el cordón de la vereda, mi Homero se parecía terriblemente a José Hernández.” Apoltronado en un mullido “bergère” de su casa de la calle Bulnes, Edmundo Rivero rememora su infancia en el barrio de Saavedra, mientras se repone de las efusividades recibidas durante su recital de la semana pasada en la sala del Teatro Payró, que convocó a multitudes fervorosas.

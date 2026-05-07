@@ -3,6 +3,7 @@ title: "La mulateada"
 date: "2014-02-21"
 original_url: https://tangosalbardo.blogspot.com/2014/02/la-mulateada.html
 labels: ""
+tags: ["Carlos Di Sarli", "Roberto Rufino"]
 ---
 
 Prácticamente fue la primera milonga que aprendí a bailar y la primera en que me estrené como milonguero. El muchacho de la barra que me enseñó a bailar este género, era fana de Di Sarli y en el club Sportivo Chárleston, del barrio, nos reuníamos los adolescentes y muchachos en la sala del fondo, la noche de los jueves y allí me formateé junto a ellos.

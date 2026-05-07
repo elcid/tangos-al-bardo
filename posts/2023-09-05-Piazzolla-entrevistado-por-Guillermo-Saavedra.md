@@ -3,6 +3,7 @@ title: "Piazzolla entrevistado por Guillermo Saavedra"
 date: "2023-09-05"
 original_url: https://tangosalbardo.blogspot.com/2023/09/piazzolla-entrevistado-por-guillermo.html
 labels: ""
+tags: ["Carlos Gardel", "Julio De Caro", "Pedro Maffia"]
 ---
 
 Nací en 1921, en Mar del Plata, por entonces una ciudad bastante deshabitada de la costa atlántica argentina, casi salvaje y donde, según se decía, veraneaban los burgueses con mucho dinero.

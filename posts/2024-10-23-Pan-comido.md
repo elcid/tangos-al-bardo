@@ -3,6 +3,7 @@ title: "Pan comido"
 date: "2024-10-23"
 original_url: https://tangosalbardo.blogspot.com/2024/10/pan-comido.html
 labels: ""
+tags: ["Celedonio Flores", "Alberto Echagüe", "Juan D'Arienzo", "Carlos Gardel", "Enrique Dizeo"]
 ---
 
 Este tango de Enrique Dizeo y el cantor-guitarrista Ismael Florentino Gómez, fue compuesto en 1927 y Carlos Gardel lo grabó con sus guitarristas José Ricardo y Guillermo Barbieri en febrero de dicho año, con gran suceso. Pero debieron pasar diecinueve años para que Juan D'Arienzo con la voz de Alberto Echagüe lo llevara de nuevo al disco y a la popularidad, grabándolo en mayo de 1946

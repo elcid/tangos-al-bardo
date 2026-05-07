@@ -3,6 +3,7 @@ title: "Naranjo en flor"
 date: "2025-03-11"
 original_url: https://tangosalbardo.blogspot.com/2025/03/naranjo-en-flor.html
 labels: ""
+tags: ["Roberto Goyeneche", "Virgilio Expósito", "Astor Piazzolla", "Homero Expósito", "Néstor Marconi", "Aníbal Troilo", "Floreal Ruiz"]
 ---
 
 Estoy escuchando este tema en el reproductor y y lo vuelvo a poner dos/tres veces más, por Floreal con Pichuco. Y me engancha, claro, si ya he escrito en mi página sobre esta página de los hermanos Expósito. Que se hizo más grande aún en las interpretaciones que lo popularizaron y lo mantienen en la órbita dentro de ese solipsismo generacional.

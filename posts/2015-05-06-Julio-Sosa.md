@@ -3,6 +3,7 @@ title: "Julio Sosa"
 date: "2015-05-06"
 original_url: https://tangosalbardo.blogspot.com/2015/05/julio-sosa.html
 labels: ""
+tags: ["Leopoldo Federico", "Francisco Rotundo", "Alberto Podestá", "Hugo del Carril", "Edmundo Rivero", "Aníbal Troilo", "Julio Sosa"]
 ---
 
 Hoy le rindo homanaje a este cantor uruguayo que supo mantener en alto la bandera del tango, en una de esas clásicas mareas bajas que sabe tener el género. En este caso desdibujado por la llegada de ritmos foráneos y el apoyo entusiasta de grabadoras y medios de difusión como la Televisión, para entusiasmo de los jóvenes que se identificaban con este tipo de música y sus intérpretes.

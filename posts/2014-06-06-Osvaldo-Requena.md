@@ -3,6 +3,7 @@ title: "Osvaldo Requena"
 date: "2014-06-06"
 original_url: https://tangosalbardo.blogspot.com/2014/06/osvaldo-requena.html
 labels: ""
+tags: ["Fernando Suárez Paz", "Juan Carlos Cobián", "Leopoldo Federico", "Florindo Sassone", "Alberto Castillo", "Roberto Rufino", "Alberto Marino", "Edgardo Donato"]
 ---
 
 Aunque su nombre no tenga el impacto popular de otros músicos de tango, ha sido uno de los que más trabajó en los distintos rubros del mismo. Fue pianista, director, compositor y arreglador. En este último rubro realizó su primer arreglo en 1951 para la orquesta de Raúl Kaplún, y tenía entonces apenas 20 años, lo que habla de su capacidad y formación. Luego lo haría para Eduardo Del Pîano, con quien formó en la orquesta de éste.

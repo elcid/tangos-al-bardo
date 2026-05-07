@@ -3,6 +3,7 @@ title: "La importancia de Eduardo Arolas"
 date: "2026-03-28"
 original_url: https://tangosalbardo.blogspot.com/2026/03/la-importancia-de-eduardo-arolas.html
 labels: ""
+tags: ["Enrique Delfino", "Eduardo Arolas", "Aníbal Troilo", "Julio De Caro", "Pedro Laurenz", "Pedro Maffia"]
 ---
 
 ![[Efemérides] El 24 febrero de 1892 nacía el bandoneonista, compositor y  director Eduardo Arolas. El Tigre del bandoneón | La2x4 | Facebook](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSCQh-TmBDFKhhFdYwLnhyw9dvHm3ddxrTb-w&s)

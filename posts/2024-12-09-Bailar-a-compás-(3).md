@@ -3,6 +3,7 @@ title: "Bailar a compás (3)"
 date: "2024-12-09"
 original_url: https://tangosalbardo.blogspot.com/2024/12/bailar-compas-3.html
 labels: ""
+tags: ["Pedro Laurenz", "Virulazo"]
 ---
 
 ...Y tengo que confesar que a veces me sucede que el cantor me hace perder la melodía de la orquesta y me confunde. No es frecuente pero, por ejemplo, me pasa en el tango **Amurado**, cuando el cantor Juan Carlos Casas en la orquesta de Pedro Laurenz se sale del ritmo de ésta. O la dupla Marino-Ruiz frasea con Troilo en **Palomita blanca**, por citar algunos casos y podría seguir nombrando algunos más.

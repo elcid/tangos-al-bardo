@@ -3,6 +3,7 @@ title: "Cuando la milonga era una pasión popular"
 date: "2020-11-04"
 original_url: https://tangosalbardo.blogspot.com/2020/11/cuando-la-milonga-era-una-pasion-popular.html
 labels: ""
+tags: ["Alfredo De Angelis", "Osvaldo Pugliese", "Carlos Di Sarli", "Ricardo Tanturi", "Alberto Podestá", "Enrique Campos", "Aníbal Troilo", "Alfredo Gobbi"]
 ---
 
 Los que peinamos canas y tuvimos la tremenda suerte de recorrer las milongas de los años cincuenta en numerosos clubes de los barrios porteños, amén de las Confiterías céntricas, podemos dar fe de que aquellas eran unas fiestas populares de difícil repetición. Porque eran masivas, actuaban las grandes orquestas típicas y con ellas las de jazz, compartiendo unas veladas inolvidables y multitudinarias.

@@ -3,6 +3,7 @@ title: "Un momento"
 date: "2025-05-10"
 original_url: https://tangosalbardo.blogspot.com/2025/05/un-momento.html
 labels: ""
+tags: ["Carlos Di Sarli", "Homero Expósito", "Aníbal Troilo", "Raúl Berón"]
 ---
 
 Estoy escuchando este valsecito romántico del *Chupita* Stamponi y no sólo me despunta antiguos recuerdos, sino que me introduce en esos fogonazos de vida con el contraste emocional y sus tribulaciones. En la encrucijada de remembranzas, la pintura de los protagonistas se va desdibujando, por más que los versos esperanzados, ingrávidos, esgrimen un duelo entre la vida empírica y la real.

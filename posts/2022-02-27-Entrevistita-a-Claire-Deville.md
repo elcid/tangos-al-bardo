@@ -3,6 +3,7 @@ title: "Entrevistita a Claire Deville"
 date: "2022-02-27"
 original_url: https://tangosalbardo.blogspot.com/2022/02/entrevistita-claire-deville.html
 labels: ""
+tags: ["Orlando Goñi"]
 ---
 
 Gz- ¿Qué te cansa en medio del tango?

@@ -3,6 +3,7 @@ title: "¿Por que no has venido?"
 date: "2023-06-04"
 original_url: https://tangosalbardo.blogspot.com/2023/06/por-que-no-has-venido.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Carlos García", "Roberto Firpo", "Julio Martel", "Pedro Maffia"]
 ---
 
 Cotidianamente leemos en periódicos, revistas, o lo escuchamos en radio, en la tele, las canciones que va estrenando la artista colombiana Shakira, que versan en las letras sobre la separación de su pareja. Como éste es Piqué, el que fuera destacado futbolista del Barcellona y la Seleción española, sumado a la gran popularidad de ella, rápidamente sus canciones revanchistas se popularizan en redes y en venta de discos, de forma impresionante. El último grito en el arte de la provocación, quizás justificada, da magnífico resultado comercial. El problema de los hijos -que sufren las consecuencias- pasa a segundo plano en estas situaciones.

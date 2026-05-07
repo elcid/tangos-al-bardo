@@ -3,6 +3,7 @@ title: "Los arregladores"
 date: "2017-10-02"
 original_url: https://tangosalbardo.blogspot.com/2017/10/los-arregladores.html
 labels: ""
+tags: ["Juan Carlos Cobián", "Luis Adolfo Sierra", "Osvaldo Pugliese", "Francisco Lomuto", "Osvaldo Fresedo", "Víctor Lavallén", "Roberto Pansera", "Eduardo Arolas"]
 ---
 
 Fueron fundamentales en la etapa que la evolución del tango dejaría atrás al empirismo inicial y fundador del género. Se trataba de músicos profesionales que se dedicaron de lleno a la escritura de los arreglos en las grandes orquestas. Los vanguardistas en ese sentido fueron Osvaldo Fresedo, Juan Carlos Cobián y Julio De Caro, que encargaron dichos trabajos a especialistas, buscando las formas precisas adecuadas a su orquesta.

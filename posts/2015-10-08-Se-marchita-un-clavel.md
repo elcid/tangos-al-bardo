@@ -3,6 +3,7 @@ title: "Se marchita un clavel"
 date: "2015-10-08"
 original_url: https://tangosalbardo.blogspot.com/2015/10/se-marchita-un-clavel.html
 labels: ""
+tags: ["Alberto Marino", "Horacio Ferrer", "Aníbal Troilo", "Carlos Gardel", "Alfredo Gobbi", "Floreal Ruiz", "Oscar Alonso", "Carlos Bahr"]
 ---
 
 Lindo tango del pianista, director y compositor José Tinelli y el poeta, periodista y escritor Manolo Ferradás Campos. No tuvo mayor trascendencia hasta que lo grabara José Basso con Floreal Ruiz, pero tiene una piccola historia que me hace recordarlo y además, me gusta como lo interpreta el Tata y ese comienzo de violines de la orquesta, que nos va poniendo en situación.

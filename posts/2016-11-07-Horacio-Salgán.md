@@ -3,6 +3,7 @@ title: "Horacio Salgán"
 date: "2016-11-07"
 original_url: https://tangosalbardo.blogspot.com/2016/11/horacio-salgan.html
 labels: ""
+tags: ["Horacio Salgán"]
 ---
 
 Esta nota tiene un sentido especial porque está escrita por el Obispo Emérito Jorge Casaretto. Un hombre de la Iglesia que muestra su lado tanguero y hasta le escribe unos versos al maestro Horacio, que me resultan muy lindos. Como la sentida nota en la que lo recuerda, hablando de su juventud y de todo lo que le hizo vivir el tango. Me parece maravilloso que un hombre prominente de la iglesia argentina -Obispo emérito de San Isidro y ex presidente de Cáritas argentina-, haya vivido y sentido así el tango. Y especialmente a un grande como Horacio Salgán

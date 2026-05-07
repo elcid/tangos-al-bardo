@@ -3,6 +3,7 @@ title: "Milonguero viejo"
 date: "2023-12-05"
 original_url: https://tangosalbardo.blogspot.com/2023/12/milonguero-viejo.html
 labels: ""
+tags: ["Osvaldo Fresedo", "Carlos Di Sarli", "Ignacio Corsini", "Julio De Caro", "Julián Plaza", "Juan Maglio"]
 ---
 
 Este tango de Carlos Di Sarli y Enrique Carrera Sotelo, lleva como subtítulo, al destinatario del mismo: **Fresedo**. Precisamente, en el tema, Di Sarli expresa su admiración de siempre por *El Pibe de La Paternal*. A pedido de Di Sarli, Carrera Sotelo le puso versos al tango, pero el maestro de Bahía Blanca no los registró nunca, ni los hizo interpretar por sus cantores.

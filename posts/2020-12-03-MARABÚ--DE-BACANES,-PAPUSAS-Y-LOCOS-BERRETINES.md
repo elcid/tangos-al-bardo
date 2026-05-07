@@ -3,6 +3,7 @@ title: "MARABÚ: DE BACANES, PAPUSAS Y LOCOS BERRETINES"
 date: "2020-12-03"
 original_url: https://tangosalbardo.blogspot.com/2020/12/marabu-de-bacanes-papusas-y-locos.html
 labels: ""
+tags: ["Francisco Fiorentino", "José María Contursi", "Florindo Sassone", "Enrique Cadícamo", "Donato Racciatti", "Alberto Castillo", "Francisco Canaro", "Francisco Lomuto"]
 ---
 
 Uno de los más famosos cabarets de la década del '40 -—en el que actuaron Carlos Di Sarli, Fiorentino y Aníbal Troilo. entre otras figuras mayores de la música de Buenos Aires— acaba de reabrir sus puertas. Siete Días reunió allí a viejos habitués, quienes rememoraron los esplendores de antaño, una época inflamada por la picardía de los noctámbulos

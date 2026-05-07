@@ -3,6 +3,7 @@ title: "Oscar Alonso"
 date: "2014-07-04"
 original_url: https://tangosalbardo.blogspot.com/2014/07/oscar-alonso.html
 labels: ""
+tags: ["Enrique Cadícamo", "Osvaldo Pugliese", "Hugo del Carril", "Carlos García", "Anselmo Aieta", "Oscar Alonso", "Héctor Marcó", "Julio Sosa"]
 ---
 
 Fue un cantor reconocido por todos los expertos del arte tanguero, pero quisicosas de la vida, cómo diría aquel hombre porteño de la radio, tuvo las armas para triunfar y se fue apagando como una vela para desesperación de la gente del ambiente que lo admiraba.

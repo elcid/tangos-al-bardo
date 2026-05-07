@@ -3,6 +3,7 @@ title: "Rondando tu esquina"
 date: "2015-02-17"
 original_url: https://tangosalbardo.blogspot.com/2015/02/rondando-tu-esquina.html
 labels: ""
+tags: ["Francisco Canaro", "Cátulo Castillo", "Mariano Mores", "Miguel Caló", "Charlo"]
 ---
 
 A pesar de los años que llevo en el tango, de haber participado en un famoso y exitoso programa de televisión (Odol pregunta), cuando tenía unos 23 años, contestando sobre La historia del tango, de haber charlado muchas horas con grandes del género, de haber reporteado a muchos de ellos, de haber escrito páginas y páginas sobre el tema, me siguen sorprendiendo muchas cosas.

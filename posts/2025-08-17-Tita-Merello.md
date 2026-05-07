@@ -3,6 +3,7 @@ title: "Tita Merello"
 date: "2025-08-17"
 original_url: https://tangosalbardo.blogspot.com/2025/08/tita-merello.html
 labels: ""
+tags: ["Juan Andrés Caruso", "Francisco Canaro", "Manuel Romero", "Tita Merello"]
 ---
 
 por Francisco Canaro:

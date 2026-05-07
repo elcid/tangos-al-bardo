@@ -3,6 +3,7 @@ title: "Rosas de abril"
 date: "2012-06-13"
 original_url: https://tangosalbardo.blogspot.com/2012/06/rosas-de-abril.html
 labels: ""
+tags: ["Carlos Gardel"]
 ---
 
 [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiyeEvGG23hR4rxxtsCxhb4oLaKNw9Xf_n3nsQhzsjvTr3ZAfvDWja0x4YDLPXa9Cxa3C27zh4sVWNr4lcevXshJVIHKtrylNNE7WPc4b9WeWRVjIpmC-lm6cuC_sGEC6Rgn51nd0wbP3Iy/s320/escanear0020.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiyeEvGG23hR4rxxtsCxhb4oLaKNw9Xf_n3nsQhzsjvTr3ZAfvDWja0x4YDLPXa9Cxa3C27zh4sVWNr4lcevXshJVIHKtrylNNE7WPc4b9WeWRVjIpmC-lm6cuC_sGEC6Rgn51nd0wbP3Iy/s1600/escanear0020.jpg) Rafael Rossi con Rosita Valentino en Radio Belgrano.1950  Rafael Rossi era un gauchazo campero trasplantado al tango. Oriundo de Mercedes, provincia de Buenos Aires, a 100 kilómetros de la Capital Federal, tanto podía interpretar con su bandoneón páginas folklóricas como tangos, milongas y valsecitos.

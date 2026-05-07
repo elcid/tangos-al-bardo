@@ -3,6 +3,7 @@ title: "Julio Pollero"
 date: "2014-04-10"
 original_url: https://tangosalbardo.blogspot.com/2014/04/julio-pollero.html
 labels: ""
+tags: ["Francisco Fiorentino", "Roberto Goyeneche", "Agustín Magaldi", "Eugenio Nóbile", "Rosita Quiroga", "Carlos Gardel", "Julio Pollero", "Jorge Casal"]
 ---
 
 Ya me ocupé con anterioridad de este pianista que supo brillar con luz propia entre los años veinte y fines del treinta. Primero, haciendo yunta con ese violinista que hizo punta en la renovación del tango, Agesilao Ferrazzano, quien luego emigraría a Europa y nunca pegó la vuelta. Luego con su propia formación, que tendría recorrido..

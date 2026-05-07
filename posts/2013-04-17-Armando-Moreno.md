@@ -3,6 +3,7 @@ title: "Armando Moreno"
 date: "2013-04-17"
 original_url: https://tangosalbardo.blogspot.com/2013/04/armando-moreno.html
 labels: ""
+tags: ["Enrique Rodríguez", "Domingo Federico", "Carlos Di Sarli", "Enrique Delfino", "Charlo"]
 ---
 
 Si no está en un plano más alto de la consideración general y de la crítica, es por haber cantado con Enrique Rodríguez todo tipo de canciones de otros ritmos. Si bien esta temática le sirvió al director y también a Moreno para instalarse en el corazón y la oreja de los distintos públicos de América, los alejaron de la masa tanguera y milonguera.

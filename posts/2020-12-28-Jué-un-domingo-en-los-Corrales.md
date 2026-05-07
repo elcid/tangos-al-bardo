@@ -3,6 +3,7 @@ title: "Jué un domingo en los Corrales"
 date: "2020-12-28"
 original_url: https://tangosalbardo.blogspot.com/2020/12/jue-un-domingo-en-los-corrales.html
 labels: ""
+tags: ["Francisco García Jiménez"]
 ---
 
 La cosa jué por el sur, y aconteció n'el ochenta ayá en los Corrales Viejos, por la caye de la Arena.

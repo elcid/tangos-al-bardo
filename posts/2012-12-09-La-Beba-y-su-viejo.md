@@ -3,6 +3,7 @@ title: "La Beba y su viejo"
 date: "2012-12-09"
 original_url: https://tangosalbardo.blogspot.com/2012/12/la-beba-y-su-viejo.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Pedro Laurenz"]
 ---
 
 Me cuenta Beba Pugliese que debutó con su hija María Carla y Axel Mastronardi, pareja de la chica, con *Milonga sola*, en el Festival de San Telmo. María Carla tocando el bandoneón, Alex la guitarra y Beba al piano, y cómo me relató otro amigo, la cosa fue todo un éxito. Algo que no me extraña en absoluto.

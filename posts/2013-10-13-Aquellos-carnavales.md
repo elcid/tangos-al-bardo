@@ -3,6 +3,7 @@ title: "Aquellos carnavales"
 date: "2013-10-13"
 original_url: https://tangosalbardo.blogspot.com/2013/10/aquellos-carnavales.html
 labels: ""
+tags: ["Enrique Santos Discépolo", "Francisco Canaro", "Osvaldo Pugliese", "Osvaldo Fresedo", "Carlos Di Sarli", "Arturo De Bassi", "Eduardo Arolas", "Aníbal Troilo"]
 ---
 
 Durante muchos años fue la gran fiesta de Buenos Aires y algunas provincias. El corso municipal se realizaba en la Avenida de Mayo y desfilaban carrozas, y se agolpaba la gente en sus veredas, muchos disfrazados, disparando confetti, serpentinas, agua de pequeños pomos y animando las noches en los barrios, las calles y los teatros.

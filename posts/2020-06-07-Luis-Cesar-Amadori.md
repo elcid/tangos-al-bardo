@@ -3,6 +3,7 @@ title: "Luis Cesar Amadori"
 date: "2020-06-07"
 original_url: https://tangosalbardo.blogspot.com/2020/06/luis-cesar-amadori.html
 labels: ""
+tags: ["Libertad Lamarque", "Francisco Canaro", "Pascual Contursi", "Enrique Delfino", "Edgardo Donato", "Carlos Gardel", "Julio De Caro", "Ivo Pelay"]
 ---
 
 Si Gardel nació como argentino a los dos años de edad, Amadori lo hizo con cinco años. Había nacido en Pescara-Italia, y llegó con sus padres al puerto de Buenos Aires, sin que éstos pudieran llegar a imaginar, ni remotamente, lo que llegaría a ser su hijo en el cine, el teatro y la canción porteña. Incluso sus primeros trabajos fueron en el periodismo, concretamente en el diario *Última hora* y la revista *Caras y caretas* donde se vislumbraba al oteador de vidas que triunfaría en el cine. Eligió este camino abandonando su carrera universitaria.

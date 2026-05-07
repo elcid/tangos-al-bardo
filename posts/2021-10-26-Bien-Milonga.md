@@ -3,6 +3,7 @@ title: "Bien Milonga"
 date: "2021-10-26"
 original_url: https://tangosalbardo.blogspot.com/2021/10/bien-milonga_26.html
 labels: ""
+tags: ["Juan D'Arienzo", "Alfredo Gobbi", "Héctor Mauré"]
 ---
 
 Quiero música, maestro, se lo pido por favor,

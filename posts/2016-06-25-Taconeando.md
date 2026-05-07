@@ -3,6 +3,7 @@ title: "Taconeando"
 date: "2016-06-25"
 original_url: https://tangosalbardo.blogspot.com/2016/06/taconeando.html
 labels: ""
+tags: ["Alberto Podestá", "Edgardo Donato", "Romeo Gavioli", "Miguel Caló"]
 ---
 
 Ya lo decía José Horacio Staffolani en este tangazo que compuso junto a Pedrito Maffia:

@@ -3,6 +3,7 @@ title: "Bien milonga"
 date: "2018-03-06"
 original_url: https://tangosalbardo.blogspot.com/2018/03/bien-milonga.html
 labels: ""
+tags: ["Francisco Canaro", "Pedro Laurenz"]
 ---
 
 * Al alma sabe llegar *

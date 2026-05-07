@@ -3,6 +3,7 @@ title: "Joaquín Do Reyes"
 date: "2012-05-05"
 original_url: https://tangosalbardo.blogspot.com/2012/05/joaquin-do-reyes.html
 labels: ""
+tags: ["Eduardo Del Piano", "Celedonio Flores", "Joaquín Do Reyes", "Francisco Lomuto", "Osvaldo Fresedo", "Alfredo Gobbi", "Mario Demarco", "Mariano Mores"]
 ---
 
 En este recorrido emocional por las entrañas del tango, muchas veces me pongo a pensar en esos músicos o cantores que se quedaron en segunda o tercera fila porque fueron taponados por otros grandes.

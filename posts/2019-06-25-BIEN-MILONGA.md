@@ -3,6 +3,7 @@ title: "BIEN MILONGA"
 date: "2019-06-25"
 original_url: https://tangosalbardo.blogspot.com/2019/06/bien-milonga_25.html
 labels: ""
+tags: ["Francisco Canaro", "Juan D'Arienzo", "Carlos Bahr"]
 ---
 
 *Yo llevo el tango en el alma*

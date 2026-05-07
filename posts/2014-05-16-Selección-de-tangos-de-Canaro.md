@@ -3,6 +3,7 @@ title: "Selección de tangos de Canaro"
 date: "2014-05-16"
 original_url: https://tangosalbardo.blogspot.com/2014/05/seleccion-de-tangos-de-canaro.html
 labels: ""
+tags: ["Juan Carlos Cobián", "Francisco Canaro", "Eduardo Arolas", "Aníbal Troilo", "Agustín Bardi", "Julio De Caro", "Carlos Figari", "Raúl Kaplún"]
 ---
 
 A finales de los años cuarenta, Aníbal Troilo fue madurando la idea de grabar una Selección de tangos de varios compositores notables. Le fue dando vueltas hasta que, ya decidido, trató de convencer a Argentino Galván para que le hiciera los correspondientes arreglos a composiciones de Julio De Caro, Francisco Canaro, Eduardo Arolas, Agustín Bardi y Juan Carlos Cobián y hacer con ellos un *mix*, para llevar al disco.

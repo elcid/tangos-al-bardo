@@ -3,6 +3,7 @@ title: "Los recuerdos de Troilo"
 date: "2016-06-20"
 original_url: https://tangosalbardo.blogspot.com/2016/06/los-recuerdos-de-troilo.html
 labels: ""
+tags: ["Juan Carlos Cobián", "Osvaldo Pugliese", "Alberto Echagüe", "Eugenio Nóbile", "Eduardo Arolas", "Juan D'Arienzo", "Julián Centeya", "Aníbal Troilo"]
 ---
 
 Hoy estoy con la música de Pichuco y me pongo a repasar su historia previa a la primera orquesta que tuvo y que debutara el 1º de julio de 1937, en Marabú, el cabaret que sigue existiendo en Maipú 359 y que ahora regentea mi amigo Jorge Di Capua, el risueño... Recopilando datos de su currículo, contados a distintos periodistas, gambeteando otros momentos de su carrera hasta llegar allí, vale la pena recordarlos.

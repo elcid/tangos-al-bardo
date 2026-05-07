@@ -3,6 +3,7 @@ title: "BIEN MILONGA"
 date: "2019-01-08"
 original_url: https://tangosalbardo.blogspot.com/2019/01/bien-milonga.html
 labels: ""
+tags: ["José María Otero", "Alberto Podestá", "Alberto Echagüe", "Juan D'Arienzo", "Pedro Laurenz", "Carlos Bahr"]
 ---
 
 *El tiempo pasa de largo

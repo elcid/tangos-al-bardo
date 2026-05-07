@@ -3,6 +3,7 @@ title: "Cátulo Castillo"
 date: "2016-05-25"
 original_url: https://tangosalbardo.blogspot.com/2016/05/catulo-castillo.html
 labels: ""
+tags: ["José González Castillo", "Cátulo Castillo", "Aníbal Troilo", "Dante Linyera", "Miguel Caló"]
 ---
 
 Es uno de los nombres más importantes que engrandecen y jerarquizan al tango. Hijo del patriarca de Boedo, José González Castillo, heredó de éste su copiosa creatividad, algo de su espíritu anarquista y una personalidad que le permitió tener infinidad de amigos en el tango y la cultura argentina. Fue además muy buen boxedor amateur, violinista y una proyección de poeta que no sacó a relucir hasta que falleció su padre, a quien musicalizó algunas de sus obras.

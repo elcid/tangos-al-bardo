@@ -3,6 +3,7 @@ title: "Anita Palmero"
 date: "2014-11-13"
 original_url: https://tangosalbardo.blogspot.com/2014/11/anita-palmero.html
 labels: ""
+tags: ["Francisco Canaro", "Vicente Demarco"]
 ---
 
 Hace cuatro años se estrenó, precisamente en la tierra donde nació -Málaga-, un filme documental sobre la vida, obra y peripecias de esta cantante de tangos por casualidad. Que actuaría en el primer corto musical argentino: "*Mosaico criollo*", dirigido por Edmo Cominetti, donde interpreta el tango festivo, *Botarate*. Fue en 1929. Anita habia nacido en la ciudad malagueña de Ronda, y al morir su madre, el padre se trasladó con sus cuatro hijos a Casablanca, en Marruecos.

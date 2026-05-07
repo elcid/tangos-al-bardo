@@ -3,6 +3,7 @@ title: "...y el Tango copó la banca!"
 date: "2023-04-13"
 original_url: https://tangosalbardo.blogspot.com/2023/04/y-el-tango-copo-la-banca.html
 labels: ""
+tags: ["Alfredo De Angelis", "Francisco Canaro", "Osvaldo Pugliese", "Osvaldo Fresedo", "Carlos Di Sarli", "Juan D'Arienzo", "Aníbal Troilo", "Julio De Caro"]
 ---
 
 ** CARLOS DI SARLI**

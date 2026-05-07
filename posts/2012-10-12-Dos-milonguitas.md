@@ -3,6 +3,7 @@ title: "Dos milonguitas"
 date: "2012-10-12"
 original_url: https://tangosalbardo.blogspot.com/2012/10/dos-milonguitas.html
 labels: ""
+tags: ["Juan D'Arienzo"]
 ---
 
 Un día feriado y asoleado como Dios manda. Una noche de milonga en la cabeza y los fanguyos todavía calientes, me llevan a repasar la infinita lista de bellas milongas que tengo en mi archivo.

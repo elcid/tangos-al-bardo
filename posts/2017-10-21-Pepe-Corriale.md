@@ -3,6 +3,7 @@ title: "Pepe Corriale"
 date: "2017-10-21"
 original_url: https://tangosalbardo.blogspot.com/2017/10/pepe-corriale.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Francisco Canaro", "Francisco Lomuto", "Osvaldo Fresedo", "Luis Petrucelli", "Armando Pontier", "José Libertella", "Edmundo Rivero"]
 ---
 
 Se llamaba José Alberto Corriale (1915/1997), aunque en el ambiente musical de aquella Buenos Aires milonguera, se lo conocía simplemente por Pepe. Curiosamente, era percusionista, estudió música en el Conservatorio Manuel de Falla, piano con la prestigiosa profesora Eva Weingard, y en los años 30 comenzó su carrera artística integrando la Sinfónica Nacional, continuando con la Filarmónica Muncipal, las Sinfónicas de radio Nacional y radio El Mundo.

@@ -3,6 +3,7 @@ title: "Casas viejas"
 date: "2012-08-04"
 original_url: https://tangosalbardo.blogspot.com/2012/08/casas-viejas.html
 labels: ""
+tags: ["Rodolfo Mederos", "Pedro Laurenz"]
 ---
 
 Esta vieja casona de San Telmo tiene todos los perfumes y recuerdos de aquellas casa-chorizo donde convivían numeros inquilinos que se turnaban en el uso de baños y piletas. Y los chiquilines corriendo tras la pelota y destrozando alguna planta, con el consabido regañar de las madres.

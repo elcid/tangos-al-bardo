@@ -3,6 +3,7 @@ title: "Miradas sobre el tango"
 date: "2016-04-06"
 original_url: https://tangosalbardo.blogspot.com/2016/04/miradas-sobre-el-tango.html
 labels: ""
+tags: ["Luis Adolfo Sierra", "Horacio Salgán", "Carlos Gardel"]
 ---
 
 Tengo ganas de exponer opiniones de voces importantes sobre nuestro querido y trascendente tango, que muestran visiones que alimentan su importancia en el desarrollo del mismo y su implante en el corazón del pueblo. Fueron vertidas en su momento, hace tiempo de ello, y escojo a tres personajes fundamentales dentro de la historia y el desarrollo, que con sus análisis nos permiten sumergirnos en el pasado y presente de esta trilogía que conforman el tango: Música, poesía y danza. Comenzamos con el más importante musicólogo que ha tenido esta expresión musical: Luis Adolfo Sierra.

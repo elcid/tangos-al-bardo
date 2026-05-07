@@ -3,6 +3,7 @@ title: "Aquella orquesta de las Estrellas"
 date: "2018-11-12"
 original_url: https://tangosalbardo.blogspot.com/2018/11/aquella-orquesta-de-las-estrellas.html
 labels: ""
+tags: ["Domingo Federico", "Armando Pontier", "Alberto Podestá", "Osmar Maderna", "Pedro Laurenz", "Pedro Maffia", "Miguel Caló", "Raúl Berón"]
 ---
 
 Así como Miguel Caló estuvo a punto de irse a las manos con Osmar Maderna, cuando el pianista le anunció que se alejaría de la orquesta para formar la propia -como recordaba Alberto Podestá-, en los casos de Domingo Federico, Enrique Mario Francini y Armando Pontier, que pasaron por la misma situación, el propio Caló les ofreció su ayuda y todo lo que necesitaran para que les fuera bien como directores.

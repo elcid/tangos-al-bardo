@@ -3,6 +3,7 @@ title: "Manlio Francia"
 date: "2018-04-05"
 original_url: https://tangosalbardo.blogspot.com/2018/04/manlio-francia.html
 labels: ""
+tags: ["Francisco Pracánico", "Luis Adolfo Sierra", "Adolfo Carabelli", "Carlos Di Sarli", "Luis Petrucelli", "Julio De Caro", "Pedro Laurenz"]
 ---
 
 Este violinista veneciano que había estado con la orquesta de su padre en Mar del Plata, tocando en el Hotel Bristol, durante la temporada veraniega, vino así varias veces a la Argentina. Le gustaba el ambiente, el clima, y pese a haber desfilado por los mejores lugares de la Costa Azul, con sus 12 añitos se embarcó con su progenitor en Marsella rumbo a la Reina del Plata, donde se quedaría para siempre, aunque tuviera que interrumpir sus estudios de violín en Bruselas.

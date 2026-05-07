@@ -3,6 +3,7 @@ title: " ¿SUITE TROILEANA?"
 date: "2024-09-22"
 original_url: https://tangosalbardo.blogspot.com/2024/09/suite-troileana.html
 labels: ""
+tags: ["José González Castillo", "Adolfo Carabelli", "Astor Piazzolla", "Alfredo Le Pera", "Edmundo Rivero", "Agustín Bardi", "Lucio Demare"]
 ---
 
 **1. FUNCIÓN Y MÉTODO DEL CRÍTICO MUSICAL**

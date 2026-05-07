@@ -3,6 +3,7 @@ title: "Valsecito amigo"
 date: "2021-09-11"
 original_url: https://tangosalbardo.blogspot.com/2021/09/valsecito-amigo.html
 labels: ""
+tags: ["José María Contursi", "Aníbal Troilo", "Mariano Mores"]
 ---
 
 En la guarida milonguera, el valsecito es el paréntesis a la sacralidad del tango y la voluptuosidad de la milonga. Es la alegría, la agitación de sentimientos lúdicos, festivos, íntimos, contagiantes. Se nota de inmediato en los giros de la pareja y los iluminados rostros que acompañan esos movimientos llenos de gracia. Cuando los valses porteños llevan versos, generalmente se adaptan al estilo pícaro, romántico, del género nacido en la lejana Viena y adaptado al estilo del tango, incluso en sus pasos de danza.

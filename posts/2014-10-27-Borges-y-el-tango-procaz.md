@@ -3,6 +3,7 @@ title: "Borges y el tango procaz"
 date: "2014-10-27"
 original_url: https://tangosalbardo.blogspot.com/2014/10/borges-y-el-tango-procaz.html
 labels: ""
+tags: ["Celedonio Flores", "Francisco Canaro", "Alfredo Le Pera", "Eduardo Arolas", "Edgardo Donato", "Vicente Greco", "Manuel Romero"]
 ---
 
 Mucho se ha dicho y escrito sobre la relación de Jorge Luis Borges con el tango. Yo no soy precisamente de los que creen que el gran escritor supiese mucho al respecto. O poco. Pero su sobrino Miguel Torre Borges, en su libro: **Apuntes de familia. Mis padres, mi tío, mi abuela**, que editó Alberto Casares en el año 2004, en sus páginas habla de los tangos que le gustaban a ese escritor que, como tal, admiro profundamente y tengo toda su obra, que releo constantemente. Y voy a esas páginas que escribió su sobrino para conocer los tangos que le gustaban a Borges.

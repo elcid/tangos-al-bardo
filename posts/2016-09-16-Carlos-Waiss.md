@@ -3,6 +3,7 @@ title: "Carlos Waiss"
 date: "2016-09-16"
 original_url: https://tangosalbardo.blogspot.com/2016/09/carlos-waiss.html
 labels: ""
+tags: ["Alfredo De Angelis", "Fulvio Salamanca", "Carlos Di Sarli", "Agustín Magaldi", "Roberto Rufino", "Juan D'Arienzo", "Héctor Varela", "Carlos Waiss"]
 ---
 
 Hay cosas que cuestan entender, como cierto menosprecio por algunos poetas o letristas de tango, que quizás en un escalón menor, dejaron un tendal de temas impecables, que fondearon con enorme éxito en las milongas, radios y orejas de bailarines o tangueros de meta y ponga. Es el caso de este hombre, descendiente de inmigrantes rusos, que atesora un pedigrí digno del mayor de los respetos, su obra me lleva hacia aquellos años juveniles en que muchos de sus temas me atravesaron el cuore.

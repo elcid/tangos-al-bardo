@@ -3,6 +3,7 @@ title: "BIEN MILONGA"
 date: "2018-10-09"
 original_url: https://tangosalbardo.blogspot.com/2018/10/bien-milonga_9.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Juan D'Arienzo", "Julio De Caro"]
 ---
 
 * *

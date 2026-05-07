@@ -3,6 +3,7 @@ title: "El estagiario"
 date: "2012-04-04"
 original_url: https://tangosalbardo.blogspot.com/2012/04/el-estagiario.html
 labels: ""
+tags: ["Carlos Di Sarli", "Edgardo Donato", "Roberto Firpo", "Pedro Maffia", "José Basso"]
 ---
 
 El título de este tango siempre despierta curiosidad, sumada a la belleza de escucharlo en la gran creación que hizo Carlos Di Sarli del mismo, grabándolo el 18 de abril de 1941.

@@ -3,6 +3,7 @@ title: "Arturo De Bassi"
 date: "2015-10-21"
 original_url: https://tangosalbardo.blogspot.com/2015/10/arturo-de-bassi.html
 labels: ""
+tags: ["Celedonio Flores", "Francisco Canaro", "Osvaldo Fresedo", "Carlos Di Sarli", "Enrique Delfino", "Arturo De Bassi", "Juan D'Arienzo", "Horacio Salgán"]
 ---
 
 Anoche en la milonga que llevo en Madrid estaba bailando con Juan D'Arienzo (¡Cómo pudieron criticarlo tanto!) y de repente sonó* El romántico*, un tango hermoso que me pone a cien sobre todo en la eléctrica versión del Rey del compás, que yo había seleccionado previamente. Me hace vibrar de una manera especial. Y justo en esa misma tanda también estaba otro golazo fantástico de D'Arienzo: *Don Pacífico*. Es que no dan ganas de que terminen nunca porque volás con las pies y el cuore.

@@ -3,6 +3,7 @@ title: "Adiós te vas"
 date: "2025-01-23"
 original_url: https://tangosalbardo.blogspot.com/2025/01/adios-te-vas.html
 labels: ""
+tags: ["José González Castillo", "Cátulo Castillo", "Miguel Caló"]
 ---
 
 Cátulo Castillo no sólo fue un prolífico y espléndido autor de tangos, sino que además dirigió la Historia de la Música y de Pedagogía en el Conservatorio Municipal Manuel de Falla. Estaría incluso 15 años como Director del mismo. Anduvo de jovencito por Europa dirigiendo la orquesta típica en la cual formaban Miguel Caló, Alberto Cima, Roberto Maida y los hermanos Alfredo y Ricardo Malerba.

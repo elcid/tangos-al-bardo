@@ -3,6 +3,7 @@ title: "El Sexteto Di Sarli"
 date: "2014-05-02"
 original_url: https://tangosalbardo.blogspot.com/2014/05/el-sexteto-di-sarli.html
 labels: ""
+tags: ["Juan Carlos Cobián", "Osvaldo Fresedo", "Carlos Di Sarli", "Edgardo Donato", "Anselmo Aieta"]
 ---
 
 El gran pianista, compositor y director, merece recordarse a cada momento. Además de todo lo que aportó al tango, por lo mucho que debió luchar para ser reconocido en el medio y poder vivir de la música que más quería. Por sus convicciones y por no haber bajado la guardia nunca, pese a que lo pasó muy mal en sus primeros tiempos en la ciudad porteña, como él mismo reconocería en reportajes posteriores. Por ejemplo en la revista "*Mundo radial*" de la Editorial Haynes:

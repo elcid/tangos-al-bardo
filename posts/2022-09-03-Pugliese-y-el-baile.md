@@ -3,6 +3,7 @@ title: "Pugliese y el baile"
 date: "2022-09-03"
 original_url: https://tangosalbardo.blogspot.com/2022/09/pugliese-y-el-baile.html
 labels: ""
+tags: ["Osvaldo Pugliese"]
 ---
 
 El maestro don Osvaldo siempre recordaba el consejo de su padre: "*Cuando estés tocando acordate que lo estás haciendo para los bailarines. fijate en los pies de ellos y seguilos. De ese modo nunca te vas a equivocar en en ritmo, que debe ser bailable siempre...".*

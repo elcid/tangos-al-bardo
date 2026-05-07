@@ -3,6 +3,7 @@ title: "Piazzolla y La cumparsita"
 date: "2012-10-05"
 original_url: https://tangosalbardo.blogspot.com/2012/10/piazzolla-y-la-cumparsita.html
 labels: ""
+tags: ["José Bragato"]
 ---
 
 Las declaraciones de Piazzolla fueron siempre más allá de su condición de genio de la música y están en la misma líneas de un Borges o Maradona, en cuanto a que chirrían entre quienes los admiramos por sus condiciones musicales, literarias o deportivas.

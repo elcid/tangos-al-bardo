@@ -3,6 +3,7 @@ title: "Homenaje a Pichuco"
 date: "2014-06-17"
 original_url: https://tangosalbardo.blogspot.com/2014/06/homenaje-pichuco_17.html
 labels: ""
+tags: ["Aníbal Troilo"]
 ---
 
 Como les adelanté en el Blog, este miércoles 11 de junio pasado, le rendimos un homenaje al Centenario del nacimiento de Aníbal Troilo, en el Teatro de la hermosa Casa de Vacas, en el Parque madrileño del Retiro. El mismo estuvo organizado por la Embajada Argentina en Madrid, en colaboración con Casa Argentina, el Colegio Mayor Argentino y el apoyo de tres Bodegas.

@@ -3,6 +3,7 @@ title: "Una noche de garufa"
 date: "2013-08-04"
 original_url: https://tangosalbardo.blogspot.com/2013/08/una-noche-de-garufa.html
 labels: ""
+tags: ["Francisco García Jiménez", "Francisco Canaro", "Carlos Di Sarli", "Ricardo Tanturi", "Eduardo Arolas", "Agustín Bardi", "Roberto Firpo"]
 ---
 
 Merece que nos detengamos un rato, aparquemos por un momento el mate y le dediquemos un poco de atención al primer tango de uno de los más geniales compositores: Eduardo Arolas. Y pensemos que éste, su primer tango, lo compuso en el año 1909 cuando apenas garabateaba en el fueye y no sabía ni escribir ni leer música.

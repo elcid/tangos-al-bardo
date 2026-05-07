@@ -3,6 +3,7 @@ title: "Tango y copas"
 date: "2015-11-14"
 original_url: https://tangosalbardo.blogspot.com/2015/11/tango-y-copas.html
 labels: ""
+tags: ["Libertad Lamarque", "Osvaldo Pugliese", "Alberto Marino", "Aníbal Troilo", "Carlos Bahr"]
 ---
 
 Se trata de un tango de Héctor María Artola y Carlos Bahr que, en 1942, cobrara mucha repercusión en la versión de Alberto Marino con la orquesta de Aníbal Troilo. El protagonista reclama más tangos y alguna copa, que es lo que hacemos en la milonga. Después de un par de tandas hay que refrescar el garguero y darle gasolina a los remos para seguir dejándonos el alma en la pista.

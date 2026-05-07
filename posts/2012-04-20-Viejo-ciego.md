@@ -3,6 +3,7 @@ title: "Viejo ciego"
 date: "2012-04-20"
 original_url: https://tangosalbardo.blogspot.com/2012/04/viejo-ciego.html
 labels: ""
+tags: ["Roberto Goyeneche", "Enrique Delfino", "Cátulo Castillo", "Ignacio Corsini", "Sebastián Piana", "Julio De Caro", "Anselmo Aieta", "Dante Linyera"]
 ---
 
 A mediados de 1925, la revista *“El alma que canta”* que incluía los tangos de moda (Mi hermano la compraba siempre), organizó por idea de uno de sus redactores: Rómulo Avallone, un concurso de letras, bajo el eslogan: *“Buscamos al poeta del tango”.*

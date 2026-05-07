@@ -3,6 +3,7 @@ title: "Bardiando"
 date: "2015-02-02"
 original_url: https://tangosalbardo.blogspot.com/2015/02/bardiando.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Carlos Di Sarli", "Vicente Greco", "Agustín Bardi", "Roberto Firpo"]
 ---
 
 Sí, en lugar de* bardear* con el tango hoy me voy a ocupar del gran Agustín Bardi, uno de los pilares de la saga de compositores fundadora del material que iba a poblar los atriles de aquellos músicos de la guardia vieja, y que por la gran calidad musical de su obra, también estribaría en las partituras a las cuales recurrirían con harta frecuencia los futuros integrantes de las orquestas típicas.

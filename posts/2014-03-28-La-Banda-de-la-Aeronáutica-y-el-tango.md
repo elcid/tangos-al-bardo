@@ -3,6 +3,7 @@ title: "La Banda de la Aeronáutica y el tango"
 date: "2014-03-28"
 original_url: https://tangosalbardo.blogspot.com/2014/03/la-banda-de-la-aeronautica-y-el-tango.html
 labels: ""
+tags: ["Donato Racciatti", "Manuel Meaños"]
 ---
 
 La Banda de Música y Guerra de la Fuerza Aérea Argentina, tuvo su inicio en la I Brigada Aérea, el 19 de Diciembre de 1945, con asiento en El Palomar. Su primer Director fue el Mayor Armando Nalli, quien luego fuera el primer inspector de Bandas Militares de la Fuerza Aérea.

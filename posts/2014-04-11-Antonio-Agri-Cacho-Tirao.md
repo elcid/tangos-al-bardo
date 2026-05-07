@@ -3,6 +3,7 @@ title: "Antonio Agri-Cacho Tirao"
 date: "2014-04-11"
 original_url: https://tangosalbardo.blogspot.com/2014/04/antonio-agri-cacho-tirao.html
 labels: ""
+tags: ["Juan Carlos Cobián", "Enrique Cadícamo", "Aníbal Troilo", "Antonio Agri", "Homero Manzi", "Cacho Tirao", "Pablo Agri"]
 ---
 
 ¡Qué lujo escuchar a estos instrumentistas que nos dejaron hace un tiempo! Menos mal que quedan sus trabajos para relajarnos, entusiasmarnos, emocionarnos y disfrutarlos. El rosario Antonio Pablo Agri comenzó su carrera a los 15 años integrando un cuarteto en Córdoba. Tocó en la Sinfónica de Rosario. Pasó por varios conjuntos tríos, cuartetos, orquestas y en 1962, Nito Farace y José Márquez lo presentaron a Piazzolla.

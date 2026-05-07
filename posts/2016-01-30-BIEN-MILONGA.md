@@ -3,6 +3,7 @@ title: "BIEN MILONGA"
 date: "2016-01-30"
 original_url: https://tangosalbardo.blogspot.com/2016/01/bien-milonga_30.html
 labels: ""
+tags: ["Alfredo De Angelis", "Francisco Lomuto", "Juan D'Arienzo"]
 ---
 
 Día de milongueros; el sábado nos preparábamos temprano para bailar en vivo y en directo con esas orquestas que están vivitas y coleando en las milongas del mundo entero. Revivirlas todos los sábados y martes en la Casa de Aragón de Madrid, situada en la Plaza de la República Argentina nº6, es como un rito en el que nos transportamos a aquellos momentos mágicos, con la ayuda de la tecnología y la música envasada.

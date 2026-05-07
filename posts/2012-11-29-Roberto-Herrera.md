@@ -3,6 +3,7 @@ title: "Roberto Herrera"
 date: "2012-11-29"
 original_url: https://tangosalbardo.blogspot.com/2012/11/roberto-herrera.html
 labels: ""
+tags: ["Juan Carlos Copes", "Pepito Avellaneda", "Osvaldo Pugliese", "Antonio Todaro"]
 ---
 
 Es un grande como bailarín de tango. Ha recorrido y sigue recorriendo el orbe, con su clase, su elegancia, su espíritu creativo y siempre agrega algo. Tiene ese don de los elegidos, aunque resulte raro su constante cambio de pareja, algo desconocido prácticamente hasta ahora.

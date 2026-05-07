@@ -3,6 +3,7 @@ title: "Desagravio"
 date: "2019-01-19"
 original_url: https://tangosalbardo.blogspot.com/2019/01/desagravio.html
 labels: ""
+tags: ["José María Contursi", "Francisco Canaro", "Francisco Lomuto", "Homero Manzi", "Nelly Omar"]
 ---
 
 Traigo este tango a la página, lo desempolvo y lo rescato porque contiene los versos de dos poetas muy importantes del género que unieron sus plumas, su talento y su experiencia vital en las cosas del corazón. Homero Manzi y José María Contursi tenían, cuando escribieron esta letra, 38 y 34 años respectivamente. Ambos arrastraban historias de amor que los desgarraban y que fueron muy conocidas. Varias páginas históricas del tango encierran toda la sustancia del desamor que vivieron.

@@ -3,6 +3,7 @@ title: "Un recuerdo de Alfredo Gobbi"
 date: "2013-03-31"
 original_url: https://tangosalbardo.blogspot.com/2013/03/un-recuerdo-de-alfredo-gobbi.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Astor Piazzolla", "Julio Camilloni", "Edgardo Donato", "Julián Centeya", "Alfredo Gobbi", "Pedro Maffia", "Orlando Goñi"]
 ---
 
 Esta pintura de un enorme personaje del tango la escribí hace un tiempo, a pedido de José Pedro Aresi, pero hoy siento la necesidad de traerla al Blog, a casi 48 años de su desaparición física.

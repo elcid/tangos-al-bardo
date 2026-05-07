@@ -3,6 +3,7 @@ title: "Micaela Matilde Sastre"
 date: "2024-01-25"
 original_url: https://tangosalbardo.blogspot.com/2024/01/micaela-matilde-sastre.html
 labels: ""
+tags: ["Azucena Maizani", "Ignacio Corsini", "Alfredo Gobbi", "Carlos Gardel"]
 ---
 
 Hoy traigo a la página a esta hija del gran educador Marcos Sastre que ejerció la carrera de maestra dedicando sus esfuerzos a la niñez y adolescencia, porque además de ello y curiosamente, en una época que no se concebía -y menos en su ambiente- que una mujer escribiera tangos, ella lo hizo y con gran acierto. Y lo más notable es, que dos de ellos, los grabó nada menos que Carlos Gardel.

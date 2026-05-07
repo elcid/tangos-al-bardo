@@ -3,6 +3,7 @@ title: "Barrio reo"
 date: "2025-01-21"
 original_url: https://tangosalbardo.blogspot.com/2025/01/barrio-reo.html
 labels: ""
+tags: ["José González Castillo", "Hugo del Carril", "Carlos Gardel"]
 ---
 
 Los que nos criamos en un barrio reo, nos recreamos con este tango cuyos versos son de Alfredo Navarrine, que fue cantor de temas rurales. Con su hermano Julio formaron un dúo vocal que recorrió distintos pueblos y llegaron no sólo la ciudad porteña, donde actuaron en radioteatros, e incluso anclaron con éxito en Montevideo.

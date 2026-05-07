@@ -3,6 +3,7 @@ title: "Juan Carlos Copes"
 date: "2021-01-16"
 original_url: https://tangosalbardo.blogspot.com/2021/01/juan-carlos-copes.html
 labels: ""
+tags: ["Juan Carlos Copes", "María Nieves"]
 ---
 
 Nos acaba de dejar un grande del tango bailado. Un milonguero que supo progresar, estudiar y dedicarse a los escenarios. Triunfó en Buenos Aires, en París y en Estados Unidos, donde fue aplaudido por grandes artistas. **Tango Argentino** fue el espectáculo que lo consagró en los escenarios europeos y norteamericanos, junto a su gran pareja, María Nieves.

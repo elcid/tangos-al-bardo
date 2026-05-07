@@ -3,6 +3,7 @@ title: "La mariposa y la muerte"
 date: "2012-12-10"
 original_url: https://tangosalbardo.blogspot.com/2012/12/la-mariposa-y-la-muerte.html
 labels: ""
+tags: ["Alberto Di Paulo", "Armando Pontier"]
 ---
 
 Pertenece esta obra a aquel armado de tangos que realizó el infatigable Ben Molar y para lo cual solicitó la colaboración de músicos y poetas. El trabajo se llamó 14 con el Tango y crearon esos temas, algunas duplas como:

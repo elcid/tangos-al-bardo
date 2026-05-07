@@ -3,6 +3,7 @@ title: "Día Internacional del Tango"
 date: "2022-12-11"
 original_url: https://tangosalbardo.blogspot.com/2022/12/dia-internacional-del-tango_11.html
 labels: ""
+tags: ["Julio De Caro"]
 ---
 
 Se celebra el 11 de diciembre en homenaje a Gardel y De Caro, dos iconos de una de las mayores expresiones de la cultura argentina

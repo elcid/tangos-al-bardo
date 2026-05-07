@@ -3,6 +3,7 @@ title: "Osvaldo Pugliese - Volver a la gente"
 date: "2022-11-07"
 original_url: https://tangosalbardo.blogspot.com/2022/11/osvaldo-pugliese-volver-la-gente.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Carlos Di Sarli", "Julio De Caro", "Julián Plaza"]
 ---
 
 ** LOS LUGARES**

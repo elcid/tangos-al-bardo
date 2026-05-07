@@ -3,6 +3,7 @@ title: "Engobbiado"
 date: "2012-09-27"
 original_url: https://tangosalbardo.blogspot.com/2012/09/engobbiado.html
 labels: ""
+tags: ["Ismael Spitalnik", "Alfredo Gobbi", "Julio De Caro", "Orlando Goñi"]
 ---
 
 El temperamento romántico de Alfredito Gobbi lo traduce claramente en cualquier tema que interpreta con su orquesta.

@@ -3,6 +3,7 @@ title: "Apuntes sobre el tango “Malena” "
 date: "2022-09-02"
 original_url: https://tangosalbardo.blogspot.com/2022/09/apuntes-sobre-el-tango-malena.html
 labels: ""
+tags: ["Roberto Goyeneche", "Raúl Garello"]
 ---
 
 El inicio melódico y armónico es contundente, un intervalo de 4ª justa, ascendente y categórico, presenta con su rotundo V-I el nombre de la mujer y el título del tango. Luego sigue el verbo, la acción. En la palabra “*canta*”, la melodía trepa a la 3ª, se define así el modo menor y Demare lo enfatiza replicando no sólo ambas sílabas, “*can-ta”*, sino el artículo que sigue, "*el*", con la utilización de la sinalefa en la misma nota.

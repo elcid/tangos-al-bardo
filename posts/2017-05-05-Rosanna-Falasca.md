@@ -3,6 +3,7 @@ title: "Rosanna Falasca"
 date: "2017-05-05"
 original_url: https://tangosalbardo.blogspot.com/2017/05/rosanna-falasca.html
 labels: ""
+tags: ["José María Contursi", "Libertad Lamarque", "Mariano Mores", "Raúl Garello", "María Graña", "Luis Stazo"]
 ---
 
 Su camino en el tango fue tan breve como su joven vida que se desvaneció en plena gloria. Había surgido en el popular programa "Grandes valores del tango", que entonces conducía Juan Carlos Thorry. Su larga cabellera lacia y rubia, sus ojos claros, de hermosa presencia física, más una voz muy bien trabajada, natural, fueron el detonante para que los directivos del Canal 9, especialmente Alejandro Romay, su dueño, se entusiasmaran con ella y le ofrecieran un contrato de 4 años.

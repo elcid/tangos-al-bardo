@@ -3,6 +3,7 @@ title: "El Negro Thompson"
 date: "2012-06-01"
 original_url: https://tangosalbardo.blogspot.com/2012/06/el-negro-thompson.html
 labels: ""
+tags: ["Luis Petrucelli", "Julio De Caro"]
 ---
 
 En aquel tango primigenio que diseñaron los negros argentinos en forma totalmente improvisada, fijando la característica más importante del tango-danza, que es precisamente la improvisación, tañeron diversos instrumentos gente proveniente de África o sus descendientes.

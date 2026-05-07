@@ -3,6 +3,7 @@ title: "Antonio Todaro. El Maestro."
 date: "2019-08-29"
 original_url: https://tangosalbardo.blogspot.com/2019/08/antonio-todaro-el-maestro.html
 labels: ""
+tags: ["Juan Carlos Copes", "Antonio Todaro", "Virulazo"]
 ---
 
 En el desarrollo del tango como danza escénica, las corrientes renovadoras crecen en patrones similares sucesivos. Ciertos bailarines y maestros dan forma a generaciones enteras de profesionales en cada época. Si se reconstruyera la historia del tango sobre la base de estas referencias, habría que mencionar al menos a cuatro maestros fundamentales: José Benito Bianquet - "El Cachafaz" - a principios de siglo; José Méndez en sus 40 años; más cerca que Juan Carlos Copes; y en la década de los 80 Antonio Todaro - "El Tano" o simplemente "El maestro / The master".

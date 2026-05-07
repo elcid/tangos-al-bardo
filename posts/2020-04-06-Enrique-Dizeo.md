@@ -3,6 +3,7 @@ title: "Enrique Dizeo"
 date: "2020-04-06"
 original_url: https://tangosalbardo.blogspot.com/2020/04/enrique-dizeo.html
 labels: ""
+tags: ["Juan Carlos Cobián", "Celedonio Flores", "Florindo Sassone", "Alberto Castillo", "Osvaldo Pugliese", "Astor Piazzolla", "Ricardo Tanturi", "Sebastián Piana"]
 ---
 
 No solo fue uno de los más prolíficos, seguramente, de los poetas que descargaron su talento y sus versos en el tango, sino que, además, muchas de sus obras siguen vigentes en el gusto de los tangueros y los continuamos bailando en las pistas de muchos rincones del mundo. Porque, además de su estro fértil, tuvo de compañeros en esas composiciones a ilustres músicos como Aníbal Troilo, Juan Carlos Cobián, Osvaldo Pugliese, Anselmo Aieta, Ricardo Tanturi, Juan Canaro, Sebastián Piana, Carlos Marcucci, Edgardo Donato, Astor Piazzolla, José Canet, Julio De Caro, Juan Polito, Geroni Flores, Florindo Sassone, Juan Maglio, Miguel Caló... y una lista muy larga.

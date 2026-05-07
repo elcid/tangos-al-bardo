@@ -3,6 +3,7 @@ title: "Valsecitos"
 date: "2012-05-29"
 original_url: https://tangosalbardo.blogspot.com/2012/05/valsecitos.html
 labels: ""
+tags: ["José González Castillo", "Osvaldo Pugliese", "Roberto Firpo", "Osvaldo Zotto", "Charlo"]
 ---
 
 El vals entró en la familia del tango a través de los numerosos inmigrantes que llegaron a las playas argentinas en sucesivas oleadas europeas, debido a las guerras y los padecimientos que sufrían en el viejo continennte.

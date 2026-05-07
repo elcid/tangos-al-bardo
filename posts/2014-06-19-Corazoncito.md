@@ -3,6 +3,7 @@ title: "Corazoncito"
 date: "2014-06-19"
 original_url: https://tangosalbardo.blogspot.com/2014/06/corazoncito.html
 labels: ""
+tags: ["Osvaldo Fresedo", "Ricardo Tanturi", "Teófilo Ibáñez", "Carlos Gardel", "Roberto Firpo"]
 ---
 
 Este hermoso tango que consagró Carlos Gardel en 1928, lo ideó Rafael Rossi en su bandoneón para complacer el pedido de un amigo, en Mar del Plata, mientras actuaba allí con su conjunto. Y sucedió que lo estrenó la orquesta de Serapio Urquía en la bella ciudad atlántica aquel verano, en forma instrumental, y fue tan bien recibido que debieron bisarlo varias veces a pedido del entusiasta público y bailarines.

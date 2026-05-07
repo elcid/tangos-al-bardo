@@ -3,6 +3,7 @@ title: "Carlos Fuentes"
 date: "2024-01-26"
 original_url: https://tangosalbardo.blogspot.com/2024/01/carlos-fuentes.html
 labels: ""
+tags: ["Aníbal Troilo"]
 ---
 
 **"Amo a Buenos Aires desde los años 40"**

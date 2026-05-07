@@ -3,6 +3,7 @@ title: "Victoria Ocampo"
 date: "2018-09-13"
 original_url: https://tangosalbardo.blogspot.com/2018/09/victoria-ocampo.html
 labels: ""
+tags: ["Osvaldo Fresedo"]
 ---
 
 Fue una de las intelectuales más importantes de Argentina. Fundadora de la inolvidable revista **Sur** y de la Editorial del mismo nombre, autora de notables trabajos y promotora de obras literarias de muchos colegas. Incluso su residencia en el barrio de Beccar sirvió de punto de reunión de numerosos y famosos escritores. Fue refugio y sede de la intelectualidad de su época. De origen aristocrático, fue criada por institutrices y de pequeña dominaba la lengua francesa.

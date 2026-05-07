@@ -3,6 +3,7 @@ title: "BIEN MILONGA"
 date: "2017-02-18"
 original_url: https://tangosalbardo.blogspot.com/2017/02/bien-milonga_18.html
 labels: ""
+tags: ["Francisco Canaro", "Osvaldo Pugliese", "Ricardo Tanturi", "Enrique Campos", "Carlos Bahr", "José Basso"]
 ---
 
 * *

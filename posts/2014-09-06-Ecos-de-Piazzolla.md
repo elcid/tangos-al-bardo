@@ -3,6 +3,7 @@ title: "Ecos de Piazzolla"
 date: "2014-09-06"
 original_url: https://tangosalbardo.blogspot.com/2014/09/ecos-de-piazzolla.html
 labels: ""
+tags: ["Leopoldo Federico", "Juan Carlos Copes", "Horacio Malvicino", "Atilio Stampone", "Aníbal Troilo", "Alfredo Gobbi", "José Bragato", "María Nieves"]
 ---
 
 Hoy estoy apiazzollado total y encima una bailarina amiga, desde Japón, quiere que le dé máquina a los recuerdos de Ástor. Alguna vez conté que estuvo un domingo a la mañana en el programa: *Dialogando con swing,* que hacíamos con Papaleo de 8.30 a 12.30 y por el que desfilaron tantos grosos del tango, de fútbol, o artistas de mucho calado.

@@ -3,6 +3,7 @@ title: "Bien milonga"
 date: "2018-02-06"
 original_url: https://tangosalbardo.blogspot.com/2018/02/bien-milonga.html
 labels: ""
+tags: ["Carlos Di Sarli", "Roberto Rufino", "Edgardo Donato", "Pedro Laurenz", "Romeo Gavioli"]
 ---
 
 * Me gusta un tango así *

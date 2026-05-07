@@ -3,6 +3,7 @@ title: "Osvaldo Zotto"
 date: "2014-09-04"
 original_url: https://tangosalbardo.blogspot.com/2014/09/osvaldo-zotto.html
 labels: ""
+tags: ["Celedonio Flores", "Osvaldo Zotto"]
 ---
 
 Este año se cumplió el cuarto aniversario del fallecimiento de uno de los mejores bailarines que ha dado el tango en Argentina. Osvaldo Zotto, hermano menor de Miguel Ángel, tenía apenas 46 años en el momento de su sorpresiva partida definitiva.

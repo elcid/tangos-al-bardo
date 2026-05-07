@@ -3,6 +3,7 @@ title: "Secreto por Discépolo"
 date: "2014-01-08"
 original_url: https://tangosalbardo.blogspot.com/2014/01/secreto-por-discepolo.html
 labels: ""
+tags: ["Enrique Santos Discépolo", "Julio Sosa"]
 ---
 
 En su ciclo de conferencias: "*Cómo nacieron mis canciones*", que Enrique Santos Discépolo diera por Radio Belgrano en 1947, fue revelando la entraña de sus tangos. Posteriormente la revista "*Crisis*" editó unos cuadernillos en 1973 y fue en uno de ellos que aparecen todas estas creaciones reveladas por el propio autor.

@@ -3,6 +3,7 @@ title: "Yo soy el tango"
 date: "2015-10-03"
 original_url: https://tangosalbardo.blogspot.com/2015/10/yo-soy-el-tango.html
 labels: ""
+tags: ["Homero Expósito", "Carlos Di Sarli", "Teófilo Ibáñez", "Aníbal Troilo"]
 ---
 
 Hoy estamos de cumpleaños en BIEN MILONGA, el bailongo que realizamos todos los sábados y martes en la CASA DE ARAGÓN de Madrid, a partir de las 21 horas. Y con la experiencia que dan los años, sabemos calentar las gambas seleccionando una música de prima, de esas que te llevan a la pista sin paradas intermedias, porque tiene una polenta bárbara y es super milonguera. Tal cual

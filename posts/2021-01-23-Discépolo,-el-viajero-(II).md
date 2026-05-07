@@ -3,6 +3,7 @@ title: "Discépolo, el viajero (II)"
 date: "2021-01-23"
 original_url: https://tangosalbardo.blogspot.com/2021/01/discepolo-el-viajero-ii.html
 labels: ""
+tags: ["Mariano Mores", "Tita Merello", "Homero Manzi"]
 ---
 
 >

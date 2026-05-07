@@ -3,6 +3,7 @@ title: "Osvaldo Fresedo y la ronda nueva (II)"
 date: "2025-10-29"
 original_url: https://tangosalbardo.blogspot.com/2025/10/osvaldo-fresedo-y-la-ronda-nueva-ii.html
 labels: ""
+tags: ["Juan Carlos Cobián", "Francisco Canaro", "Pascual Contursi", "Osvaldo Fresedo", "Eduardo Arolas", "Vicente Greco", "Carlos Gardel", "José Martínez"]
 ---
 
 ** Café Paulín y Maldonado**

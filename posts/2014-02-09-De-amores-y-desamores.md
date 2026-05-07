@@ -3,6 +3,7 @@ title: "De amores y desamores"
 date: "2014-02-09"
 original_url: https://tangosalbardo.blogspot.com/2014/02/de-amores-y-desamores.html
 labels: ""
+tags: ["Francisco Canaro"]
 ---
 
 Te sorprende mi presencia

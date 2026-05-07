@@ -3,6 +3,7 @@ title: "Quasi nada"
 date: "2023-10-19"
 original_url: https://tangosalbardo.blogspot.com/2023/10/quasi-nada.html
 labels: ""
+tags: ["Juan D'Arienzo", "Juan Maglio"]
 ---
 
 Siempre vuelvo con este tango que el bandoneonista Juan Maglio *Pacho*, compuso en 1912 y lo grabó ese mismo año con su cuarteto, en el sello Columbia. El tema tenía un segundo nombre:* El combate*, pero prevaleció siempre aquel título, que en la grabación de Pacho se escribe como **Cuasi nada**. Era bastante habitual en aquella época que se dieran errores en el etiquetado de los discos.

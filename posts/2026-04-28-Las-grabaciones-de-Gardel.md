@@ -3,6 +3,7 @@ title: "Las grabaciones de Gardel"
 date: "2026-04-28"
 original_url: https://tangosalbardo.blogspot.com/2026/04/las-grabaciones-de-gardel.html
 labels: ""
+tags: ["Juan Andrés Caruso", "Alfredo Le Pera", "Edmundo Rivero", "Carlos Gardel", "Enrique Dizeo"]
 ---
 
 El gran mérito de las canciones grabadas por Carlos Gardel, antes que se produjera la primera revolución electrónica, es la forma de cómo se realizaban. La grabación en cilindros y posteriormente en discos, son inventos del siglo diecinueve, cuando las ayudas eléctricas o más moderadamente electrónicas estaban todavía en un futuro no demasiado cercano.

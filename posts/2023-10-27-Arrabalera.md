@@ -3,6 +3,7 @@ title: "Arrabalera"
 date: "2023-10-27"
 original_url: https://tangosalbardo.blogspot.com/2023/10/arrabalera.html
 labels: ""
+tags: ["Francisco Canaro", "Sebastián Piana", "Cátulo Castillo", "Tita Merello"]
 ---
 
 Este tango de Cátulo Castillo y Sebastián Piana (dos grosos muy grosos del tango) fue creado como *leit motiv* para gloria de Tita Merello que se vio reflejada y radiografiada en los versos de Cátulo. Además, la música que le imprimió Piana, hacían restallar aún más aquello de. *"Arrabalera / yo soy propia hermana entera / de Chiclana y compadrón "... *

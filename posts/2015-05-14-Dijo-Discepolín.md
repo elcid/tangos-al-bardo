@@ -3,6 +3,7 @@ title: "Dijo Discepolín"
 date: "2015-05-14"
 original_url: https://tangosalbardo.blogspot.com/2015/05/dijo-discepolin.html
 labels: ""
+tags: ["Tita Merello"]
 ---
 
 Mi capacidad amatoria es tan amplia que por fraternidad natural, por sencilla buena fe, y soy de los que quieren -sin discriminar- a la guía telefónica entera. A los que me saludan. A los que me estafan. ¿Cómo no querer a los que me quieren?

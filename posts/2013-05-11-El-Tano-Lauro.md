@@ -3,6 +3,7 @@ title: "El Tano Lauro"
 date: "2013-05-11"
 original_url: https://tangosalbardo.blogspot.com/2013/05/el-tano-lauro.html
 labels: ""
+tags: ["Jorge Caldara"]
 ---
 
 Fue un personaje que colmó el anecdotario del tango durante unos años. Recuerdo haber escuchado Algunas divertidas historias sobre este músico italiano, que según algunos que lo trataron de cerca era semi analfabeto, además de luchar contra el cambio de lengua que tuvo que afrontar al llegar con su familia desde el sur peninsular a la Argentina.

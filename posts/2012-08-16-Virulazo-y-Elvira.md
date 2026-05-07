@@ -3,6 +3,7 @@ title: "Virulazo y Elvira"
 date: "2012-08-16"
 original_url: https://tangosalbardo.blogspot.com/2012/08/virulazo-y-elvira.html
 labels: ""
+tags: ["Juan Carlos Copes", "Celedonio Flores", "Virulazo"]
 ---
 
 Es una verdadera lástima que no tengamos mejores imágenes de esta pareja que simboliza la belleza del tango bailado y que ocupó las grandes carteleras internacionales junto a otros grandes del género.

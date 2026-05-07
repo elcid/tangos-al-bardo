@@ -3,6 +3,7 @@ title: "Piazzolla entrevistado por Guillermo Saavedra (2)"
 date: "2023-09-05"
 original_url: https://tangosalbardo.blogspot.com/2023/09/piazzolla-entrevistado-por-guillermo_5.html
 labels: ""
+tags: ["Cátulo Castillo", "Aníbal Troilo", "Orlando Goñi"]
 ---
 
 * Entre las previsibles lágrimas de doña Asunta y los consejos de Nonino, el joven de dieciséis años partió a la Capital. Allí lo esperaban un cuarto de alquiler, el trabajo en una orquesta que tocaba en el cabaret Novelty y la amargura de descubrir rápidamente la espesa sordidez de la vida nocturna en Buenos Aires, que Piazzolla aprendió a matizar estudiando música con rigor prusiano y despejándose en la calma verde del billar. Cuando salía de tocar se iba, con unción religiosa, al Café Germinal a escuchar al bandoneonista Aníbal Troilo, "*por ese entonces*", afirma Piazzolla, "*el más grande de todos".

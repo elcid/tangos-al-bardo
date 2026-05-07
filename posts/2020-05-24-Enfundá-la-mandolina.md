@@ -3,6 +3,7 @@ title: "Enfundá la mandolina"
 date: "2020-05-24"
 original_url: https://tangosalbardo.blogspot.com/2020/05/enfunda-la-mandolina.html
 labels: ""
+tags: ["Francisco Pracánico", "Celedonio Flores", "Armando Pontier", "Julio Sosa"]
 ---
 
 Tango filosófico al mango que consagrara Gardel en 1930 y que reclamaba desde Venezuela, en la gira que marcaría el final trágico de su vida. Pedía que le enviaran al consulado de Maracaibo la letra y música de este tango de Francisco Pracánico y Horacio Zubiría Mansilla, y que había pasado a ser prácticamente el cierre clásico de sus actuaciones en público. El autor de los versos, en la partitura, puso: *Dedicado a todos los viejos verdes.*

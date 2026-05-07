@@ -3,6 +3,7 @@ title: "Todo enredado en el tango"
 date: "2019-08-12"
 original_url: https://tangosalbardo.blogspot.com/2019/08/todo-enredado-en-el-tango.html
 labels: ""
+tags: ["Julio De Caro"]
 ---
 
 Los enredos son difíciles de explicar. Mi vida probablemente comenzó con un tango, sonando en la radio cerca de mi madre y mis primeros gritos para respirar.

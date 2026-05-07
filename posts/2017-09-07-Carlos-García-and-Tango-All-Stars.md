@@ -3,6 +3,7 @@ title: "Carlos García and Tango All Stars"
 date: "2017-09-07"
 original_url: https://tangosalbardo.blogspot.com/2017/09/carlos-garcia-and-tango-all-stars.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Carlos Di Sarli", "José Libertella", "Mercedes Simone", "Alberto Marino", "Horacio Salgán", "Carlos García", "Roberto Firpo"]
 ---
 
 Del maestro Carlos García ya escribí en otra oportunidad detallando su curriculum y sus reconocidas capacidades como músico, arrglador y pianista. También lo hice en el Diario **El País**, a raíz de su fallecimiento, a los 92 años de edad y trabajando como si fuera aquel jovencito dieciochoañero que se sentara al piano de la gran orquesta de Roberto Firpo y se mantuviera durante seis años en aquella banqueta, mostrando tan temprano sus grandes conocimientos.

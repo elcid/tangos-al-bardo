@@ -3,6 +3,7 @@ title: "Hay una virgen "
 date: "2024-01-19"
 original_url: https://tangosalbardo.blogspot.com/2024/01/hay-una-virgen.html
 labels: ""
+tags: ["Carlos Gardel"]
 ---
 
 ![055 - HAY UNA VIRGEN - Carlos Gardel | #GARDEL - YouTube](https://i.ytimg.com/vi/3tfupurnf48/sddefault.jpg)

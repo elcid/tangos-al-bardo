@@ -3,6 +3,7 @@ title: "Con Víctor Lavallén"
 date: "2012-04-13"
 original_url: https://tangosalbardo.blogspot.com/2012/04/con-victor-lavallen.html
 labels: ""
+tags: ["Roberto Goyeneche", "Joaquín Do Reyes", "Ismael Spitalnik", "Osvaldo Pugliese", "Víctor Lavallén", "Agustín Bardi", "Mario Demarco", "Julián Plaza"]
 ---
 
 Nos encontramos en *Los 36 billares*. Habíamos ido escuchar a Fabían Bertero y su big band tanguera, y en un momento quedamos frente a frente.

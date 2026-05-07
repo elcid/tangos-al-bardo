@@ -3,6 +3,7 @@ title: "Di Sarli: El señor del tango y punto."
 date: "2022-09-05"
 original_url: https://tangosalbardo.blogspot.com/2022/09/di-sarli-el-senor-del-tango-y-punto.html
 labels: ""
+tags: ["Osvaldo Fresedo", "Carlos Di Sarli", "Alberto Podestá", "Roberto Rufino", "Horacio Ferrer", "Anselmo Aieta"]
 ---
 
 Los músicos de Carlos Di Sarli recuerdan que, aunque estuvieran en medio de una actuación en la radio, cuando algún conocido o algún imprudente se ponía cerca del piano él dejaba de tocar. Además de detestar a los fisgones, Di Sarli parecía temer la revelación de sus secretos interpretativos. Hace exactamente cuarenta años se los llevó todos con él.

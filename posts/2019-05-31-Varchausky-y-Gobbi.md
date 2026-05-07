@@ -3,6 +3,7 @@ title: "Varchausky y Gobbi"
 date: "2019-05-31"
 original_url: https://tangosalbardo.blogspot.com/2019/05/varchausky-y-gobbi.html
 labels: ""
+tags: ["Víctor Lavallén", "Alfredo Gobbi"]
 ---
 
 ## **Ignacio Varchausky: "La orquesta de Gobbi es la gran Enciclopedia del tango"**

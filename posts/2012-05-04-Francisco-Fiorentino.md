@@ -3,6 +3,7 @@ title: "Francisco Fiorentino"
 date: "2012-05-04"
 original_url: https://tangosalbardo.blogspot.com/2012/05/francisco-fiorentino.html
 labels: ""
+tags: ["Francisco Fiorentino", "José María Contursi", "Juan Carlos Cobián", "Francisco Canaro", "Alberto Marino", "Aníbal Troilo", "Julio Pollero", "Pedro Maffia"]
 ---
 
 Fiore siempre estará en nuestro cuore, y me sale en verso porque él era todo un poema cantando.

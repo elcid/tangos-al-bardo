@@ -3,6 +3,7 @@ title: "Astillas de Recuerdo"
 date: "2014-04-07"
 original_url: https://tangosalbardo.blogspot.com/2014/04/astillas-de-recuerdo.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Horacio Salgán", "Pedro Laurenz", "Julio De Caro"]
 ---
 
 Es uno de los tangos más logrados de la historia del género y si tengo que elegir obligadamente uno, me quedaría con este super tango de Osvaldo Pugliese. Circulan muchas historias sobre esa autoría, pero estas cosas siempre sueceden cuando algo alcanza categoría de mito y se presta para todo tipo de elucubraciones, teorías y comentarios.

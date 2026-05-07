@@ -3,6 +3,7 @@ title: "José Böhr y el serrucho"
 date: "2012-04-02"
 original_url: https://tangosalbardo.blogspot.com/2012/04/jose-bohr-y-el-serrucho.html
 labels: ""
+tags: ["José González Castillo", "Juan Andrés Caruso", "Francisco Canaro", "Anselmo Aieta"]
 ---
 
 Todo un personaje incrustado en el tango, fue el polifacético José Bohr (Yopes Böhr Elzer), nacido en Bonn (Alemania) el 3 de setiembre de 1901. Según le contó a la periodista Viviana Gorbato en 1987, siempre recordaba su infancia en Turquía, donde su padre fue veterinario de caballerizas privadas y del zoológico del palacio del último sultán. “*Después viví tiempos duros en los tiempos que viví con mi familia en el sur de Chile, criándome en una zona de Punta Arenas llamada Punta Porvenir, entre 80 personas decentes y 100 prostitutas”.*

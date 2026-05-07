@@ -3,6 +3,7 @@ title: "BIEN MILONGA"
 date: "2019-09-24"
 original_url: https://tangosalbardo.blogspot.com/2019/09/bien-milonga_24.html
 labels: ""
+tags: ["Alberto Echagüe", "Juan D'Arienzo"]
 ---
 
 Casi caminando

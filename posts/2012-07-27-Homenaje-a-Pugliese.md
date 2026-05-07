@@ -3,6 +3,7 @@ title: "Homenaje a Pugliese"
 date: "2012-07-27"
 original_url: https://tangosalbardo.blogspot.com/2012/07/homenaje-pugliese.html
 labels: ""
+tags: ["Luis Adolfo Sierra", "Juan José Mosalini", "Osvaldo Pugliese", "Rodolfo Mederos", "Daniel Binelli"]
 ---
 
 Los holandeses que tienen en gran aprecio al tango, y que, en líneas generales, lo bailan con sentimiento y profundidad, intentando aprender de las fuentes, le realizaron este pequeño homenaje a Don Osvaldo.

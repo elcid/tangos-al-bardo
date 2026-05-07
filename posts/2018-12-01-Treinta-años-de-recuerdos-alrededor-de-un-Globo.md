@@ -3,6 +3,7 @@ title: "Treinta años de recuerdos alrededor de un Globo "
 date: "2018-12-01"
 original_url: https://tangosalbardo.blogspot.com/2018/12/treinta-anos-de-recuerdos-alrededor-de.html
 labels: ""
+tags: ["Alberto Gómez", "Homero Manzi"]
 ---
 
 Los arqueólogos se empeñan en hacer la cuenta exacta de las ciudades superpuestas a lo largo de sucesivas civilizaciones. Ayer, sentados en las butacas de “Huracán”, sin querer, hacíamos nuestra arqueología sentimental, superponiendo en el recuerdo las distintas canchas del club del Parque de los Patricios, que nació bajo el símbolo de aquel globo ausente –que llorará todo Buenos Aires- y que tuvo como presidente honorario a Jorge Newbery, el príncipe de los deportes argentinos, aquel de la sonrisa triste y la muerte gloriosa.

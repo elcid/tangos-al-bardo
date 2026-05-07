@@ -3,6 +3,7 @@ title: "Vamos, todavía"
 date: "2021-10-07"
 original_url: https://tangosalbardo.blogspot.com/2021/10/vamos-todavia.html
 labels: ""
+tags: ["Carlos Di Sarli", "Horacio Salgán", "Aníbal Troilo", "Alfredo Gobbi", "Néstor Fabián", "Raúl Garello"]
 ---
 
 Juanca Tavera nos dejó unas cuantas páginas que tienen ese sabor de la melancolía, de lo porteño, de lo vivido y del alma tanguera que llevamos encima. La metafísica en la que estamos envueltos con el paso de los años. El asombro, la ternura, el futuro incierto, los declives del amor y la distopía imaginaria sobre lo que vendrá, flotan en los versos de este porteño de Béccar, que se mandó temas de gran calado, en un momento en que el tango estaba de capa caída.

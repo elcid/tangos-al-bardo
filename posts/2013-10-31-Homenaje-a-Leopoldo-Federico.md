@@ -3,6 +3,7 @@ title: "Homenaje a Leopoldo Federico"
 date: "2013-10-31"
 original_url: https://tangosalbardo.blogspot.com/2013/10/homenaje-leopoldo-federico.html
 labels: ""
+tags: ["Feliciano Brunelli", "Leopoldo Federico", "Astor Piazzolla", "Armando Pontier", "Atilio Stampone", "Susana Rinaldi", "Horacio Ferrer", "José Colángelo"]
 ---
 
 Este martes pasado, se celebró el merecido homenaje al gran bandoneonista que cumple nada menos que 55 años al frente de su Orquesta Típica. Este maestro que tiene 86 años y arrastra bastante problemas físicos. Repasaron páginas imborrables de nuestro acervo culural como *Criolla linda* y *Tierra querida*, que interpretó a dúo con Atilio Stampone. Con José Colángelo volvieron a tocar *El abrojito* y *Gallo ciego*, recordando aquel repertorio que hacían en 1980 en el Teatro Olimpia de París. Con el guitarrista Hugo Rivas realizaron *Romance de barrio* y *A la guardia nueva*. Horacio Ferrer le recitó un poema dedicado al homenajeado que escribió hace unos años "*por pura admiración*", como señaló el poeta. Hugo Marcel exhibió su potente voz.

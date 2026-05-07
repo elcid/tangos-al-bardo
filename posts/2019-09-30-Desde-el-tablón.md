@@ -3,6 +3,7 @@ title: "Desde el tablón"
 date: "2019-09-30"
 original_url: https://tangosalbardo.blogspot.com/2019/09/desde-el-tablon.html
 labels: ""
+tags: ["Francisco García Jiménez", "Juan Carlos Copes", "Eduardo Del Piano", "Francisco Rotundo", "Alberto Echagüe", "Héctor Varela"]
 ---
 
 En aquella Buenos Aires de los años cuarenta y cincuenta, el fútbol y el tango, eran la aguja que nos picaba y nos inyectaba vitaminas espirituales. Aquellas experiencias emocionales componían una especie de sinfonía del universo. Y la radio, la pista de baile, el tablón de la cancha, sí, eran fogonazos de vida que surgían del sentimiento más profundo, con su maciza identidad.

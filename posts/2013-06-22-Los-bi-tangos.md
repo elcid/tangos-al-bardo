@@ -3,6 +3,7 @@ title: "Los bi-tangos"
 date: "2013-06-22"
 original_url: https://tangosalbardo.blogspot.com/2013/06/los-bi-tangos.html
 labels: ""
+tags: ["Enrique Cadícamo", "Francisco Canaro", "Adolfo Carabelli", "Alberto Echagüe", "Alberto Marino", "Juan D'Arienzo", "Alberto Gómez", "Carlos Gardel"]
 ---
 
 Alguna vez hemos hablado de esos choques emocionales que sentíamos hace ya años, cuando estábamos familiarizados con una letra y una música de tango y de repente nos encontrábamos con que esa letra o esa música se travestían en otro tango, aunque conservasen la estructura del anterior.

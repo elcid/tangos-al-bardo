@@ -3,6 +3,7 @@ title: "Percanta que me amuraste"
 date: "2022-01-12"
 original_url: https://tangosalbardo.blogspot.com/2022/01/percanta-que-me-amuraste.html
 labels: ""
+tags: ["Juan Carlos Cobián", "Pascual Contursi", "Enrique Delfino", "Homero Expósito", "Eduardo Arolas", "Horacio Ferrer", "José Martínez"]
 ---
 
 Si todo se pierde inexorablemente, la especie anímica que alentó al recién fallecido Gabino Ezeiza -en 1916-: ese Pascual Contursi, hijo de italianos inmigrados y afincados en el Chaco, 28 años, delgado, sabe de improvisar con una guitarra. Claro que si de gustos se trata, él prefiere, si cabe, payar escribiendo. Por cierto que huelen a versos imaginados al barrer de las bordonas, esas que Pascual le ha puesto a dos o tres tangos de música sola.

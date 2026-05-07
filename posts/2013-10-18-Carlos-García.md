@@ -3,6 +3,7 @@ title: "Carlos García"
 date: "2013-10-18"
 original_url: https://tangosalbardo.blogspot.com/2013/10/carlos-garcia.html
 labels: ""
+tags: ["Leopoldo Federico", "Horacio Malvicino", "Fulvio Salamanca", "Mercedes Simone", "Alberto Marino", "Edmundo Rivero", "Horacio Salgán", "Carlos García"]
 ---
 
 Hace siete años publiqué en el Diario* El País*, de España, su obituario. Tenía 92 años y había dejado un reguero de talento esparcido en el piano de orquestas de diversos géneros, siempre aplaudido y respetado por sus colegas. Detrás de su largo periplo quedaban ochenta años de actuación, dado que a los 12 años de edad, en la época del cine mudo, ya tocaba en un cine de Mataderos.

@@ -3,6 +3,7 @@ title: "Osvaldo Fresedo y la ronda nueva (V)"
 date: "2025-11-01"
 original_url: https://tangosalbardo.blogspot.com/2025/11/el-11.html
 labels: ""
+tags: ["Osvaldo Fresedo", "Carlos Di Sarli", "Miguel Caló", "Ada Falcón"]
 ---
 
 “**El 11º baile del Internado**”

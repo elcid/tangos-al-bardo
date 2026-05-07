@@ -3,6 +3,7 @@ title: "Pigmalion"
 date: "2016-09-19"
 original_url: https://tangosalbardo.blogspot.com/2016/09/pigmalion.html
 labels: ""
+tags: ["Homero Expósito", "Aníbal Troilo"]
 ---
 
 Ástor Piazzolla llegó a Buenos Aires desde Mar del Plata con su bandoneón, se vareó en orquestas de poco fuste y en 1938 ingresó en la de Aníbal Troilo, donde, durante seis maravillosos años fue asimilando las cosas fundamentales del tango, que le irían haciendo camino hasta su triunfo en la órbita mundial de la música. Con sus luces y sus sombras reconocería siempre que aquella etapa le abrió las puertas del tango con esas voces secretas al fin reveladas.

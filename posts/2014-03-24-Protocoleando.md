@@ -3,6 +3,7 @@ title: "Protocoleando"
 date: "2014-03-24"
 original_url: https://tangosalbardo.blogspot.com/2014/03/protocoleando.html
 labels: ""
+tags: ["Osvaldo Pugliese"]
 ---
 
 El escribano tandilense Natalio Pedro Etchegaray, Escribano General de Gobierno de la Nación, reconocido profesional, miembro de la Academia Nacional del Tango y de la Academia Porteña del Lunfardo y gran amigo de Osvaldo Pugliese fue homenajeado en la Novena Feria del Libro, donde presentó su novedoso libro: "*Protocoleando, Notariado y Lunfardo*".

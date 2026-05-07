@@ -3,6 +3,7 @@ title: "Bien milonga"
 date: "2017-09-19"
 original_url: https://tangosalbardo.blogspot.com/2017/09/bien-milonga_19.html
 labels: ""
+tags: ["Juan D'Arienzo", "Miguel Caló", "Raúl Berón"]
 ---
 
 [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhLLWu40U5HaKa9RXXcQGwC1Dv6EF8i6Xt6tnMPVYIzsvSGwst_WuWWx-QIwE8QkyvyhEzfzGyk8zMjDeysMvQq1JEKl-RAImlEdjI9AuuHWpSpL7flsWmvTjRlIXxrDKUO-EQne36GfsbZ/s200/Paretyopo.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhLLWu40U5HaKa9RXXcQGwC1Dv6EF8i6Xt6tnMPVYIzsvSGwst_WuWWx-QIwE8QkyvyhEzfzGyk8zMjDeysMvQq1JEKl-RAImlEdjI9AuuHWpSpL7flsWmvTjRlIXxrDKUO-EQne36GfsbZ/s1600/Paretyopo.jpg)*Así mi amor, así cosita linda, *  *juntitas las mejillas, uno solo los dos,*

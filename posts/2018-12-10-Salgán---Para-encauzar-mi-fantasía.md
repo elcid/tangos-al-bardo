@@ -3,6 +3,7 @@ title: "Salgán: \"Para encauzar mi fantasía\""
 date: "2018-12-10"
 original_url: https://tangosalbardo.blogspot.com/2018/12/salgan-para-encauzar-mi-fantasi.html
 labels: ""
+tags: ["Horacio Ferrer", "Horacio Salgán"]
 ---
 
 Mientras Salgán evoca las circunstancias anteriores a la constitución de su orquesta, se me asoma a la memoria, también, algo que me dijo Carlitos García, que estuvo con Firpo y con Martínez-Ledesma más o menos en las mismas épocas que Horacio, su amigo de toda la vida.

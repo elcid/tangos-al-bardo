@@ -3,6 +3,7 @@ title: "Toda esa increíble fiesta"
 date: "2023-07-09"
 original_url: https://tangosalbardo.blogspot.com/2023/07/toda-esa-increible-fiesta.html
 labels: ""
+tags: ["Edmundo Rivero"]
 ---
 
 Parecía que ninguna fuerza del mundo fuera capaz de parar la música de la calle Corrientes de aquellos años. Era la fiesta de las fiestas: la noche tenía toda una corte de arlequines y polichinelas, de colombinas y marquesas, de príncipes engañosos y de payasos sinceros. Eran los últimos años del cabaret al viejo estilo, de la *milonga*. Buenos Aires los despedía con todos los honores.

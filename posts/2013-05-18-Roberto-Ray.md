@@ -3,6 +3,7 @@ title: "Roberto Ray"
 date: "2013-05-18"
 original_url: https://tangosalbardo.blogspot.com/2013/05/roberto-ray.html
 labels: ""
+tags: ["Francisco Canaro", "Osvaldo Fresedo", "Carlos Di Sarli", "Roberto Rufino", "Carlos Gardel", "Julio Martel", "Ángel Vargas"]
 ---
 
 Se llamaba en realidad Roberto Raimondo, era un porteño del barrio de San Cristóbal y no tenía en su acento ese matiz barrial, ese tono casi arrabalero de los sucesores de Carlos Gardel.

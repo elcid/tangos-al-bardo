@@ -3,6 +3,7 @@ title: "Gotán griego"
 date: "2023-06-07"
 original_url: https://tangosalbardo.blogspot.com/2023/06/gotan-griego.html
 labels: ""
+tags: ["José María Otero"]
 ---
 
 ### Por José María Otero

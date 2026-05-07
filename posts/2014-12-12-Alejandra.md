@@ -3,6 +3,7 @@ title: "Alejandra"
 date: "2014-12-12"
 original_url: https://tangosalbardo.blogspot.com/2014/12/alejandra.html
 labels: ""
+tags: ["Enrique Santos Discépolo", "Carlos Di Sarli", "Alberto Echagüe", "Antonio Todaro", "Juan D'Arienzo", "Mario Pomar"]
 ---
 
 Sí, estamos en la Semana grande del Tango y tengo que volver a traer a estas páginas a una mujer, en este caso, bailarina y de muchos quilates. Porque ha paseado su arte milonguero por el mundo entero, imparte clases en su Estudio de Roma, viaja todo el año para actuar en grandes Festivales, en Teatros, al aire libre, y siempre nos deja un postgusto maravilloso por sus interpretaciones. Ésas que llevan la rúbrica de La Mantiñán, con los distintos compañeros que tiene en cada reunión.

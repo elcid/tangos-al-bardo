@@ -3,6 +3,7 @@ title: "Sobre el pucho"
 date: "2020-02-01"
 original_url: https://tangosalbardo.blogspot.com/2020/02/sobre-el-pucho.html
 labels: ""
+tags: ["José González Castillo", "Sebastián Piana", "Horacio Ferrer", "Carlos Gardel"]
 ---
 
 -Cuando empieza Sebastián, su colaboración de versos y música con don José González Castillo?

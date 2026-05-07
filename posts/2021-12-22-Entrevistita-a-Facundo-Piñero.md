@@ -3,6 +3,7 @@ title: "Entrevistita a Facundo Piñero"
 date: "2021-12-22"
 original_url: https://tangosalbardo.blogspot.com/2021/12/entrevistita-facundo-pinero.html
 labels: ""
+tags: ["Carlos Gavito"]
 ---
 
 **GZ – ¿Qué te cansa en el medio del tango?**

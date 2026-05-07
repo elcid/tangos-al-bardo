@@ -3,6 +3,7 @@ title: "Prisionero"
 date: "2023-06-26"
 original_url: https://tangosalbardo.blogspot.com/2023/06/prisionero.html
 labels: ""
+tags: ["Francisco García Jiménez", "Juan D'Arienzo", "Anselmo Aieta", "Héctor Mauré", "Carlos Bahr"]
 ---
 
 El mismo título que el tango de Francisco García Jiménez y Anselmo Aieta, pero en este caso se trata de un valsecito que *mi piace,* tanto por su letra como por su música que te incita a dar giros en la pista. Pienso que los versos de Carlos Bahr, como la melodía que le adosara el pianista Julio Carressons, tienen algo que te convoca a escucharlo una y otra vez.

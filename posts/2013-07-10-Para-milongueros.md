@@ -3,6 +3,7 @@ title: "Para milongueros"
 date: "2013-07-10"
 original_url: https://tangosalbardo.blogspot.com/2013/07/para-milongueros.html
 labels: ""
+tags: ["Fulvio Salamanca", "Francisco Canaro", "Osvaldo Pugliese", "Osvaldo Fresedo", "Carlos Di Sarli", "Ricardo Tanturi", "Juan D'Arienzo", "Aníbal Troilo"]
 ---
 
 El tango lo inventaron los bailarines negros que danzaban con temas inventados sobre la marcha, y sin partitura alguna que pudieran leer los músicos, que en aquella época eran generalmente empíricos y no conocían la notación.

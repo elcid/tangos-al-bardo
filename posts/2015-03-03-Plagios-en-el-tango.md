@@ -3,6 +3,7 @@ title: "Plagios en el tango"
 date: "2015-03-03"
 original_url: https://tangosalbardo.blogspot.com/2015/03/plagios-en-el-tango.html
 labels: ""
+tags: ["José María Aguilar", "Enrique Cadícamo", "Francisco Lomuto", "Eduardo Arolas", "Pedro Maffia", "Juan Maglio"]
 ---
 
 Contra lo que se cree, y debido a la celeridad con que había que abastecer de temas a cantantes y orquestas, por las exigencias de las grabadoras, numerosos autores incurrieron en copias más o menos veladas de otras canciones del género, algo que no es de extrañar, dado que los poetas o letristas tenían talento para volver a fabricar un éxito con esos retales, y los intérpretes le dan nueva coloratura a las composiciones que se urdían sobre otras anteriores.

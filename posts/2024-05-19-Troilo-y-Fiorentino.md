@@ -3,6 +3,7 @@ title: "Troilo y Fiorentino"
 date: "2024-05-19"
 original_url: https://tangosalbardo.blogspot.com/2024/05/troilo-y-fiorentino.html
 labels: ""
+tags: ["Celedonio Flores", "Francisco Canaro", "Alberto Marino", "Aníbal Troilo", "Ángel Vargas"]
 ---
 
 En una oportunidad que Ángel Vargas fue al Marabú a escuchar a Aníbal Troilo, éste lo hizo subir al escenario y allí cantó, acompañado por la orquesta, el vals de Betinotti: *Tu diagnóstico*. Un momento único. Justo Pichuco había vuelto al lugar donde debutara con su primera orquesta, el 1 de julio de 1937, en una noche ciertamente helada, de las que no invitan a salir de casa.

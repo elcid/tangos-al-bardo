@@ -3,6 +3,7 @@ title: "Juan José Guichandut"
 date: "2018-02-22"
 original_url: https://tangosalbardo.blogspot.com/2018/02/juan-jose-guichandut.html
 labels: ""
+tags: ["Francisco García Jiménez", "José María Contursi", "Alfredo De Angelis", "Enrique Cadícamo", "Carlos Di Sarli", "Homero Expósito", "Cátulo Castillo", "Roberto Rufino"]
 ---
 
 Este pianista nacido en el porteño barrio de Barracas alcanzó lauros importantes muy jovencito, adolescente casi, a sus floridos 18 años. Juanto al poeta Armando Tagini, se alzaron con el segundo premio del afamado concurso de Max Glücksman, en 1927 -el cuarto, en este caso-, al presentar su tango **Perfume de mujer**. Lo también notable del caso es que Tagini tenía entonces 21 años, tres más apenas, que su socio en este tema.

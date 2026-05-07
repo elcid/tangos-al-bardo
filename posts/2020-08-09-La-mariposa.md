@@ -3,6 +3,7 @@ title: "La mariposa"
 date: "2020-08-09"
 original_url: https://tangosalbardo.blogspot.com/2020/08/la-mariposa.html
 labels: ""
+tags: ["Celedonio Flores", "Francisco Canaro", "Osvaldo Pugliese", "Hugo del Carril", "Roberto Rufino", "Edmundo Rivero", "Pedro Maffia", "Julián Plaza"]
 ---
 
 Este tango ya tiene un siglo de antigüedad, pero se resiste a pasar a las amplias zonas del olvido. Es evidente que contiene ese linaje artístico-poético musical que, gracias a la destreza y sensibilidad de sus autores, en su cocreación, nos dejaron un tema que late con fuerza en nuestras memorias cuando lo escuchamos. cantado o en forma instrumental. Celedonio Flores sabe jugar con las palabras y Pedro Maffia crear la música y atmósfera que fermenta el relato.

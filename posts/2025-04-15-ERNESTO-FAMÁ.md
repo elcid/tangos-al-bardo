@@ -3,6 +3,7 @@ title: "ERNESTO FAMÁ"
 date: "2025-04-15"
 original_url: https://tangosalbardo.blogspot.com/2025/04/ernesto-fama.html
 labels: ""
+tags: ["Libertad Lamarque", "Francisco Canaro", "Francisco Lomuto", "Osvaldo Fresedo", "Carlos Di Sarli", "Julián Centeya", "Carlos Gardel", "Manuel Romero"]
 ---
 
 Pese a no alcanzar el suceso de otros cantores, este intérprete con el que vuelvo hoy, dejó más de 300 grabaciones. Lo curioso es que en su apogeo, lo que utilizaban las orquestas era el *estribillista*, es decir: el que cantaba solamente la segunda parte del tema, o refrán, o estribillo. Si bien este porteño del barrio de San Cristóbal comenzó cantando en el teatro, pasaría por la orquesta de Osvaldo Fresedo y el sexteto de Carlos Di Sarli con el que grabó 9 temas entre 1930 y 1931.

@@ -3,6 +3,7 @@ title: "Gabriela Laddaga (Gaby, la musicalizadora)"
 date: "2013-04-01"
 original_url: https://tangosalbardo.blogspot.com/2013/04/gaby-la-musicalizadora.html
 labels: ""
+tags: ["Héctor Mauré"]
 ---
 
 Es realmente agradable comprobar cómo, en esta etapa de la total liberación de la mujer, uno puede encontrarse con verdaderas sorpresas en las milongas cuya música está manejada por una de ellas.

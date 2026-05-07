@@ -3,6 +3,7 @@ title: "Piazzolla, Troilo y El Motivo"
 date: "2015-06-08"
 original_url: https://tangosalbardo.blogspot.com/2015/06/piazzolla-troilo-y-el-motivo.html
 labels: ""
+tags: ["Juan Carlos Cobián", "Leopoldo Federico", "Pascual Contursi", "Alberto Marino", "Néstor Marconi", "Aníbal Troilo"]
 ---
 
 Le decía Ástor Piazzolla a mi compañero Natalio Gorín, en el libro que éste escribió sobre aquel, y me lo regaló, dedicado, en un encuentro que tuvimos en Londres, en ocasión de un partido de fútbol entre las Selecciones de Inglaterra y Argentina:

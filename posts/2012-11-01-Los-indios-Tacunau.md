@@ -3,6 +3,7 @@ title: "Los indios Tacunau"
 date: "2012-11-01"
 original_url: https://tangosalbardo.blogspot.com/2012/11/los-indios-tacunau.html
 labels: ""
+tags: ["Julio César Sanders"]
 ---
 
 Estamos en el otoño madrileño, de repente aparece el sol, por ahí viene la hidráulica llovizna, hay vientos racheados, lo clásico en esta estación. Y me contagia la melancolía de los árboles que van perdiendo sus follaje. Las coordenadas del alma entran en una zona de ingravidez y es -como decía Cadícamo- cuando tallan los recuerdos.

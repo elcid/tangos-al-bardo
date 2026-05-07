@@ -3,6 +3,7 @@ title: "Trío de Reinas"
 date: "2014-07-01"
 original_url: https://tangosalbardo.blogspot.com/2014/07/trio-de-reinas.html
 labels: ""
+tags: ["José María Contursi", "Libertad Lamarque", "Francisco Canaro", "Carlos Di Sarli", "Azucena Maizani", "Mercedes Simone", "Rosita Quiroga", "Héctor Varela"]
 ---
 
 En el machista territorio del tango, como han sentenciado tantas voces, una mera observación del historial, nos revela la infinidad de compositoras, poetas y especialmente cantoras que influyeron decisivamente y para bien, en la relevancia del género.

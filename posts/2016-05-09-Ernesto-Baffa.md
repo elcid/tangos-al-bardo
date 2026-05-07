@@ -3,6 +3,7 @@ title: "Ernesto Baffa"
 date: "2016-05-09"
 original_url: https://tangosalbardo.blogspot.com/2016/05/ernesto-baffa.html
 labels: ""
+tags: ["Leopoldo Federico", "Alberto Marino", "Horacio Salgán", "Aníbal Troilo", "Pedro Laurenz", "Ernesto Baffa", "Alfredo Gobbi"]
 ---
 
 Eximio bandoneonista, reconocido en el ambiente de los músicos, abandonó este mundo el día 11 del mes pasado. Era un tipo muy querido, al margen de sus grandes condiciones y tuve la suerte de ser amigo suyo y tratarlo con cierta asiduidad en los años sesenta y primeros setenta. Por eso me apenó mucho su partida y el no poder saludarlo cuando supe que estaba mal de salud. Las distancias tienen esas cosas, y la nostalgia nos devuelve recuerdos lindos de su buena época.

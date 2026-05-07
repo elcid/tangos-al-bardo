@@ -3,6 +3,7 @@ title: "El abrojito"
 date: "2015-11-13"
 original_url: https://tangosalbardo.blogspot.com/2015/11/el-abrojito.html
 labels: ""
+tags: ["Francisco Canaro", "Osvaldo Pugliese", "Francisco Lomuto", "Eduardo Arolas", "Carlos Gardel", "Agustín Bardi", "Julio De Caro", "Alberto Morán"]
 ---
 
 Este tango de Jesús Fernández Blanco y Luis Bernstein fue el tercero que grabaría Alberto Morán con la orquesta de Osvaldo Pugliese y le permitiría ganar un sitio importante entre la excelencia de cantores de los años cuarenta. Se trata del *flaco* Morán que sentía una profunda admiración por Fiorentino, y canta en un medio tono distinto al que lo caracterizaría poco tiempo más tarde, cuando se había convertido en todo un ídolo de los seguidores de Pugliese, especialmente de las muchachas.

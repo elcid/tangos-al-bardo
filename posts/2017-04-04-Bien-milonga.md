@@ -3,6 +3,7 @@ title: "Bien milonga"
 date: "2017-04-04"
 original_url: https://tangosalbardo.blogspot.com/2017/04/bien-milonga.html
 labels: ""
+tags: ["Lito Bayardo", "Julio Martel"]
 ---
 
 *Va llegando gente al baile

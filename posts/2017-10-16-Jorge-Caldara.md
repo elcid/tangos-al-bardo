@@ -3,6 +3,7 @@ title: "Jorge Caldara"
 date: "2017-10-16"
 original_url: https://tangosalbardo.blogspot.com/2017/10/jorge-caldara.html
 labels: ""
+tags: ["Juan Andrés Caruso", "Osvaldo Pugliese", "Alberto Morán", "Jorge Caldara", "Ángel Vargas", "Luis Stazo"]
 ---
 
 Aunque más no fuera por la creación de ese maravilloso tango llamado** Patético**, tan rico en ecos musicales, su nombre debería estar significado con esa respiración tan especial que tiene el fueye y que inyecta electricidad a los movimientos de bailarines y músicos. Construído alrededor de un tono hímnico, destella por su gran vuelo en el desarrollo melódico. Y es tan intenso en la homilía pugliesana como en aquella sacralidad que imponía el fueye de Pichuco, si escuchamos los registros de sus respectivas orquestas.

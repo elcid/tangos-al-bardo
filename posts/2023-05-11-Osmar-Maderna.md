@@ -3,6 +3,7 @@ title: "Osmar Maderna"
 date: "2023-05-11"
 original_url: https://tangosalbardo.blogspot.com/2023/05/osmar-maderna.html
 labels: ""
+tags: ["Leopoldo Federico", "Osvaldo Pugliese", "Osvaldo Fresedo", "José Libertella", "Homero Expósito", "Osmar Maderna", "Julio De Caro", "Orlando Goñi"]
 ---
 
 Fue una de las grandes figuras surgidas en la fabulosa década del cuarenta. Dueño de un estilo personal, un *modus* inconfundible como pianista, en aquella impresionante eclosión de grandes músicos y compositores, no solo se ganó un lugar destacado como ejecutante, arreglador y compositor, sino que además, Osvaldo Fresedo lo bautizó como *El Chopin del tango*, por su estilo melódico y su modalidad conturbante de tango fantasista.

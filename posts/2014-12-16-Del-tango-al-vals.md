@@ -3,6 +3,7 @@ title: "Del tango al vals"
 date: "2014-12-16"
 original_url: https://tangosalbardo.blogspot.com/2014/12/del-tango-al-vals.html
 labels: ""
+tags: ["Luis César Amadori", "Francisco Canaro", "Horacio Salgán", "Charlo"]
 ---
 
 En el vademécum tanguero, hay infinidad de piezas que cambiaron de nombre y de destino, con el correr de los tiempos. Francisco Canaro, en ese sentido, fue uno de los que encontró nuevo enfoque para algunos de los tantísimos temas que fue capaz de ir tejiendo, aunque no faltaron quienes, entre otras cosas, lo acusaban de comprar sus composiciones a diversos músicos.

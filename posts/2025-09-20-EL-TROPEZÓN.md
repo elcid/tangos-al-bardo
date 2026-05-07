@@ -3,6 +3,7 @@ title: "\"EL TROPEZÓN\""
 date: "2025-09-20"
 original_url: https://tangosalbardo.blogspot.com/2025/09/el-tropezon.html
 labels: ""
+tags: ["Edmundo Rivero", "Aníbal Troilo", "Carlos Gardel"]
 ---
 
 "En 1896, abría sus puertas "El Tropezón". Tuvo entre sus clientes a personalidades como: Federico García Lorca, Irineo Leguisamo, Lola Membrives, los Discépolo, Aníbal Troilo, Palacios, Yrigoyen, Lola Flores, Balbín, Carlos Gardel que ocupaba la mesa 48, entre otros. Hasta el tango lo nombraba: "Tropezón, Pucherito de Gallina con viejo vino Carlón". 34 años después reinauguramos "El Tropezón", con toda la seriedad y el respeto que la historia merece. Queremos que sea, como en aquel entonces: Un clásico punto de reunión de los porteños..

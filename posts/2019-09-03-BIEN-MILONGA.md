@@ -3,6 +3,7 @@ title: "BIEN MILONGA"
 date: "2019-09-03"
 original_url: https://tangosalbardo.blogspot.com/2019/09/bien-milonga.html
 labels: ""
+tags: ["Francisco Canaro", "Pedro Laurenz", "Mario Pomar"]
 ---
 
 *Bailando nos enamoramos*

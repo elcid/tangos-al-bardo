@@ -3,6 +3,7 @@ title: "Tal vez será su voz"
 date: "2015-07-01"
 original_url: https://tangosalbardo.blogspot.com/2015/07/tal-vez-sera-su-voz.html
 labels: ""
+tags: ["Roberto Goyeneche", "Alberto Marino", "Aníbal Troilo", "Homero Manzi", "Raúl Garello", "Lucio Demare", "Raúl Berón"]
 ---
 
 Este hermoso tango de Homero Manzi y Lucio Demare, lo realizaron después del gran éxito que habían tenido con Malena en 1941. El que traigo hoy al blog fue compuesto en los primeros meses de 1943 y tendrían problemas con la Oficina de censura de Radiocomunicaciones, porque el tango se llamaba **Tal vez será mi alcohol.** Incluso en una estrofa decía: "*Tendrán que ser nomás fantasmas del alcohol".*

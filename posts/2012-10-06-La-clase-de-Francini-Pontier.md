@@ -3,6 +3,7 @@ title: "La clase de Francini-Pontier"
 date: "2012-10-06"
 original_url: https://tangosalbardo.blogspot.com/2012/10/la-clase-de-francini-pontier.html
 labels: ""
+tags: ["Alberto Podestá", "Miguel Caló", "Raúl Berón", "Julio Sosa"]
 ---
 
 Surgió entre aquel maremágnum de orquestas que poblaban confiterías, cabarets, clubes, salones, emisoras de radio y grabadoras. La demanda era enorme y el tango vivía su gran época dorada.

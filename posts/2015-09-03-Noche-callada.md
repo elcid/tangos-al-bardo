@@ -3,6 +3,7 @@ title: "Noche callada"
 date: "2015-09-03"
 original_url: https://tangosalbardo.blogspot.com/2015/09/noche-callada.html
 labels: ""
+tags: ["Alfredo De Angelis", "Francisco Canaro", "Azucena Maizani", "Ignacio Corsini", "Carlos Gardel", "Julio De Caro", "Carlos Dante"]
 ---
 
 Éste es un tango algo atípico para los firmados por Julio De Caro. Tiene algo como de sabor campesino y quizás ello provenga porque el cordobés Cristino Tapia, a quien Gardel le grabaría doce temas, fue a quien recurrió en primer término el autor de la letra, Eduardo Ricardo Beccar, para que le pusiera música. Tapia, comenzó a pergeñar la misma pero por sus constantes actuaciones y viajes lo dejaría y Julio De Caro le daría la puntada final y el tono ajustado a los versos.

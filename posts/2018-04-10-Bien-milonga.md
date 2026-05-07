@@ -3,6 +3,7 @@ title: "Bien milonga"
 date: "2018-04-10"
 original_url: https://tangosalbardo.blogspot.com/2018/04/bien-milonga_10.html
 labels: ""
+tags: ["Francisco Canaro", "Alberto Echagüe", "Juan D'Arienzo"]
 ---
 
 * ¿Será mujer o junco, cuando hace una quebrada? *

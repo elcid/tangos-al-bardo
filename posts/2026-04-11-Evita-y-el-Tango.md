@@ -3,6 +3,7 @@ title: "Evita y el Tango"
 date: "2026-04-11"
 original_url: https://tangosalbardo.blogspot.com/2026/04/evita-y-el-tango.html
 labels: ""
+tags: ["Jorge Ortiz"]
 ---
 
 Eva Duarte tenía predilección por algunos tangos. Cuando trabajaba como actriz en un radioteatro que se transmitía por Radio Belgrano, al comienzo de su carrera, coincidiría varias veces con Rodolfo Biagi, cuya orquesta se había convertido en gran atracción, en dicha emisora de Don Jaime Yankelevich.

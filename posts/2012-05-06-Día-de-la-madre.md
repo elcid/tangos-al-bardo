@@ -3,6 +3,7 @@ title: "Día de la madre"
 date: "2012-05-06"
 original_url: https://tangosalbardo.blogspot.com/2012/05/dia-de-la-madre.html
 labels: ""
+tags: ["Alfredo De Angelis", "Osvaldo Fresedo", "Roberto Rufino", "Carlos Dante"]
 ---
 
 En algunos países se celebra hoy el **Día de la madre.**

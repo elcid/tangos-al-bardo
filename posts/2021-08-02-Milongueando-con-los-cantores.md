@@ -3,6 +3,7 @@ title: "Milongueando con los cantores"
 date: "2021-08-02"
 original_url: https://tangosalbardo.blogspot.com/2021/08/milongueando-con-los-cantores.html
 labels: ""
+tags: ["Enrique Rodríguez", "Alberto Castillo", "Osvaldo Pugliese", "Osvaldo Fresedo", "Ricardo Tanturi", "Enrique Campos", "Ricardo Ruiz", "Orlando Goñi"]
 ---
 
 Se dio juego de mar y arena y las vacaciones estivales me llevaron primero a las playas del Mediterráno, el regreso a Madrid y la segunda parte del disfrute estival en el Mar del Norte. Allá donde es digno de admirar el verdor, las montañas llenas de árboles y las bellezas paisajísticas de Asturias, además de su buen llantar. O enyantar como le llamamos por allá abajo.

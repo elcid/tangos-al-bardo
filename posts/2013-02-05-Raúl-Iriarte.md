@@ -3,6 +3,7 @@ title: "Raúl Iriarte"
 date: "2013-02-05"
 original_url: https://tangosalbardo.blogspot.com/2013/02/raul-iriarte.html
 labels: ""
+tags: ["Domingo Federico", "Enrique Delfino", "Alberto Podestá", "Cátulo Castillo", "Osmar Maderna", "Julián Plaza", "Lucio Demare", "Miguel Caló"]
 ---
 
 Fue un cantor emblemático de la orquesta de Miguel Caló en una época que tallaban las grandes duplas de orquesta-cantor. Por eso tiene más mérito su relevancia y la seguridad de tener presencia futura cuando ya nos ha inyectado el eco.

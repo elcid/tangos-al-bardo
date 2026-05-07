@@ -3,6 +3,7 @@ title: "Osvaldo Manzi y su Octeto"
 date: "2017-08-14"
 original_url: https://tangosalbardo.blogspot.com/2017/08/osvaldo-manzi-y-su-octeto.html
 labels: ""
+tags: ["José María Contursi", "Joaquín Do Reyes", "Florindo Sassone", "Osvaldo Pugliese", "Osvaldo Fresedo", "Carlos Di Sarli", "Alberto Marino", "Edgardo Donato"]
 ---
 
 Vuelvo con este pianista de gran preparación técnica, que estudió en el Conservatorio Nacional: piano, acústica y contrapunto, se formó con el profesor Eduardo Velisone y más tarde también profundizaría sus conocimientos en armonía, con Athos Palma, en el año 1940. Todo ello sumado, le permitiría sentarse al piano en numerosas orquestas, a la vez que destacar como arreglador y director.

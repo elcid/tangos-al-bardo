@@ -3,6 +3,7 @@ title: "Fabio Hager"
 date: "2016-06-30"
 original_url: https://tangosalbardo.blogspot.com/2016/06/fabio-hager.html
 labels: ""
+tags: ["Leopoldo Federico", "Juan D'Arienzo", "Aníbal Troilo", "Raúl Lavié", "Luis Stazo"]
 ---
 
 La magia del bandoneón alarga su leyenda en los instrumentistas que renuevan la saga y nos recuerdan el romanticismo y ese lenguaje dotado de sapiencia que transmiten, para seguir templando el ánimo tanguero y milonguero. Pero este fueye de Villa Urquiza con melena a lo Ruggiero, que aprendió de purrete a tañerlo, estriba tanto en la renovación como en el culto al gran archivo que guardamos los argentinos *anche di piú*.

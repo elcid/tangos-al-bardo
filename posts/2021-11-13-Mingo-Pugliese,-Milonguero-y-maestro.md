@@ -3,6 +3,7 @@ title: "Mingo Pugliese, Milonguero y maestro."
 date: "2021-11-13"
 original_url: https://tangosalbardo.blogspot.com/2021/11/mingo-pugliese-milonguero-y-maestro.html
 labels: ""
+tags: ["Pedro Laurenz"]
 ---
 
 ** Por el mundo con el tango a sus pies**

@@ -3,6 +3,7 @@ title: "Bien Milonga"
 date: "2021-10-05"
 original_url: https://tangosalbardo.blogspot.com/2021/10/bien-milonga.html
 labels: ""
+tags: ["Roberto Goyeneche", "Francisco Canaro", "Aníbal Troilo"]
 ---
 
 Adornando los acordes

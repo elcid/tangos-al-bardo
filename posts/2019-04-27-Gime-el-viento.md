@@ -3,6 +3,7 @@ title: "Gime el viento"
 date: "2019-04-27"
 original_url: https://tangosalbardo.blogspot.com/2019/04/gime-el-viento.html
 labels: ""
+tags: ["Roberto Goyeneche", "Atilio Stampone", "Aníbal Troilo", "Miguel Caló"]
 ---
 
 Estoy escuchando la versión de este tango por el Polaco Goyeneche acompañado por la Orquesta dirigida por Atilio Stampone, y casa justamente con la temperatura, el clima y el ventarrón que sopla estos días por Madrid. Pero además el Polaco sabe hacer resaltar los valores poéticos y la música de este tango muy bien hilvanado por Oscar Rubens y el pianista Atilio Bruni, autores también del exitoso tango: *Cuatro compases*.

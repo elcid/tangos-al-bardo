@@ -3,6 +3,7 @@ title: "Feliciano Brunelli"
 date: "2012-10-31"
 original_url: https://tangosalbardo.blogspot.com/2012/10/feliciano-brunelli.html
 labels: ""
+tags: ["Alfredo De Angelis", "Feliciano Brunelli", "Horacio Salgán", "Aníbal Troilo"]
 ---
 
 Dirigió la orquesta característica más importante durante muchos años. En esa época las orquestas que convivían en la radio y las milongas tenían tres rótulos: *Típica, jazz y característica.*

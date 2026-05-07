@@ -3,6 +3,7 @@ title: "Dos valsecitos"
 date: "2013-01-19"
 original_url: https://tangosalbardo.blogspot.com/2013/01/dos-valsecitos.html
 labels: ""
+tags: ["Alberto Castillo", "Ricardo Tanturi"]
 ---
 
 Para alegrar la mañana sabatina. Mientras ella acomoda algunos trastos y él termina de bajarse unos mates amargos, la vitrola ya está sonando en el bulín y se arrancan unos valsecitos.

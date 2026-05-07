@@ -3,6 +3,7 @@ title: "Discépolo en España y Francia"
 date: "2015-07-22"
 original_url: https://tangosalbardo.blogspot.com/2015/07/discepolo-en-francia.html
 labels: ""
+tags: ["Luis César Amadori", "Francisco Canaro", "Alfredo Le Pera", "Azucena Maizani", "Ignacio Corsini", "Edgardo Donato", "Aníbal Troilo", "Julio De Caro"]
 ---
 
 La personalidad increíble de este personaje enorme del tango le permitiría entre otras cosas: ser charlista, actor, director de cine y teatro, autor de tangos que siguen dando vueltas en los reproductores y que las vicisitudes de los seres humanos hacen cada día más actuales.

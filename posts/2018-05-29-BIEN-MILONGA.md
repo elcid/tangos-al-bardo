@@ -3,6 +3,7 @@ title: "BIEN MILONGA"
 date: "2018-05-29"
 original_url: https://tangosalbardo.blogspot.com/2018/05/bien-milonga_29.html
 labels: ""
+tags: ["Francisco Canaro", "Alberto Podestá", "Pedro Laurenz"]
 ---
 
 * Compás de tango*

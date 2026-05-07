@@ -3,6 +3,7 @@ title: "De Caro en Viña del Mar"
 date: "2015-08-05"
 original_url: https://tangosalbardo.blogspot.com/2015/08/de-caro-en-vina-del-mar.html
 labels: ""
+tags: ["Edmundo Rivero", "Julio De Caro"]
 ---
 
 Con estos calores suelo irme a la terraza de casa, llena de plantas, flores y bien cubierto, y me llevo algún libro. Hoy estuve repasando **El Tango en mis recuerdos**, el libro de Julio De Caro, que me regaló y dedicó en agosto de 1972, cuando lo invité a un programa que hacía los domingos en Radio Argentina. Estaba retirado, vivía en Mar del Plata y le costaba mucho hablar, por los problemas que le había traído la barbada del violín en que apoyaba su mentón. Hoy quiero traer una página de este libro en el que narra su viaje a Chile con la orquesta.

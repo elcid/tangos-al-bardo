@@ -3,6 +3,7 @@ title: "Entre sueños"
 date: "2014-11-12"
 original_url: https://tangosalbardo.blogspot.com/2014/11/entre-suenos.html
 labels: ""
+tags: ["Francisco García Jiménez", "José González Castillo", "Leopoldo Federico", "Francisco Rotundo", "Francisco Canaro", "Francisco Lomuto", "Ricardo Tanturi", "Aníbal Troilo"]
 ---
 
 Me gusta mucho este tango de Anselmo Aieta, Juan Polito y Francisco García Jiménez, que fue el autor de los versos. Es un tema que en principio resulta difícil para cantarlo, porque se sale de la horma general del género, atendiendo al hecho de que fue creado en el año 1928, sobre música de esos fenómenos, Aieta y Juan Polito. Luego García Jiménez le pondría los versos correspondientes.

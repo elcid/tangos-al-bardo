@@ -3,6 +3,7 @@ title: "Aquellas orquestas"
 date: "2016-05-13"
 original_url: https://tangosalbardo.blogspot.com/2016/05/aquellas-orquestas.html
 labels: ""
+tags: ["Luis Adolfo Sierra", "Aníbal Troilo", "Julio De Caro", "Pedro Maffia", "Orlando Goñi"]
 ---
 
 [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj4BfwS2J0HRhnpGZTVUTwxh8COMRyz95XxJxtjeOWSKRATW4ADHHWnpNL94MolxXVfYQ0zFSRmNOgvMqQ_6zF7kOzEKf9vk6NXGHd-Lpq46THFiGneqr8tvZL5KsipRvJA4Xvemi09uf-x/s1600/PEma.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj4BfwS2J0HRhnpGZTVUTwxh8COMRyz95XxJxtjeOWSKRATW4ADHHWnpNL94MolxXVfYQ0zFSRmNOgvMqQ_6zF7kOzEKf9vk6NXGHd-Lpq46THFiGneqr8tvZL5KsipRvJA4Xvemi09uf-x/s1600/PEma.jpg) Pedro Maffia  ... y aquellos tangos. Época linda de los años treinta, cuando se llenaban los cafés del centro de Buenos Aires para ver y escuchar en vivo a las grandes formaciones de aquellos tiempos. Los músicos pasaban de una a otra orquesta según le fuera en los trabajos, para las giras, grabaciones o actuaciones diversas. Las figuras señeras del momento recibían verdaderas ovaciones, y el calor de los porteños que tenían a sus ídolos tangueros. Como seguirá sucediendo en los cuarenta o cincuenta con las modernas orquestas que seguirían la estela de las anteriores y sus integrantes se habían fogueado -al menos los directores-, en las formaciones que habían hecho escuela.

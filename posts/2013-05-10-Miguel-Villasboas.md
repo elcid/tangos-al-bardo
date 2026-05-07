@@ -3,6 +3,7 @@ title: "Miguel Villasboas"
 date: "2013-05-10"
 original_url: https://tangosalbardo.blogspot.com/2013/05/miguel-villasboas.html
 labels: ""
+tags: ["Roberto Firpo"]
 ---
 
 Otra orquesta que apareció con una fuerza llamativa en las milongas porteñas de los noventa. Curiosamente era un remedo de aquellos conjuntos que hicieron furor en la guardia vieja como Roberto Firpo y su cuarteto, por ejemplo.

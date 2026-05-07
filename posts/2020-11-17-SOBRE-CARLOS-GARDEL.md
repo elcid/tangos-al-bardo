@@ -3,6 +3,7 @@ title: "SOBRE CARLOS GARDEL"
 date: "2020-11-17"
 original_url: https://tangosalbardo.blogspot.com/2020/11/sobre-carlos-gardel.html
 labels: ""
+tags: ["Carlos Gardel", "Homero Manzi"]
 ---
 
 *Llorar a un cantor es una muestra de romanticismo popular. Y esto no lo podemos destruir con preconceptos. Que en el fondo son el producto de una civilización literaturizada, alejada del calor y de la vitalidad popular.*

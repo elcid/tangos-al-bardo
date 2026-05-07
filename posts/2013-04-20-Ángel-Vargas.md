@@ -3,6 +3,7 @@ title: "Ángel Vargas"
 date: "2013-04-20"
 original_url: https://tangosalbardo.blogspot.com/2013/04/angel-vargas.html
 labels: ""
+tags: ["Eduardo Del Piano", "Enrique Cadícamo", "José Libertella", "Ángel Vargas", "Carlos Bahr", "Luis Stazo"]
 ---
 
 Pocos intérpretes del tango han tenido ese deje nostálgico que siempre transmitió este cantor del Parque Patricios silvestre, donde se crió.

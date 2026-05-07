@@ -3,6 +3,7 @@ title: "BIEN MILONGA"
 date: "2019-01-22"
 original_url: https://tangosalbardo.blogspot.com/2019/01/bien-milonga_22.html
 labels: ""
+tags: ["Alberto Castillo", "Ricardo Tanturi", "Juan D'Arienzo", "Floreal Ruiz", "José Basso"]
 ---
 
 * Cargaron en tropel*

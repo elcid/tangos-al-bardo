@@ -3,6 +3,7 @@ title: "Carlos Marcucci y su tango: Mi dolor"
 date: "2012-04-11"
 original_url: https://tangosalbardo.blogspot.com/2012/04/carlos-marcucci-y-su-tango-mi-dolor.html
 labels: ""
+tags: ["Julio De Caro"]
 ---
 
 Si le preguntamos a un milonguero europeo, norteamericano, brasileño o argentino-por citar a personas de distintos países y continentes-, si les gusta el tango **Mi dolor**, estoy seguro de que tendríamos casi unanimidad en el sí” como respuesta.

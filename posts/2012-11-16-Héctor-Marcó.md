@@ -3,6 +3,7 @@ title: "Héctor Marcó"
 date: "2012-11-16"
 original_url: https://tangosalbardo.blogspot.com/2012/11/hector-marco.html
 labels: ""
+tags: ["Sebastián Piana", "Agustín Magaldi", "Roberto Rufino", "Héctor Marcó"]
 ---
 
 Fue una figura muy importante del tango en las facetas que desarrolló: Cantor, compositor, poeta, dejó un reguero de páginas que permanecen en la memoria de los oyentes puntuales y los milongueros. Otra figura arrumbada en las estanterías traseras de este tiempo que condena al olvido a los grandes artistas anteriores al cambalache de la modernidad.

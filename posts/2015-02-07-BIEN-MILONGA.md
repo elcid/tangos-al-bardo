@@ -3,6 +3,7 @@ title: "BIEN MILONGA"
 date: "2015-02-07"
 original_url: https://tangosalbardo.blogspot.com/2015/02/bien-milonga.html
 labels: ""
+tags: ["Ismael Spitalnik"]
 ---
 
 ¡Qué tangazo el de Ismael Spitalnik! Y yo lo honro y lo devuelvo al presente en esta Milonga que armamos en la Casa de Aragón, de Madrid todos los Martes y Sábados, con la firma de su gotán. ¿Que llueve? ¿Que hace frío? Y qué mejor lugar para guarecernos de las inclemencias del tiempo, que en un Salón de prima, reviviendo tangos, milongas y valsecitos de gran calado para alegrarnos las orejas y el cuore, y bailarlos a tutiplén.

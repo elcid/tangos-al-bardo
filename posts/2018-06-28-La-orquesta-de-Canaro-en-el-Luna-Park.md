@@ -3,6 +3,7 @@ title: "La orquesta de Canaro en el Luna Park"
 date: "2018-06-28"
 original_url: https://tangosalbardo.blogspot.com/2018/06/la-orquesta-de-canaro-en-el-luna-park.html
 labels: ""
+tags: ["Francisco Canaro", "Roberto Firpo"]
 ---
 
 CANARO. 43 carnavales amenizando bailes

@@ -3,6 +3,7 @@ title: "El pescante"
 date: "2015-10-06"
 original_url: https://tangosalbardo.blogspot.com/2015/10/el-pescante.html
 labels: ""
+tags: ["Roberto Goyeneche", "Francisco Canaro", "Armando Pontier", "Arturo De Bassi", "Cátulo Castillo", "Sebastián Piana", "Pedro Maffia", "Homero Manzi"]
 ---
 
 Este tango de Homero Manzi y Sebastián Piana, pinta como pocos aquella Buenos Aires de calles empedradas por las cuales circulaban infinidad de carros con sus cargas destinadas al comercio: El papero ("*¡Llegó la papaaaa nuevaaa!*"), el lechero con su carrito fileteado, los de la Panificación... Época de corralones para alojar a los nobles matungos, de herrerías en los barrios para cambiar las herraduras de los cuadrúpedos. *El Pescante* se identifica con otros del mismo tenor como* El carrerito*, de Vaccarezza y De los Hoyos o *Mano blanca*, del mismo Manzi con música de Arturo De Bassi.

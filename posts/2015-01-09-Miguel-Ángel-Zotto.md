@@ -3,6 +3,7 @@ title: "Miguel Ángel Zotto"
 date: "2015-01-09"
 original_url: https://tangosalbardo.blogspot.com/2015/01/miguel-angel-zotto.html
 labels: ""
+tags: ["Juan Carlos Copes", "Osvaldo Zotto", "Miguel Zotto", "Virulazo"]
 ---
 
 Tengo ganas de revivir este hermoso reportaje que le hizo esta gran periodista y escritora argentina, Leila Guerriero, al personaje-bailarín Miguel Zotto, un fenómeno bailando tango en pista o en el escenario, y más fenómeno aún como tipo. Además de tener yo la suerte de ser su amigo. Fue publicado el 13 de diciembre de 2001 en la revista del *Diario la Nación*, de Argentina, pero tiene gran valor histórico y periodístico. Por eso lo traigo al Blog aunque sea un tanto largo.

@@ -3,6 +3,7 @@ title: "Bien milonga"
 date: "2017-12-19"
 original_url: https://tangosalbardo.blogspot.com/2017/12/bien-milonga_66.html
 labels: ""
+tags: ["Francisco Canaro", "Juan D'Arienzo", "Agustín Bardi"]
 ---
 
 *Para el amor que se baila*

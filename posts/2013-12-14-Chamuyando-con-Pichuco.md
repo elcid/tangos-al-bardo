@@ -3,6 +3,7 @@ title: "Chamuyando con Pichuco"
 date: "2013-12-14"
 original_url: https://tangosalbardo.blogspot.com/2013/12/chamuyando-con-pichuco.html
 labels: ""
+tags: ["Alfredo Le Pera", "Aníbal Troilo", "Orlando Goñi"]
 ---
 
 Me tocó compartir algunas mesas con Aníbal Troilo. Una veces en grupo y otras solo. Y tener unas cuantas chamuyetas que me acompañan de por vida. Puede servir para pintar a un personaje. Me firmó una hermosa fotografía que le hizo Annemarie Heirinch en su estudio, con una dedicatoria entrañable, que tengo sobre mi escritorio. Un vez comenté en la rueda que tenía el libro de los Bates, con reportajes a gente de la guardia vieja y no lo podía creer. Me pidió si se lo podía prestar porque era un libro que estaba perdido. Me lo regaló un coleccionista cuando intervine en un sonado concurso de televisión contestando sobre la historia del tango. Se lo presté y nunca más lo volví a ver. Típico en Pichuco. Pero me lo compensó con su atención.

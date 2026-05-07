@@ -3,6 +3,7 @@ title: "Canaro en Japón"
 date: "2015-08-28"
 original_url: https://tangosalbardo.blogspot.com/2015/08/canaro-en-japon.html
 labels: ""
+tags: ["Enrique Santos Discépolo", "Francisco Canaro", "Horacio Ferrer", "Horacio Salgán", "Carlos García", "Jorge Caldara", "Manuel Romero", "Miguel Caló"]
 ---
 
 Pareciera que Francisco Canaro estuvo en todas, pero esta vez se trata de Juan Canaro que quedó en la historia, principalmente por haber encabezado aquella orquesta que actuó en el país del lejano oriente y abrió importantes caminos al tango. Dicha embajada artística, terminó de galvanizar el amor que sentían los japoneses por este género, y llevaban tiempo demostrándolo de diversas maneras.

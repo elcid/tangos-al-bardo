@@ -3,6 +3,7 @@ title: "Héctor Stamponi"
 date: "2021-04-25"
 original_url: https://tangosalbardo.blogspot.com/2021/04/hector-stamponi.html
 labels: ""
+tags: ["Armando Pontier", "Homero Expósito", "Cátulo Castillo", "Eladia Blázquez", "Atilio Stampone", "Hugo del Carril", "Roberto Rufino", "Horacio Salgán"]
 ---
 
 **Lanzamiento de "Impresiones", un long play cuadrafónico con temas de tango**

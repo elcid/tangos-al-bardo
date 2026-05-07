@@ -3,6 +3,7 @@ title: "Juan D'Arienzo en TV"
 date: "2015-01-07"
 original_url: https://tangosalbardo.blogspot.com/2015/01/juan-darienzo-en-tv.html
 labels: ""
+tags: ["Juan D'Arienzo"]
 ---
 
 Para comprender el fenómeno D'Arienzo habría que haberlo vivido en vivo y en directo. En algunas de las tantísimas milongas que animó a lo largo de toda su vida artística, con esa orquesta y ese ritmo milonguero que te dejaba sin aliento. Pero con un sabor en el cuerpo, que te ibas a casa con la felicidad latiendo en el cuore, como los tantísimos bailarines que lo seguían y llenaban clubes.

@@ -3,6 +3,7 @@ title: "Cicatrices"
 date: "2020-12-13"
 original_url: https://tangosalbardo.blogspot.com/2020/12/cicatrices.html
 labels: ""
+tags: ["Pascual Contursi", "Juan D'Arienzo", "Carlos Gardel", "Mariano Mores", "Héctor Mauré", "León Benarós"]
 ---
 
 Qué tango tan llegador. Y viene interpretándose desde el año 1925, cuando Carlos Gardel lo grabó acompañado por sus guitarristas José Ricardo y Guillermo Barbieri. Sus autores son Enrique Pedro Maroni y Adolfo Rafael Avilés. Una dupla que compuso 14 temas nada menos, entre ambos, de los cuales el gran cantor les llevó al disco seis de ellos.

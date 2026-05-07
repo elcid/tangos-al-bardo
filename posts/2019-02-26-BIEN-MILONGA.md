@@ -3,6 +3,7 @@ title: "BIEN MILONGA"
 date: "2019-02-26"
 original_url: https://tangosalbardo.blogspot.com/2019/02/bien-milonga_26.html
 labels: ""
+tags: ["Francisco Canaro", "Teófilo Ibáñez", "Aníbal Troilo"]
 ---
 
 [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj5fZUSJeKFpnRR1uZe-tC9kyk2ukesSbq8r-FSCrwnURo-9l2KkIynPtePCSX9-SIYFnasfGn1Uh6w24yS55xSPcUMyrmy664cx1xZXKoCvC0U0VCgEV37zB7HT9sQF2mOspNclcXy8Cgn/s320/bailando-tango.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj5fZUSJeKFpnRR1uZe-tC9kyk2ukesSbq8r-FSCrwnURo-9l2KkIynPtePCSX9-SIYFnasfGn1Uh6w24yS55xSPcUMyrmy664cx1xZXKoCvC0U0VCgEV37zB7HT9sQF2mOspNclcXy8Cgn/s1600/bailando-tango.jpg) *A tango limpio, nada más* **

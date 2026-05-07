@@ -3,6 +3,7 @@ title: "BIEN MILONGA"
 date: "2016-08-27"
 original_url: https://tangosalbardo.blogspot.com/2016/08/bien-milonga.html
 labels: ""
+tags: ["Francisco Canaro", "Juan D'Arienzo", "Pedro Laurenz"]
 ---
 
 Se acerca septiembre y en este mes que está por llegar, recomenzamos las clases y la milonga en la Casa de Aragón de Madrid. En este lungo descanso veraniego, y para ir poniendo en onda las tabas, hemos visitado algunas milongas y hemos visto un poco de todo. Creo que siempre hay cosas que mejorar y esta sesión de hoy la dedico a tres maestros que han aportado mucho a la danza de tango en general. El turco Murat Erdemsel, la hawaiana Michelle Lamb y la francesa Sigrid Van Tilbeurgh.

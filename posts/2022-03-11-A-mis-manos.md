@@ -3,6 +3,7 @@ title: "A mis manos"
 date: "2022-03-11"
 original_url: https://tangosalbardo.blogspot.com/2022/03/a-mis-manos.html
 labels: ""
+tags: ["Julio Camilloni", "Alfredo Gobbi"]
 ---
 
 No se trata de una de esas milongas que nos arrastran a la pista con su polenta canyenguera, pero vale la pena traerla a la página porque es una obra que vale la pena recordar y campanear, por su calidad. Tanto los versos del poeta Julio Camilloni como la música de Alfredo Gobbi, obran en favor de una página que tuvo su momento de difusión y que tuve la suerte de escuchar en vivo varias veces por la orquesta de su autor.

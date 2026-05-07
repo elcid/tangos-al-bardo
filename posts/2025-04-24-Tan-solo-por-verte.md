@@ -3,6 +3,7 @@ title: "Tan solo por verte"
 date: "2025-04-24"
 original_url: https://tangosalbardo.blogspot.com/2025/04/tan-solo-por-verte.html
 labels: ""
+tags: ["Julio Sosa"]
 ---
 
 Los tangueros volvemos siempre sobre nuestros pasos, los que dimos en la milonga y los que nos foguearon en la radio y el tocadiscos. Y aunque pasen los años, siempre los recuerdos nos embridarán en algún tema que nos enredó en sus telarañas, o en esas instantáneas de la vida diaria que tienen un efecto estimulante, por todo lo que representó en nuestras experiencias tangueras.

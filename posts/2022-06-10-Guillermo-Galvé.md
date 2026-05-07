@@ -3,6 +3,7 @@ title: "Guillermo Galvé"
 date: "2022-06-10"
 original_url: https://tangosalbardo.blogspot.com/2022/06/guillermo-galve.html
 labels: ""
+tags: ["Leopoldo Federico", "Roberto Goyeneche", "Alberto Marino", "Néstor Marconi", "Edmundo Rivero", "Horacio Salgán", "José Colángelo", "Ubaldo De Lío"]
 ---
 
 Sus cuatro abuelos eran rusos, sus padres argentinos y se llamaban Gregorio y Clara. Gregorio —nacido en 1910 y muerto en 1961 en un accidente de ruta— se dedicó primero a la mecánica dental y luego a la odontología en Humahuaca, donde la ejercía pese a carecer de título. Ya regresado a Buenos Aires y casado con Clara, instaló en 1938 su primera farmacia, en el barrio de Versalles. Fue durante la época en que tuvieron su segunda farmacia, en La Boca, cuando nació el futuro cantor.

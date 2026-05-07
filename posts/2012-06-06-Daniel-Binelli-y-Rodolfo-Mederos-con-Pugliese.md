@@ -3,6 +3,7 @@ title: "Daniel Binelli y Rodolfo Mederos con Pugliese"
 date: "2012-06-06"
 original_url: https://tangosalbardo.blogspot.com/2012/06/daniel-binelli-y-rodolfo-mederos-con.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Rodolfo Mederos", "Daniel Binelli"]
 ---
 
 Cuando se marcharon de la orquesta de Don Osvaldo Pugliese los seis músicos que formarían el Sexteto Tango, pareció ser un golpe insuperable para el futuro del conjunto. Había que buscar a los reemplazantes y no era tarea fácil.

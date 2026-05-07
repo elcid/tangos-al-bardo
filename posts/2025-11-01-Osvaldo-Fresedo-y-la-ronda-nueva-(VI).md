@@ -3,6 +3,7 @@ title: "Osvaldo Fresedo y la ronda nueva (VI)"
 date: "2025-11-01"
 original_url: https://tangosalbardo.blogspot.com/2025/11/osvaldo-fresedo-y-la-ronda-nueva-vi.html
 labels: ""
+tags: ["Francisco Canaro", "Osvaldo Fresedo", "Carlos Di Sarli", "Enrique Delfino", "Pedro Maffia", "Miguel Caló"]
 ---
 
 ** Acompañando a Gardel en Odeón**

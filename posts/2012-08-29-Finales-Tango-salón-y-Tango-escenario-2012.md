@@ -3,6 +3,7 @@ title: "Finales Tango salón y Tango escenario 2012"
 date: "2012-08-29"
 original_url: https://tangosalbardo.blogspot.com/2012/08/finales-tango-salon-y-tango-escenario.html
 labels: ""
+tags: ["Juan D'Arienzo", "Horacio Ferrer", "María Nieves"]
 ---
 
 Ante unas tribunas llenas de espectadores ansiosos de ver los resultados finales del Mundial de Tango 2012. fueron finalmente consagrados los campeones del Tango salón, y al día siguiente, del Tango escenario.

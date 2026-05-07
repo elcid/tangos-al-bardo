@@ -3,6 +3,7 @@ title: "Maravillosos recuerdos"
 date: "2014-10-25"
 original_url: https://tangosalbardo.blogspot.com/2014/10/maravillosos-recuerdos.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Hugo del Carril", "Alberto Morán", "José Basso"]
 ---
 
 Resulta emocionante ver y escuchar a todos estas grandes figuras del tango, reunidas excepcionalmente para festejar el 22º aniversario de *Grandes Valores del Tango*, en Canal 9 de Buenos Aires, dirigido por Silvio Soldán. Además me lleva a recordar mis últimos tiempos en la Televisión argentina. Cuando terminábamos el Noticiero de las 21 horas, yo me demaquillaba y muchas veces me quedaba un rato para presenciar justamente este programa tan exitoso.

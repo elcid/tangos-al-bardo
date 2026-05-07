@@ -3,6 +3,7 @@ title: "Roberto Miró"
 date: "2013-03-12"
 original_url: https://tangosalbardo.blogspot.com/2013/03/roberto-miro.html
 labels: ""
+tags: ["Alfredo De Angelis", "Alberto Marino", "Edmundo Rivero", "Aníbal Troilo", "Julio De Caro", "Carlos Figari", "Julio Martel", "Carlos Dante"]
 ---
 
 [](http://www.blogger.com/blogger.g?blogID=7165028562675286196)Era tan notable la cantidad de figuras que se alineaban en las filas del tango, que, observando este afiche de los carnavales de 1950, uno se encuentra con que puede bailar con las orquestas de Aníbal Troilo, Alfredo De Angelis, los cantores Carlos Dante, Julio Martel, Edmundo Rivero, Aldo Calderón, la Típica de Julio De Caro, además de los conjuntos de jazz que siempre acompañaban a las orquestas Típicas.

@@ -3,6 +3,7 @@ title: "Bien milonga"
 date: "2018-05-15"
 original_url: https://tangosalbardo.blogspot.com/2018/05/bien-milonga_15.html
 labels: ""
+tags: ["Teófilo Ibáñez", "Ángel Vargas"]
 ---
 
 *En mi expresión y en mi compás *

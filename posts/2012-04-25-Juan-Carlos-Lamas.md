@@ -3,6 +3,7 @@ title: "Juan Carlos Lamas"
 date: "2012-04-25"
 original_url: https://tangosalbardo.blogspot.com/2012/04/juan-carlos-lamas.html
 labels: ""
+tags: ["Enrique Cadícamo", "Fulvio Salamanca", "Hugo del Carril", "Héctor Varela", "Lito Bayardo", "Héctor Mauré"]
 ---
 
 Quiero recordar un cantor de fugaz paso por el tango, pero que dejó su impronta nada menos que en la orquesta de Juan D’Arienzo.

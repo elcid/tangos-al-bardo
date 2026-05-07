@@ -3,6 +3,7 @@ title: "BIEN MILONGA"
 date: "2018-09-04"
 original_url: https://tangosalbardo.blogspot.com/2018/09/bien-milonga.html
 labels: ""
+tags: ["Alberto Castillo", "Ricardo Tanturi"]
 ---
 
 * La trama de la historia da su acorde*

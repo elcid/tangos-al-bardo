@@ -3,6 +3,7 @@ title: "El pibe Ernesto"
 date: "2017-09-25"
 original_url: https://tangosalbardo.blogspot.com/2017/09/el-pibe-ernesto.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Eduardo Arolas", "Juan D'Arienzo", "Carlos Gardel", "Julio De Caro", "Alfredo Gobbi", "Tita Merello"]
 ---
 
 Así se le conoció en aquellos ambientes tumultuosos del tango iniciático a Ernesto Ponzio, el violinista de lunga fama entre los protagonistas de la música popular, los tangueros del novecientos. Venía de familia de músicos, comenzando por su padre napolitano, que precisamente falleció sobre un escenario, tocando el arpa. Su tío Vicente, fue un músico reconocido y quien lo introdujera en aquel tango bravío que se bailaba en lo de Hansen.

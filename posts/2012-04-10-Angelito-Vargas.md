@@ -3,6 +3,7 @@ title: "Angelito Vargas"
 date: "2012-04-10"
 original_url: https://tangosalbardo.blogspot.com/2012/04/angelito-vargas.html
 labels: ""
+tags: ["Enrique Cadícamo", "Aníbal Troilo", "Ángel Vargas"]
 ---
 
 Seguramente Ángel Vargas, Ángel D’Agostino y Enrique Cadícamo estaban destinados a conocerse para plasmar en el disco uno de los tangos que mejor definen a esta música porteña: *Tres esquinas*.

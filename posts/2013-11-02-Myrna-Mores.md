@@ -3,6 +3,7 @@ title: "Myrna Mores"
 date: "2013-11-02"
 original_url: https://tangosalbardo.blogspot.com/2013/11/myrna-mores.html
 labels: ""
+tags: ["Enrique Cadícamo", "Francisco Canaro", "Mercedes Simone", "Mariano Mores"]
 ---
 
 Se la conoce más como esposa de Mariano Mores, madre de Nito y Silvia y feliz abuela de varios nietos, que como artista. Aunque, cuando Mariano la conoció en la Academia PAADI, de Luis Rubistein, donde él daba clases, ella integraba el dúo de las hermanas Mores que cantaban en espectáculos.

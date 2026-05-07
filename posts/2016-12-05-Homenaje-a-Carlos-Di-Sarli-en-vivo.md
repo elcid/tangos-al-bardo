@@ -3,6 +3,7 @@ title: "Homenaje a Carlos Di Sarli  en vivo"
 date: "2016-12-05"
 original_url: https://tangosalbardo.blogspot.com/2016/12/homenaje-carlos-di-sarli-y-su-orquesta.html
 labels: ""
+tags: ["Carlos Di Sarli", "Cátulo Castillo", "Edmundo Rivero"]
 ---
 
 Ocurrió en 1958. Un concurso de la Revista CANTANDO entre sus lectores para elegir cuál había sido la mejor orquesta típica durante el año 1957, determinó con los votos, que la misma había sido la del maestro Carlos Di Sarli. Un músico que labró su prestigio, llegando humildemente desde Bahía Blanca a la Capital con la idea de llevar sus conocimientos musicales al tango. Su trabajo, sus ideales consistían en mejorar día a día. Nunca quiso alambicarse y ser sólo estilo. Y vaya si lo logró.

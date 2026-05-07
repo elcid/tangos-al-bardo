@@ -3,6 +3,7 @@ title: "Madreselva"
 date: "2013-04-19"
 original_url: https://tangosalbardo.blogspot.com/2013/04/madreselva.html
 labels: ""
+tags: ["Luis César Amadori", "Libertad Lamarque", "Francisco Canaro", "Hugo del Carril", "Carlos Gardel", "Ada Falcón", "Ivo Pelay", "Charlo"]
 ---
 
 Este tango de Francisco Canaro y Luis César Amadori, lo compuso inicialmente Canaro en forma instrumental y lo tituló* La polla*. Lo grabó ese mismo año de la creación: 1916, con su conjunto. Se refiere el título a la tradicional *Polla de potrillos* que se corre en el Hipódromo de Palermo o San Isidro, todos los años: una carrera de 1000 metros en la cual debutan los postrillos de 2 años.

@@ -3,6 +3,7 @@ title: "Roberto Perfumo"
 date: "2016-03-11"
 original_url: https://tangosalbardo.blogspot.com/2016/03/roberto-perfumo.html
 labels: ""
+tags: ["Aníbal Troilo", "Julio De Caro", "Ariel Ardit"]
 ---
 
 Ha muerto sorpresivamente ayer en Buenos Aires el que fuera, seguramente, mejor defensa central en la historia del fútbol argentino. Además de eso, un tipo genial, maravilloso conversador, sincero al máximo, y con el quien he tenido una amistad linda a lo largo de nuestras profesiones: Él jugaba al fútbol y yo era periodista deportivo. La primera nota se la hice en Birmingham (Inglaterra) en el Mundial de 1966. Ambos éramos jóvenes y nos encontraríamos infinidad de veces en entrenamientos, partidos, en vestuarios, en televisión, en radio o en la redacción del periódico.

@@ -3,6 +3,7 @@ title: "José María Rizzuti"
 date: "2018-06-17"
 original_url: https://tangosalbardo.blogspot.com/2018/06/jose-maria-rizzuti.html
 labels: ""
+tags: ["Osvaldo Fresedo", "Luis Petrucelli", "Enrique Delfino", "Alberto Echagüe", "Eduardo Arolas", "Juan D'Arienzo", "Aníbal Troilo", "Carlos Gardel"]
 ---
 
 Escrutando esa parte de la historia del tango menos conocida, da gusto recordar a personajes que fueron muy importantes en el evolución del mismo y, en este caso concreto, junto a otros como Delfino, Francisco de Caro, o Cobián, en la jerarquización musical del piano dentro del marco colectivo de la Orquesta Típica. El piano es el instrumento que más se asemeja a una orquesta, de todos cuantos existen y Rizzuti supo explotar la escuela que traía de casa.

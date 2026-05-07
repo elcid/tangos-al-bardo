@@ -3,6 +3,7 @@ title: "CONFLUENCIAS"
 date: "2020-12-21"
 original_url: https://tangosalbardo.blogspot.com/2020/12/confluencias.html
 labels: ""
+tags: ["José María Otero"]
 ---
 
 Con visceralidad

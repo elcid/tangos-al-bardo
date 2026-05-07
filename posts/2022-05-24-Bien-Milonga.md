@@ -3,6 +3,7 @@ title: "Bien Milonga"
 date: "2022-05-24"
 original_url: https://tangosalbardo.blogspot.com/2022/05/bien-milonga_24.html
 labels: ""
+tags: ["Alberto Castillo", "Osvaldo Pugliese", "Juan D'Arienzo"]
 ---
 
 Bailar el Tango es un hipnótico andar,

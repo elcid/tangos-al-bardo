@@ -3,6 +3,7 @@ title: "José Bragato"
 date: "2019-04-06"
 original_url: https://tangosalbardo.blogspot.com/2019/04/jose-bragato.html
 labels: ""
+tags: ["Leopoldo Federico", "Horacio Malvicino", "Astor Piazzolla", "Atilio Stampone", "Mariano Mores", "José Bragato"]
 ---
 
 La vanguardia del tango

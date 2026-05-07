@@ -3,6 +3,7 @@ title: "Luis César Amadori"
 date: "2017-02-13"
 original_url: https://tangosalbardo.blogspot.com/2017/02/luis-cesar-amadori.html
 labels: ""
+tags: ["Enrique Santos Discépolo", "Luis César Amadori", "Libertad Lamarque", "Francisco Canaro", "Enrique Delfino", "Azucena Maizani", "Carlos Gardel", "Ivo Pelay"]
 ---
 
 Su nombre trepó las páginas de espectáculos y fue considerado unos de los grandes directores de la cinematografía argentina, en la cual dirigió más de cincuenta filmes. Muchos de ellos reunieron la aquiescencia del público, incluso de la crítica que supo valorar su obra. Es doblemente atractiva su filiación con el tango, que supo airear en tantas películas, y del que dejó un rastro considerable, guardado en voces inolvidables como la de Carlos Gardel que le grabó cinco temas suyos: *Cobardía* y *Rencor, *con música de Charlo; * Confesión** con Discépolo*; *Madreselva* con Francisco Canaro y *Fondín de Pedro Mendoza*, con Raúl de los Hoyos e Ivo Pelay.

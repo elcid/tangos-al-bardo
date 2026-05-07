@@ -3,6 +3,7 @@ title: "El dedo del suicida"
 date: "2022-11-04"
 original_url: https://tangosalbardo.blogspot.com/2022/11/el-dedo-del-suicida.html
 labels: ""
+tags: ["Enrique Santos Discépolo"]
 ---
 
 El pobrecito Zanata era uno de esos hombres condenados al fracaso, un derrotado anticipado... No pudo ser pintor, porque le faltó un color; no pudo ser poeta porque le faltó o le sobró una rima; no sé... Pero todo lo que el pobrecito quería o soñaba ser, era lo que no podía ser. ¡Vivía a contramano perpetua!

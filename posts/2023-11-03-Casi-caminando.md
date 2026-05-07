@@ -3,6 +3,7 @@ title: "Casi caminando"
 date: "2023-11-03"
 original_url: https://tangosalbardo.blogspot.com/2023/11/casi-caminando.html
 labels: ""
+tags: ["Leopoldo Federico", "Francisco Canaro", "Alberto Podestá", "Ángel Vargas"]
 ---
 
 Recorriendo la extensa producción discográfica de Francisco Canaro, siempre encontraremos algún tema, que por una u otra causa, "nos llega". Por ejemplo, La realidad palpitante de la milonga, ese lugar que nos congrega para una reunión donde el desclasamiento es la base para que unos y otras nos sintamos cómodos, bienvenidos. Y el diluvio de hallazgos que vamos surcando en nuestra aventura milonguera, también supo representarlo Canaro con este tango que hoy traigo a la palestra.

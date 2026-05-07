@@ -3,6 +3,7 @@ title: "Casas viejas"
 date: "2023-09-04"
 original_url: https://tangosalbardo.blogspot.com/2023/09/casas-viejas.html
 labels: ""
+tags: ["Roberto Goyeneche", "Francisco Canaro", "Armando Pontier", "Ivo Pelay"]
 ---
 
 Este antiguo tango de Ivo Pelay y Francisco Canaro, me trae recuerdos emotivos. Hace unos cuantos años, formé una compañía de teatro, acá en Madrid, con amigos y amigas, totalmente improvisados y sin experiencia alguna en el vademécum teatral. Incluso elegí la obra que yo había visto interpretar en Buenos Aires a artistas de primer nivel, tanto en teatro como en cine.

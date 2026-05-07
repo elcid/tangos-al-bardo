@@ -3,6 +3,7 @@ title: "Juan Carlos Miranda"
 date: "2017-04-07"
 original_url: https://tangosalbardo.blogspot.com/2017/04/juan-carlos-miranda.html
 labels: ""
+tags: ["Aníbal Troilo", "Lucio Demare", "Homero Manzi", "Raúl Berón"]
 ---
 
 Me place escuchar a este cantor de trayectoria liviana que dejó su rastro en 21 registros discográficos,, la mayoría con la orquesta de Lucio Demare, que son los que suelo pasar en la milonga, porque tienen un tono entrañable, tanto por parte de la orquesta, de rica fuerza melódica, como de su voz bien modulada y a tono con este conjunto lleno de sutilezas.

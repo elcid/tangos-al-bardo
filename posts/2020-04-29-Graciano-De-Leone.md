@@ -3,6 +3,7 @@ title: "Graciano De Leone"
 date: "2020-04-29"
 original_url: https://tangosalbardo.blogspot.com/2020/04/graciano-de-leone.html
 labels: ""
+tags: ["Francisco Pracánico", "Alfredo De Angelis", "Juan Carlos Cobián", "Enrique Cadícamo", "Francisco Canaro", "Osvaldo Pugliese", "Osvaldo Fresedo", "Carlos Di Sarli"]
 ---
 
 -*Café Domínguez de la vieja calle Corrientes que ya no queda. Café del cuarteto bravo de Graciano de Leone. A tus mesas caían Pirincho, Arolas, Firpo y Pacho a escuchar tus tangos. Era el imán que atraía, como el alcohol atrae a los borrachos*...

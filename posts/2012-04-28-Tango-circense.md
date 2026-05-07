@@ -3,6 +3,7 @@ title: "Tango circense"
 date: "2012-04-28"
 original_url: https://tangosalbardo.blogspot.com/2012/04/tango-circense.html
 labels: ""
+tags: ["José María Otero"]
 ---
 
 TANGOSHOW

@@ -3,6 +3,7 @@ title: "Mi noche triste"
 date: "2020-06-04"
 original_url: https://tangosalbardo.blogspot.com/2020/06/mi-noche-triste_26.html
 labels: ""
+tags: ["Pascual Contursi"]
 ---
 
 No hay dos sin tres. Este tango comenzó llamándose **Lita** y lo estrenó su autor, el pianista Samuel Castriota, con un trío en el Café El Protegido, de San Juan y Pasco, cuando corría el año 1916. Pascual Contursi, que estaba cantando en la boite *Moulin Rouge* de Montevideo, propiedad de Emilio Mattos (padre del autor de *La cumparsita*), se dedicó a ponerle letra a varios tangos conocidos que eran instrumentales. Por supuesto, sin conocimiento de los autores.

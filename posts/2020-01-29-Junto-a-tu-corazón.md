@@ -3,6 +3,7 @@ title: "Junto a tu corazón"
 date: "2020-01-29"
 original_url: https://tangosalbardo.blogspot.com/2020/01/junto-tu-corazon.html
 labels: ""
+tags: ["José María Contursi", "Pascual Contursi", "Carlos Di Sarli", "Alberto Podestá"]
 ---
 
 Cuánto le debemos los tangueros a la odisea amorosa de José María Contursi y Gricel... Esa fuerza biyectiva que transmiten sus encuentros y desencuentros. La negrura existencial que viven uno y otra a través de la distancia que los separa, amén de sus propios destinos personales. La cantidad de tangos hermosos, entrañables, que le dedicara el Catunga a su lejano amor son cuantiosos y de una llegada al oyente, receptor, realmente increíble.

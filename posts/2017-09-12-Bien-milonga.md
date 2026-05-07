@@ -3,6 +3,7 @@ title: "Bien milonga"
 date: "2017-09-12"
 original_url: https://tangosalbardo.blogspot.com/2017/09/bien-milonga_12.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Francisco Canaro"]
 ---
 
 * *

@@ -3,6 +3,7 @@ title: "No esperaba verte más"
 date: "2015-05-25"
 original_url: https://tangosalbardo.blogspot.com/2015/05/no-esperaba-verte-mas.html
 labels: ""
+tags: ["Enrique Rodríguez", "Enrique Cadícamo", "Francisco Canaro", "Carlos Di Sarli", "Roberto Rufino", "Jorge Durán"]
 ---
 
 Después de un domingo tensionado por los comicios en toda España, las discusiones, charlas, y grandes expectativas que nos mantuvieron despiertos hasta la madrugada, hoy entro con serenidad y buenas sensaciones en el primer día de la última semana de mayo, que coincide con el aniversario de la fecha patria argentina.

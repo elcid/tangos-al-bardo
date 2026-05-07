@@ -3,6 +3,7 @@ title: "El tango y los barrios"
 date: "2017-09-21"
 original_url: https://tangosalbardo.blogspot.com/2017/09/el-tango-y-los-barrios.html
 labels: ""
+tags: ["Francisco García Jiménez", "Alfredo De Angelis", "Enrique Cadícamo", "Francisco Canaro", "Alberto Castillo", "Osvaldo Pugliese", "Alberto Echagüe", "Juan D'Arienzo"]
 ---
 
 Con el paso de los años, me llama aún más la atención, el hecho de que los porteños citemos siempre nuestro barrio cuando vamos conociendo gente. Es como una señal de identidad que no he notado en otros países de los muchos que he visitado en mi vida. Como escritor, periodista o poeta, me considero un observador privilegiado de lo que acontece a mi alrededor. El tango verbaliza ese sentimiento barrial que llevamos impreso en nuestra andanza por la vida. Porque, al fin de cuentas, donde uno se ha criado, ha crecido viviendo experiencias nuevas cada día y ha compartidos sueños y juegos con amigos, ha aprendido cosas para el bagaje vital y sentido también los primeros amores y desengaños, recrea la síntesis del proceso interior de nosotros.

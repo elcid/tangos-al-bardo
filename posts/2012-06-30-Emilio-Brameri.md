@@ -3,6 +3,7 @@ title: "Emilio Brameri"
 date: "2012-06-30"
 original_url: https://tangosalbardo.blogspot.com/2012/06/emilio-brameri.html
 labels: ""
+tags: ["Francisco Canaro", "Carlos Di Sarli", "Alberto Podestá", "Mercedes Simone", "Edgardo Donato", "Manuel Meaños", "Héctor Marcó", "Carlos Bahr"]
 ---
 
 Hay nombres que están perdidos o arrinconados en la Historia del Tango y a veces me place rescatarlos de esa oscuridad en que siempre han estado.

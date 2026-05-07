@@ -3,6 +3,7 @@ title: "Seguime, corazón"
 date: "2016-04-27"
 original_url: https://tangosalbardo.blogspot.com/2016/04/seguime-corazon.html
 labels: ""
+tags: ["Libertad Lamarque", "Francisco Canaro", "Armando Pontier", "Eduardo Arolas", "Alberto Marino", "Juan D'Arienzo", "Alberto Gómez", "Carlos Gardel"]
 ---
 
 Aunque esté bastante olvidado, Jesús Fernández Blanco, que llegó chiquillo a la Argentina, con su familia procedente de Cuenca de Campos, ubicado en Tierra de Campos, provincia de Valladolid (España), se adaptó no sólo al habla porteña, sino que escribió tangos gauchazos memorables como *El barbijo *o sentimentalmente entrañables como *Calor de hogar*, que les grabara Carlos Gardel. Temas realizados con Andrés R. Domenech y Eugenio Carrére, respectivamente.

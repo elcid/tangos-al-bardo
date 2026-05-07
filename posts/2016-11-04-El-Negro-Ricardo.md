@@ -3,6 +3,7 @@ title: "El Negro Ricardo"
 date: "2016-11-04"
 original_url: https://tangosalbardo.blogspot.com/2016/11/el-negro-ricardo.html
 labels: ""
+tags: ["Francisco García Jiménez", "Celedonio Flores", "Carlos Gardel"]
 ---
 
 Alguna vez habrá que hacerle justicia a las *"escobas*" de Gardel, como llamaba Gardel a sus acompañantes guitarreros. Le faltaba ese respaldo, hasta que llegó este ejecutante autodidacto, gran virtuoso y creador de los punteos en las tonadas, cuecas y milongas, como luego en el bordoneo requerido para los tangos. El Negro José Ricardo vino para que Carlos Gardel y José Razzano dejasen de acompañarse malamente con su guitarras y escalaran posiciones rápidamente, dedicados únicamente a lo suyo: el canto.

@@ -3,6 +3,7 @@ title: "Miguel Nijensohn: Talento y bohemia"
 date: "2012-11-26"
 original_url: https://tangosalbardo.blogspot.com/2012/11/miguel-nijensohn-talento-y-bohemia.html
 labels: ""
+tags: ["Francisco Fiorentino", "Juan Andrés Caruso", "Alberto Podestá", "Cátulo Castillo", "Aníbal Troilo", "Roberto Firpo", "Miguel Caló", "Jorge Casal"]
 ---
 
 Fue un bohemio a tutiplén, pero también un músico muy respetado por sus cofrades, que lo requirieron constantemente y siempre le dejaron sentir su aprecio.

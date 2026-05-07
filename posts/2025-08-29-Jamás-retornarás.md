@@ -3,6 +3,7 @@ title: "Jamás retornarás"
 date: "2025-08-29"
 original_url: https://tangosalbardo.blogspot.com/2025/08/jamas-retornaras.html
 labels: ""
+tags: ["Osmar Maderna", "Miguel Caló", "Raúl Berón"]
 ---
 
 Una de las tantas rarezas del tango. La sociedad musical Osmar Maderna-Miguel Caló se alió en este caso en los rubros: poeta-compositor, para crear el tema que resalta las peculiaridades de la yunta en la poesía y musicalización del tema. Como hicieran también con el tango *Qué te importa que te llore* y el valsecito *Luna de plata*.

@@ -3,6 +3,7 @@ title: "Música de calesita"
 date: "2014-01-28"
 original_url: https://tangosalbardo.blogspot.com/2014/01/musica-de-calesita.html
 labels: ""
+tags: ["José González Castillo", "Francisco Canaro", "Cátulo Castillo", "Ada Falcón"]
 ---
 
 ###  [YIRANDO](https://www.blogger.com/null)

@@ -3,6 +3,7 @@ title: "La discografía de Aníbal Troilo"
 date: "2020-02-10"
 original_url: https://tangosalbardo.blogspot.com/2020/02/la-discografia-de-anibal-troilo.html
 labels: ""
+tags: ["Roberto Goyeneche", "Roberto Rufino", "Alberto Marino", "Edmundo Rivero", "Aníbal Troilo", "Floreal Ruiz", "Jorge Casal", "Raúl Berón"]
 ---
 
 Pichuco grabó toda su producción discográfica entre el 7 de marzo de 1938 y el 24 de Junio de 1971. Arrancó en el sello Odeón (1938). Luego en la RCA Victor (1941 a 1950). TK (Entre el 50 y el 56); Odeón (1957/1959) y RCA Victor (1961/1971). En total fueron alrededor de 488 grabaciones, aunque hay algunas pequeñas divergencias en cuanto al total de temas que llevó al disco, algunos de ellos repetidos.

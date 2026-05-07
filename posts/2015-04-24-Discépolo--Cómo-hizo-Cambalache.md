@@ -3,6 +3,7 @@ title: " Discépolo: Cómo hizo Cambalache"
 date: "2015-04-24"
 original_url: https://tangosalbardo.blogspot.com/2015/04/discepolo-como-hizo-cambalache.html
 labels: ""
+tags: ["Enrique Santos Discépolo", "Francisco García Jiménez", "Francisco Canaro", "Osvaldo Fresedo", "Julián Centeya", "Aníbal Troilo"]
 ---
 
 Ésta de hoy es la entrada número 1000 en el Blog. Un número lindo al que llegué sin darme cuenta. Porque cuando uno le pone pasión a su tarea, le resulta fácil, placentera y disfruta con la misma, sin que le resulte complicada, aunque lo parezca, en principio.

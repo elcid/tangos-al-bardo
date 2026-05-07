@@ -3,6 +3,7 @@ title: "Copes y Liza Minelli"
 date: "2012-08-14"
 original_url: https://tangosalbardo.blogspot.com/2012/08/copes-y-liza-minelli.html
 labels: ""
+tags: ["Juan Carlos Copes", "Néstor Fabián", "María Nieves"]
 ---
 
 Juan Carlos Copes reúne cientos de anécdotas para contar. Su vida tiene ribetes de película por la infinidad de circunstancias que lo llevaron de ser un milonguero más, a brillar en todo el mundo con sus shows o *Tango argentino*, en la inolvidable pareja que formó con María Nieves.

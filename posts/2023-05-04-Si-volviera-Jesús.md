@@ -3,6 +3,7 @@ title: "Si volviera Jesús"
 date: "2023-05-04"
 original_url: https://tangosalbardo.blogspot.com/2023/05/si-volviera-jesus.html
 labels: ""
+tags: ["Dante Linyera", "Carlos Dante", "Miguel Caló"]
 ---
 
 Este tango de Dante A. Linyera que, se llamaba en realidad Francisco Bautista Rímoli, condice con las ideas libertarias de su autor, a quien ya le he dedicado un par de notas en esta página. Un poeta que en el contexto de su obra mezcla un poco de Carriego, algo de Carlos De la Púa y el mismísimo Discépolo. Siempre buceando en la injusticia social, la miseria, y ese suburbio con los claroscuros de la existencia, donde incluso la pobreza empujaba al delito.

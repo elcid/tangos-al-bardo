@@ -3,6 +3,7 @@ title: "María Belén Giachello"
 date: "2013-11-01"
 original_url: https://tangosalbardo.blogspot.com/2013/11/maria-belen-giachello.html
 labels: ""
+tags: ["Armando Pontier", "José Colángelo", "Jorge Dragone", "Julián Plaza", "Miguel Caló"]
 ---
 
 Forma con Diego Remer, "El Pájaro", una pareja de tango de muchos quilates. Radicados en Francia, son contratados para actuar en Festivales de toda Europa, por su personal forma de interpretar el baile del tango y por sus creaciones.

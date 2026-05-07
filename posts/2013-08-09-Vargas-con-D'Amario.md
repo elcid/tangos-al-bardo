@@ -3,6 +3,7 @@ title: "Vargas con D'Amario"
 date: "2013-08-09"
 original_url: https://tangosalbardo.blogspot.com/2013/08/vargas-con-damario.html
 labels: ""
+tags: ["Eduardo Del Piano", "Enrique Cadícamo", "José Libertella", "Ángel Vargas", "Luis Stazo"]
 ---
 
 Angelito Vargas como otros cantores de orquesta de su tiempo, aunque era indisoluble en su dupla genial con Ángel D'Agostino, cada tanto buscaba una salida económica que se correspondiese a su caché y prestigio, y se alejaba de la orquesta buscando buenos contratos como solista.

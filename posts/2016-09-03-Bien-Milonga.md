@@ -3,6 +3,7 @@ title: "Bien Milonga"
 date: "2016-09-03"
 original_url: https://tangosalbardo.blogspot.com/2016/09/bien-milonga.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Juan D'Arienzo", "Alberto Morán"]
 ---
 
 *"Vamos que arrullan los fueyes*

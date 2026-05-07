@@ -3,6 +3,7 @@ title: "La milonga y yo"
 date: "2015-08-15"
 original_url: https://tangosalbardo.blogspot.com/2015/08/la-milonga-y-yo.html
 labels: ""
+tags: ["Alberto Podestá", "Carlos Di Sarli", "Osvaldo Zotto", "Miguel Caló"]
 ---
 
 Claro que hoy, por ser sábado, podría contar infinidad de historias de mis noches milongueras y las que llevamos a cabo en la Casa de Aragón de Madrid, con el nombre de BIEN MILONGA, pero este mes de Agosto la Casa está cerrada por vacaciones y entonces hago un repaso a vuelo de pájaro por otras pistas.

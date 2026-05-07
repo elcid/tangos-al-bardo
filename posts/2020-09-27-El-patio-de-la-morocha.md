@@ -3,6 +3,7 @@ title: "El patio de la morocha"
 date: "2020-09-27"
 original_url: https://tangosalbardo.blogspot.com/2020/09/el-patio-de-la-morocha.html
 labels: ""
+tags: ["Enrique Santos Discépolo", "Florindo Sassone", "Astor Piazzolla", "Cátulo Castillo", "Hugo del Carril", "Edgardo Donato", "Eduardo Arolas", "Aníbal Troilo"]
 ---
 
 Menuda historia tiene este tema: Tango, película y sainete. Escenarios y peripecias distintas, pero unidas por el título. El tango lo crearon Mariano Mores y Cátulo Castillo y como pudo apreciarse, fue toda una pegada allá por 1951. Fue interpretado en el sainete lírico y en la película homónima. En este caso por la actriz y cancionista Virginia Luque. El filme, dirigido por Manuel Romero se estrenó en el cine Monumental el 14 de agosto de 1951 y se realizó sobre la base, precisamente del tango. Cabe señalar que Mariano Mores lo dedicó a su amigo Juan Duarte, hermano de Evita,

@@ -3,6 +3,7 @@ title: "Tango brujo"
 date: "2016-12-17"
 original_url: https://tangosalbardo.blogspot.com/2016/12/tango-brujo.html
 labels: ""
+tags: ["Francisco Canaro", "Alberto Echagüe", "Juan D'Arienzo", "Aníbal Troilo", "Miguel Zotto"]
 ---
 
 [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi9f6IOUF8wJ8YtKXNbWjwupvFzJfE9_I-WEUz59dALEflQiMyROenG_9KsqSby65ItSjC6KVvT60P6lHyaAHBpIZAtuP5XKwf40ggNx4-BhBODiEKxEIZsBdOzATFZGpzxO_CsjTwQ_e1z/s200/canaro.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi9f6IOUF8wJ8YtKXNbWjwupvFzJfE9_I-WEUz59dALEflQiMyROenG_9KsqSby65ItSjC6KVvT60P6lHyaAHBpIZAtuP5XKwf40ggNx4-BhBODiEKxEIZsBdOzATFZGpzxO_CsjTwQ_e1z/s1600/canaro.jpg)

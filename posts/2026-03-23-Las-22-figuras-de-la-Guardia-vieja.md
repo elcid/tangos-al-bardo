@@ -3,6 +3,7 @@ title: " Las 22 figuras de la Guardia vieja"
 date: "2026-03-23"
 original_url: https://tangosalbardo.blogspot.com/2026/03/las-22-figuras-de-la-guardia-vieja.html
 labels: ""
+tags: ["Francisco Canaro", "Arturo De Bassi", "Eduardo Arolas", "Ángel Villoldo", "Vicente Greco", "José Martínez", "Roberto Firpo", "Juan Maglio"]
 ---
 
 [El tiempo de la Guardia vieja](https://www.google.com/search?ved=1t:260882&q=define+El+tiempo+de+la+Guardia+vieja&bbid=7165028562675286196&bpid=6751992371525758660) puede considerarse aquel que se extiende desde la gestación del [tango](https://www.google.com/search?ved=1t:260882&q=tango&bbid=7165028562675286196&bpid=6751992371525758660) hasta su primera evolución musical. Este período abarca de su indescifrable origen a 1920. Por tal motivo, las figuras de esa época tienen el mérito de haberse convertido en precursores y fundadores del tango. A continuación, se consignan sus nombres, sus fechas de nacimiento y muerte y las obras que crearon y que por más tiempo trascendieron.

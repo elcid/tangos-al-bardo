@@ -3,6 +3,7 @@ title: "Violinomanía"
 date: "2014-01-24"
 original_url: https://tangosalbardo.blogspot.com/2014/01/violinomania.html
 labels: ""
+tags: ["Florindo Sassone", "Aníbal Troilo", "Alfredo Gobbi", "José Bragato", "Miguel Caló", "José Basso"]
 ---
 
 Este tema involucra a dos grandes del tango. Por un lado a su autor, Argentino Liborio Galván, conocido en el ambiente como *El Indio* Galván. Nacido y criado musicalmente como violinista en Chivilcoy, un pueblo bonaerense situado en el centro-oeste de la Capital y a 170 kilómetros de la misma.

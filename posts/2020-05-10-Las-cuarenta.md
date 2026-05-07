@@ -3,6 +3,7 @@ title: "Las cuarenta"
 date: "2020-05-10"
 original_url: https://tangosalbardo.blogspot.com/2020/05/las-cuarenta.html
 labels: ""
+tags: ["Francisco Gorrindo", "Azucena Maizani", "Alberto Echagüe", "Mercedes Simone", "Edmundo Rivero", "Roberto Grela", "Charlo"]
 ---
 
 En esta época en que la pandemia y la política nos están dividiendo de manera cruel, artera y negativamente, gracias a los medios de comunicación que intentan hacer su agosto y sembrar en provecho propio, cargando las tintas sobre determinados partidos políticos o aupando a los que pueden beneficiarles, vale la pena volver una y otra vez sobre este tango. Un tema que no pierde vigencia y que hasta el mismo Discépolo elogió por la filosofía y el clima yacente en el mismo, lo cual lo hace imperecedero.

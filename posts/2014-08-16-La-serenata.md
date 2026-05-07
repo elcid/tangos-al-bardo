@@ -3,6 +3,7 @@ title: "La serenata"
 date: "2014-08-16"
 original_url: https://tangosalbardo.blogspot.com/2014/08/la-serenata.html
 labels: ""
+tags: ["Roberto Goyeneche", "Osvaldo Pugliese", "Edgardo Donato", "Manuel Buzón", "Raúl Garello"]
 ---
 
 Fue algo bastante común en la vieja Buenos Aires. Aquella ciudad que robosaba de cantores, poetas, guitarreros, futbolistas, boxeadores, milongueros y sobre todo, de una bohemia maravillosa. La serenata brotaba naturalmente en aquel ambiente, y era provocado por los afanes de los muchachos que querían homenajear a su amada, sorprendiéndola. Y no había nada más hermoso que una serenata a la luz de la estrellas.

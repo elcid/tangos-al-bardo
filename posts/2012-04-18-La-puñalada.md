@@ -3,6 +3,7 @@ title: "La puñalada"
 date: "2012-04-18"
 original_url: https://tangosalbardo.blogspot.com/2012/04/la-punalada.html
 labels: ""
+tags: ["Feliciano Brunelli", "Celedonio Flores", "Francisco Canaro", "Roberto Firpo"]
 ---
 
 Juan D’Arienzo grabó y popularizó esta milonga del pianista, director y compositor uruguayo *Pintín *Castellanos (Horacio Antonio Castellanos) en cuatro oportunidades: En 1937, 1943, 1951 y 1963.

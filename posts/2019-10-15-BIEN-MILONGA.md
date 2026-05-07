@@ -3,6 +3,7 @@ title: "BIEN MILONGA"
 date: "2019-10-15"
 original_url: https://tangosalbardo.blogspot.com/2019/10/bien-milonga_15.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Juan D'Arienzo", "Osvaldo Zotto"]
 ---
 
 [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhVwU2vAkMsz_cCZvg-WXH6EDGncv_TTNdmhT-GJsdcipUMFTpZQZDZlGBCWo8BQpSVF_oi-KLHCedxF6B6w6084Zh1QoQbK2B7A0RtyLJ1mlGNyZfgLmRf7J0b7kkafbIQpVuPjjR35Wll/s200/Tango_Boca.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhVwU2vAkMsz_cCZvg-WXH6EDGncv_TTNdmhT-GJsdcipUMFTpZQZDZlGBCWo8BQpSVF_oi-KLHCedxF6B6w6084Zh1QoQbK2B7A0RtyLJ1mlGNyZfgLmRf7J0b7kkafbIQpVuPjjR35Wll/s1600/Tango_Boca.jpg) ¿Salimos a bailar, sueño querido?

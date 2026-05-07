@@ -3,6 +3,7 @@ title: "Martín Alvarado"
 date: "2014-06-02"
 original_url: https://tangosalbardo.blogspot.com/2014/06/martin-alvarado.html
 labels: ""
+tags: ["José María Contursi", "Raúl Garello", "Homero Manzi"]
 ---
 
 Es ídolo popular en Finlandia y ha realizado giras por infinidad de países, triunfando en todos con su hermosa voz de tenor y el tango que destila a través de ella. Se consagró como ídolo muy lejos de su Buenos Aires natal y en un país que ama el tango pero de costumbres tan disímiles. Tuvo que dejar la cálida succión del cobijo hogareño y lanzarse a la aventura, en una de esas tantas crisis económicas que azotan a la Argentina y que hunden a muchísimas familias en la desesperanza total.

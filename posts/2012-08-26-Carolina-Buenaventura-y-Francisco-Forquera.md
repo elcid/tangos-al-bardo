@@ -3,6 +3,7 @@ title: "Carolina Buenaventura y Francisco Forquera"
 date: "2012-08-26"
 original_url: https://tangosalbardo.blogspot.com/2012/08/carolina-buenaventura-y-francisco.html
 labels: ""
+tags: ["Pedro Laurenz"]
 ---
 
 Como estoy pasando unos días en la playa, huyendo del tremendo calor de Madrid, aprovecho los ratitos en el bulín para deleitarme con las grandes parejas de bailarines de tango que tenemos actualmente.

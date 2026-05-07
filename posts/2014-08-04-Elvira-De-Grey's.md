@@ -3,6 +3,7 @@ title: "Elvira De Grey's"
 date: "2014-08-04"
 original_url: https://tangosalbardo.blogspot.com/2014/08/elvira-de-greys.html
 labels: ""
+tags: ["Florindo Sassone", "Enrique Cadícamo", "Héctor Marcó"]
 ---
 
 Fue una gran cantante que no tuvo en Argentina el reconocimiento que realmente merecía por sus grandes dotes, su poderosa voz de mezzosoprano, y una interpretación de los versos que cantaba, en los que hacía visible ese resplandor arrebatado de las artistas plenas.

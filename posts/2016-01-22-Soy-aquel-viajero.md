@@ -3,6 +3,7 @@ title: "Soy aquel viajero"
 date: "2016-01-22"
 original_url: https://tangosalbardo.blogspot.com/2016/01/soy-aquel-viajero.html
 labels: ""
+tags: ["Carlos Di Sarli", "Alberto Podestá", "Pedro Laurenz", "Julio Martel", "Ariel Ardit"]
 ---
 
 La realidad histórica nos demuestra a diario que la llamada década del cuarenta, fue una febril reunión de compositores y poetas tocados por la varita mágica de la creación y la invención. Ello permitió que el tango, la gran música popular rioplatense, tuviese en Buenos Aires la llama que iluminó a toda una generación y enriqueció al género como pocas veces sucediera en otros planos semejantes, dentro de la música internacional destinada a la danza o a la escucha.

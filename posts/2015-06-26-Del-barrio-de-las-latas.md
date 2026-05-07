@@ -3,6 +3,7 @@ title: "Del barrio de las latas"
 date: "2015-06-26"
 original_url: https://tangosalbardo.blogspot.com/2015/06/del-barrio-de-las-latas.html
 labels: ""
+tags: ["Enrique Santos Discépolo", "Francisco Canaro", "Francisco Lomuto", "Osvaldo Fresedo", "Carlos Di Sarli", "Carlos Gardel", "Aníbal Troilo", "Ubaldo De Lío"]
 ---
 
 Este tango es de 1926 y lo grabó dos veces Carlos Gardel ese mismo año. El primero, el día 26 de noviembre de dicho año en sistema acústico con las guitarras de José Ricardo y Guillermo Barbieri y el segundo, cuatro días más tarde en el nuevo sistema eléctrico. Sus autores fueron el pianista y compositor Raúl de los Hoyos, y, los versos son de Emilio Fresedo, violinista y co-autor de tantos temas famosos con su hermano Osvaldo.

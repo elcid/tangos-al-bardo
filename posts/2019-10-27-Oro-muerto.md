@@ -3,6 +3,7 @@ title: "Oro muerto"
 date: "2019-10-27"
 original_url: https://tangosalbardo.blogspot.com/2019/10/oro-muerto.html
 labels: ""
+tags: ["Alfredo De Angelis", "Roberto Rufino", "Carlos Gardel", "Enrique Dizeo", "Julio Martel", "Pedro Maffia"]
 ---
 
 Hoy quiero rescatar este tango porque recrea aquel paisaje de los conventillos, cuando se engalanaban sus muchachas y varones, para arracimarse en una milonga con fueyeros guitarreros y músicos del barrio y de otras zonas, con el fin de animar una velada a todo trapo. Se preparaban ollas de clericó con hielo, bebidas varias refrescantes, guirnaldas, luces de colores, y todo el barrio parecía vestirse de fiesta.

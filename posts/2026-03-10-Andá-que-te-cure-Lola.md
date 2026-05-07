@@ -3,6 +3,7 @@ title: "Andá que te cure Lola"
 date: "2026-03-10"
 original_url: https://tangosalbardo.blogspot.com/2026/03/anda-que-te-cure-lola.html
 labels: ""
+tags: ["Osvaldo Pugliese"]
 ---
 
 Esta milonga la compuso allá por 1947 el bandoneonista Luis Caruso, al que algunos llamaban "Carusito" y que estuvo varios años radicado en Montevideo, donde se fue a sus 20 años. Dirigió conjuntos, volviendo cada tanto a Buenos Aires y a su barrio de Villa Crespo que lo extrañaba. Su tío era José Servidio, que le enseñaría los secretos del* fueye* y lo incrustaría tempranamente en su orquesta.

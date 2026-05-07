@@ -3,6 +3,7 @@ title: "Reconocimiento a dos grandes del tango"
 date: "2014-12-07"
 original_url: https://tangosalbardo.blogspot.com/2014/12/reconocimiento-dos-grandes-del-tango.html
 labels: ""
+tags: ["Edmundo Rivero", "Horacio Ferrer", "Mariano Mores"]
 ---
 
 El próximo día 12 de este mes de diciembre, se emplazarán sendas estatutas en el porteño barrio de San Telmo. La primera se hará realidad en la Avenida Independencia y Balcarce, cerca de su querido y recordado **El Viejo Almacén**, a Edmundo Rivero. La misma se emplaza en Avenida Independencia y Balcarce a las 17 horas.

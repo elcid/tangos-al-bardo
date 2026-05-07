@@ -3,6 +3,7 @@ title: "Una emoción"
 date: "2016-07-02"
 original_url: https://tangosalbardo.blogspot.com/2016/07/una-emocion.html
 labels: ""
+tags: ["Raúl Kaplún"]
 ---
 
 *"Si es tan sencillo y tan humilde en sus compases*

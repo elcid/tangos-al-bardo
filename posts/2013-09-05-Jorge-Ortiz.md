@@ -3,6 +3,7 @@ title: "Jorge Ortiz"
 date: "2013-09-05"
 original_url: https://tangosalbardo.blogspot.com/2013/09/jorge-ortiz.html
 labels: ""
+tags: ["Homero Expósito", "Edgardo Donato", "Carlos Gardel", "Miguel Caló", "Jorge Ortiz", "Carlos Bahr", "Raúl Berón"]
 ---
 
 No fue un cantor de primera línea pero supo encajar su voz perfectamente modulada, en las distintas orquestas en que actuó durante su carrera de intérprete. Se llamaba Juan Edelmiro Alessio y con ese nombre, eliminando el segundo, grabó con la formación de Edgardo Donato 4 temas.

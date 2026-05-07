@@ -3,6 +3,7 @@ title: "Bien milonga"
 date: "2017-09-26"
 original_url: https://tangosalbardo.blogspot.com/2017/09/bien-milonga_26.html
 labels: ""
+tags: ["Ricardo Tanturi", "Juan D'Arienzo", "Enrique Campos"]
 ---
 
 * *

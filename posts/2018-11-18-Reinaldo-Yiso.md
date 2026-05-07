@@ -3,6 +3,7 @@ title: "Reinaldo Yiso"
 date: "2018-11-18"
 original_url: https://tangosalbardo.blogspot.com/2018/11/reinaldo-yiso.html
 labels: ""
+tags: ["Francisco Rotundo", "Enrique Rodríguez", "Joaquín Do Reyes", "Donato Racciatti", "Osvaldo Pugliese", "Ricardo Tanturi", "Alberto Podestá", "Roberto Rufino"]
 ---
 
 Algunos de nosotros podemos dar fe de aquella época de aprontes juveniles, de los picaditos de fútbol y esos tangos que resonaban en nuestras orejas y que nos refilaban el cuore, por las pinturas que se mandaba el cantor de turno, redondeando el buril del poeta-letrista o coplero. Sí, algunos de aquellos tangos hicieron escala en nuestra adolescencia y los canturreábamos con fervor, después de escucharlos seguido por la radio.

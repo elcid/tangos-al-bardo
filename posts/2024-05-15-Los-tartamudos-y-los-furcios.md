@@ -3,6 +3,7 @@ title: "Los tartamudos y los furcios"
 date: "2024-05-15"
 original_url: https://tangosalbardo.blogspot.com/2024/05/los-tartamudos-y-los-furcios.html
 labels: ""
+tags: ["Agustín Magaldi"]
 ---
 
 A veces recordamos antiguas anécdotas que sirven, para sonreír un rato y pasarla bien. El tango está lleno de historias graciosas vividas por sus figuras importantes y hoy recordamos algunas de ellas junto con otras que también sucedían en el ambiente radial donde a todas horas se escuchaban a orquestas y cantores de moda en vivo, especialmente en las emisoras más importantes.

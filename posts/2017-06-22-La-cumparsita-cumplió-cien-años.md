@@ -3,6 +3,7 @@ title: "La cumparsita cumplió cien años"
 date: "2017-06-22"
 original_url: https://tangosalbardo.blogspot.com/2017/06/la-cumparsita-cumplio-cien-anos.html
 labels: ""
+tags: ["Francisco Canaro", "Pascual Contursi", "Carlos Di Sarli", "Roberto Firpo", "Charlo"]
 ---
 
 Y goza de inmejorable salud. Y sigue sonando en las milongas de todo el mundo, en películas, en competencias olímpicas, en rellenos de televisión. Es el tango por excelencia, el que nos une, el que nos identifica, el que bailamos para cerrar la noche milonguera, como inventaron los discjockeys de fines de los cuarenta en Buenos Aires y se sigue haciendo hoy.

@@ -3,6 +3,7 @@ title: "Agua florida"
 date: "2014-05-10"
 original_url: https://tangosalbardo.blogspot.com/2014/05/agua-florida.html
 labels: ""
+tags: ["Luis Petrucelli", "Horacio Ferrer", "Alberto Gómez", "Ángel Vargas"]
 ---
 
 Este hermoso tango de los uruguayos Fernán Silva Valdés y Ramón Collazo, encontró una magnífica interpretación en la conjunción de los dos Ángeles: D'Agostino-Vargas. El tema le gustaba mucho al cantor y se lo aconsejó al director, pasando a ser el disco número doce que grabaron juntos, el 13 de noviembre de 1941. No había tenido gran trascendencia en Buenos Aires pese a que el gran bandoneonista Luis Petrucelli, lo dejase impresa en forma instrumental el 9 de agosto de 1928. También lo registró el cantor oriental Alberto Vila el mismo año.

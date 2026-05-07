@@ -3,6 +3,7 @@ title: "El genio de Mores"
 date: "2017-02-20"
 original_url: https://tangosalbardo.blogspot.com/2017/02/el-genio-de-mores.html
 labels: ""
+tags: ["José María Contursi", "Francisco Canaro", "Hugo del Carril", "Mariano Mores", "Lucio Demare"]
 ---
 
 Es indudable que Mariano Mores, al margen de sus capacidades como intérprete, fue un compositor con una imaginación musical fuera de lo común. Su obra contiene piezas esenciales del género, un melodismo especial y una vibración que lo señalan abiertamente, tanto para crear piezas instrumentales de alto vuelo, como acompañando a versos que hicieron historia en el género y pueden considerarse como piezas maestras del mismo.

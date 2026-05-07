@@ -3,6 +3,7 @@ title: "BIEN MILONGA"
 date: "2019-06-18"
 original_url: https://tangosalbardo.blogspot.com/2019/06/bien-milonga_18.html
 labels: ""
+tags: ["Carlos Di Sarli", "Alberto Podestá", "Miguel Caló"]
 ---
 
 *A tango limpio sentirás*

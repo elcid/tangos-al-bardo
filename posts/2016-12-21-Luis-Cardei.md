@@ -3,6 +3,7 @@ title: "Luis Cardei"
 date: "2016-12-21"
 original_url: https://tangosalbardo.blogspot.com/2016/12/luis-cardei.html
 labels: ""
+tags: ["Raúl Berón", "Abel Aznar", "José Canet"]
 ---
 
 Recuerdo cundo Miguel Ángel Zotto me hablaba entusiasmado de la gran compañía que estaba armando para su genial revista teatral tanguera, con la cual sería ovacionado en tantas ciudades europeas. Y me contaba de su frustración por no poder incluir al cantor Luis Cardei en la misma, dados sus problemas hemofílicos y la imposibilidad de viajar. Pero, como a tantos, le entusiasmaba la forma de interpretar que tenía este muchacho que afrontó tanta desgracia en su vida.

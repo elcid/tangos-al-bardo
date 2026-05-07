@@ -3,6 +3,7 @@ title: "D'Arienzo suma y sigue"
 date: "2016-09-27"
 original_url: https://tangosalbardo.blogspot.com/2016/09/darienzo-suma-y-sigue.html
 labels: ""
+tags: ["Luis Adolfo Sierra", "Fulvio Salamanca", "Alberto Echagüe", "Juan D'Arienzo", "Jorge Dragone", "Héctor Varela", "Héctor Mauré"]
 ---
 
 Cuando el tango comenzó su re expansión en los años noventa del siglo pasado, varios organizadores de milongas en Madrid, generalmente provenientes de otros géneros, antes de dar su salto al tango, no entendían que me gustase bailar los temas de D'Arienzo. Digamos que los nuevos paladares tangueros que habían conocido la renovación de Piazzolla, la sencillez comunicativa de Di Sarli, el sonido entrañable del fueye de Pichuco, y el sonido decareano de Pugliese orientado a la bailabilidad, desdeñaban la fogosidad sin tregua del Rey del compás.

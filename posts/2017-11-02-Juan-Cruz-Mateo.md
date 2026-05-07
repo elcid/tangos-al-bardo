@@ -3,6 +3,7 @@ title: "Juan Cruz Mateo"
 date: "2017-11-02"
 original_url: https://tangosalbardo.blogspot.com/2017/11/juan-cruz-mateo.html
 labels: ""
+tags: ["Osvaldo Fresedo", "Carlos Gardel", "Anselmo Aieta"]
 ---
 
 Hace tiempo que quería incluir entre las reseñas tangueras de Tangos al Bardo, a este artista integral que de niño esbozó su futura personalidad, estudiando música y pintura, aunque no terminó ninguna de las dos asignaturas que había escogido en común con sus padres. El progenitor, nacido en Barcelona, alimentó las aspiraciones de Juan Cruz, aunque debido a sus importantes ocupaciones, no pudo controlar las* ausencias* del chico en sus estudios.

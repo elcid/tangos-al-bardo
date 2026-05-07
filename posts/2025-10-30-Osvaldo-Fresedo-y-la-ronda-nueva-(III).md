@@ -3,6 +3,7 @@ title: "Osvaldo Fresedo y la ronda nueva (III)"
 date: "2025-10-30"
 original_url: https://tangosalbardo.blogspot.com/2025/10/osvaldo-fresedo-y-la-ronda-nueva-iii.html
 labels: ""
+tags: ["Luis Adolfo Sierra", "Francisco Canaro", "Osvaldo Fresedo", "Enrique Delfino", "Julio De Caro", "José Martínez", "Pedro Maffia"]
 ---
 
 ** “A dos bandoneones Loduca-Fresedo”**

@@ -3,6 +3,7 @@ title: "BIEN MILONGA"
 date: "2019-04-30"
 original_url: https://tangosalbardo.blogspot.com/2019/04/bien-milonga_30.html
 labels: ""
+tags: ["Juan D'Arienzo"]
 ---
 
 *Tango milongón*

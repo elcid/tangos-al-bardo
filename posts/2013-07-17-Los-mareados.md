@@ -3,6 +3,7 @@ title: "Los mareados"
 date: "2013-07-17"
 original_url: https://tangosalbardo.blogspot.com/2013/07/los-mareados.html
 labels: ""
+tags: ["José González Castillo", "Francisco Fiorentino", "Juan Carlos Cobián", "Enrique Cadícamo", "Osvaldo Fresedo", "Enrique Delfino", "Aníbal Troilo", "Roberto Firpo"]
 ---
 
 Este es uno de los tangos que mayor difusión han alcanzado y en algunos casos se han realizado versiones maravillosas del mismo. Y como todos los temas, arrastra consigo una historia, pero en este caso, por tratarse de semejante obra fundamental, vale la pena recontarla.

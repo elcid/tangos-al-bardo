@@ -3,6 +3,7 @@ title: "Ignacio Varchasky"
 date: "2023-03-26"
 original_url: https://tangosalbardo.blogspot.com/2023/03/ignacio-varchasky.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Carlos Gardel"]
 ---
 
 Ayer tuvimos la enorme satisfacción de estar presentes en la Conferencia que dio Ignacio Varchausky en el centro Gallego de Madrid. Duró dos hermosas horas que parecieron muy cortas y versó sobre **"El estilo de la orquesta de...".**

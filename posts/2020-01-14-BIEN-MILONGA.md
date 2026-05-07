@@ -3,6 +3,7 @@ title: "BIEN MILONGA"
 date: "2020-01-14"
 original_url: https://tangosalbardo.blogspot.com/2020/01/bien-milonga_14.html
 labels: ""
+tags: ["Alberto Castillo", "Juan D'Arienzo", "Héctor Mauré", "Carlos Bahr"]
 ---
 
 Compás floreado de tango

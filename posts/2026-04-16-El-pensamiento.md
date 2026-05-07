@@ -3,6 +3,7 @@ title: "El pensamiento"
 date: "2026-04-16"
 original_url: https://tangosalbardo.blogspot.com/2026/04/el-pensamiento.html
 labels: ""
+tags: ["Francisco García Jiménez", "Francisco Canaro", "Osvaldo Pugliese", "Osvaldo Fresedo", "José Martínez"]
 ---
 
 -Lo llamaban "el gallego" y era criollo y morocho. El gallego Martínez. ¡Qué pianista genuino del tango! ¡Qué melodista privilegiado! Los ditirambos no son gratuitos para José Martínez., compositor de tangos como *Pablo, De vuelta al bulín, El cencerro* y otros más de esa calidad y además de ese exquisito "El pensamiento", del que hablaré hoy.

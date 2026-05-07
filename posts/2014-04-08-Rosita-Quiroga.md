@@ -3,6 +3,7 @@ title: "Rosita Quiroga"
 date: "2014-04-08"
 original_url: https://tangosalbardo.blogspot.com/2014/04/rosita-quiroga.html
 labels: ""
+tags: ["Francisco García Jiménez", "Celedonio Flores", "Mercedes Simone", "Agustín Magaldi", "Eduardo Arolas", "Horacio Ferrer", "Edgardo Donato", "Rosita Quiroga"]
 ---
 
 Fue una cantora de radio, de discos, de intimismos, de barrio, que no actuaba públicamente, pero que tuvo una adhesión inquebrantable de sus hinchas a lo largo de los años. Porque expresaba el sentir del pueblo llano, su parla, su chimento confidente, la manera de erigir la conversa, la filosofía barrial de aquel Buenos Aires que todavía veía el sol y la luna, antes que la invadieran los rascacielos.

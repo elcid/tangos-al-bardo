@@ -3,6 +3,7 @@ title: "Cortos musicales de Enrique Cadícamo"
 date: "2023-12-12"
 original_url: https://tangosalbardo.blogspot.com/2023/12/cortos-musicales-de-enrique-cadicamo.html
 labels: ""
+tags: ["Enrique Cadícamo", "Ángel Vargas"]
 ---
 
 <iframe src="https://www.youtube.com/embed/3cd-DG8X3s0"></iframe>

@@ -3,6 +3,7 @@ title: "El entrerriano"
 date: "2014-11-19"
 original_url: https://tangosalbardo.blogspot.com/2014/11/el-entrerriano.html
 labels: ""
+tags: ["Leopoldo Federico", "Horacio Malvicino", "Atilio Stampone", "Homero Expósito", "Ángel Villoldo", "José Bragato"]
 ---
 
 En otra oportunidad me ocupé de este tango que, según todas las informaciones, fue la primera partitura registrada, a fines del siglo XIX y su autor fue un negro, Rosendo Mendizábal, pianista de buena familia, que firmaba sus primeras composiciones como A. Rosendo. Lo han grabado infinidad de orquestas, porque además de tener gran importancia en la historia del género, tiene una gran calidad musical.

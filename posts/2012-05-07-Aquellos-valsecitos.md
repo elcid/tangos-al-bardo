@@ -3,6 +3,7 @@ title: "Aquellos valsecitos"
 date: "2012-05-07"
 original_url: https://tangosalbardo.blogspot.com/2012/05/aquellos-valsecitos.html
 labels: ""
+tags: ["Oscar Alonso"]
 ---
 
 Parecían compuestos a propósito para guitarreros. Esos que pululaban por la Buenos Aires de antaño provistos de su herramienta musical, siempre listos para una serenata a la novia, la despedida de soltero, el asado, la mateada y el desfile por los cafés de barrio para amenizar las noches y juntar un dinero.

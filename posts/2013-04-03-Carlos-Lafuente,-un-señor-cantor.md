@@ -3,6 +3,7 @@ title: "Carlos Lafuente, un señor cantor"
 date: "2013-04-03"
 original_url: https://tangosalbardo.blogspot.com/2013/04/carlos-lafuente-un-senor-cantor.html
 labels: ""
+tags: ["Libertad Lamarque", "Adolfo Carabelli", "Hugo del Carril", "Carlos Gardel", "Floreal Ruiz", "Carlos Dante", "Charlo"]
 ---
 
 Creo que los méritos que atesoró este intérprete no han sido debidamente aquilatados y reflejados en crónicas y comentarios en su momento y a posteriori, que mereció largamente.

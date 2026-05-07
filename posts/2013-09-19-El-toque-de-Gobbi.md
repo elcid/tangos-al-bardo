@@ -3,6 +3,7 @@ title: "El toque de Gobbi"
 date: "2013-09-19"
 original_url: https://tangosalbardo.blogspot.com/2013/09/el-toque-de-gobbi.html
 labels: ""
+tags: ["Ismael Spitalnik", "Osvaldo Pugliese", "Julio Camilloni", "Julián Centeya", "Ángel Villoldo", "Aníbal Troilo", "Julio De Caro", "Pedro Laurenz"]
 ---
 
 Reconocido por todos sus colegas, aunque no brille en el tope de ventas ni en la memoria colectiva, Alfredo Gobbi fue un tanguero de ley, un músico de alto nivel que mantuvo en alto las banderas de este género junto a los Pugliese, Troilo, Vardaro, Goñi, y sobre todo respetando a muerte el *efecto De Caro* , que impulsó a los más jóvenes de entonces.

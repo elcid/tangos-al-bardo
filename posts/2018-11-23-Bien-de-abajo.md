@@ -3,6 +3,7 @@ title: "Bien de abajo"
 date: "2018-11-23"
 original_url: https://tangosalbardo.blogspot.com/2018/11/bien-de-abajo.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Eladia Blázquez"]
 ---
 
 Creo que vale la pena volver los pasos sobre este tango de dos importantes personajes del tango. el poeta Héctor Negro, y el bandoneonista y compositor Arturo Penón. Con un tema que seguramente debería haber tenido mayor recorrido, por su méritos poéticos y musicales, pero que nació en uno de esos momentos en que el género popular atravesaba uno de los baches que sufrió en la historia, aunque tuvo interpretaciones como las de Pugliese-Córdoba que le dieron fuerte respaldo

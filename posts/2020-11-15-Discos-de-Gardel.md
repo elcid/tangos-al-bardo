@@ -3,6 +3,7 @@ title: "Discos de Gardel"
 date: "2020-11-15"
 original_url: https://tangosalbardo.blogspot.com/2020/11/discos-de-gardel.html
 labels: ""
+tags: ["Eduardo Del Piano", "Ricardo Tanturi", "Enrique Campos", "Alberto Gómez", "Carlos Gardel"]
 ---
 
 Quizás será la cuarentena de ocho meses que llevamos en el lomo, la falta de abrazos con amigos, de charletas de café, de milonguear tupido para darle gusto al cuore y al cuerpo...Lo cierto es que estoy escuchando tangos, valsecitos, milongas y hoy me detengo en este tema que lleva versos de Horacio Sanguinetti y música de Eduardo del Piano. Porque lo acabo de escuchar en dos versiones distintas y realmente tiene cosas que a simple vista no parecen decir mucho, pero tiene fondo, algo que me llega, porque refleja cosas de tiempos pasados que vuelven a la memoria y nos lleva a un espacio de reflexión.

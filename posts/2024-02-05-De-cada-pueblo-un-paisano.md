@@ -3,6 +3,7 @@ title: "De cada pueblo un paisano..."
 date: "2024-02-05"
 original_url: https://tangosalbardo.blogspot.com/2024/02/de-cada-pueblo-un-paisano.html
 labels: ""
+tags: ["Enrique Rodríguez", "Osvaldo Pugliese", "Francisco Canaro", "Osvaldo Fresedo", "Carlos Di Sarli", "Ricardo Tanturi", "Juan D'Arienzo", "Aníbal Troilo"]
 ---
 
 Sí, hoy hablamos en términos milongueros y te voy a decir qué tema me gusta bailar de cada orquesta. O al menos de la mayoría que suenan en la milonga.Tomá nota.:

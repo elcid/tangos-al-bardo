@@ -3,6 +3,7 @@ title: "Hoy al recordarla"
 date: "2016-11-23"
 original_url: https://tangosalbardo.blogspot.com/2016/11/hoy-al-recordarla.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Carlos Di Sarli", "Julio Martel", "Jorge Durán", "José Canet"]
 ---
 
 Hay tangos que has escuchado miles de veces, los has bailado, los has sentido en directo, pero te siguen rondando el cuore y seguís encontrando motivos para sentirte* tocado*. Los recuerdos, las andanzas, las milongas, qué sé yo... Los temas del guitarrista y compositor José Canet me parecen sencillos pero hermosos a la vez. Tienen alma. Llegan y se te quedan prendidos como abrojito punzante, ¿viste?

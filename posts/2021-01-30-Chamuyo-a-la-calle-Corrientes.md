@@ -3,6 +3,7 @@ title: "Chamuyo a la calle Corrientes"
 date: "2021-01-30"
 original_url: https://tangosalbardo.blogspot.com/2021/01/chamuyo-la-calle-corrientes.html
 labels: ""
+tags: ["Dante Linyera"]
 ---
 
 Caye Corrientes, estación de noctámbulos donde cualquier día parece sábado...  Ascua de luces eléctricas parecés el pecho de una bacana por las muchas pedrerías de tus lámparas.

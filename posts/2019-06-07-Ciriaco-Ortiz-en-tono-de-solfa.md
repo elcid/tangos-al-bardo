@@ -3,6 +3,7 @@ title: "Ciriaco Ortiz en tono de solfa"
 date: "2019-06-07"
 original_url: https://tangosalbardo.blogspot.com/2019/06/ciriaco-ortiz-en-tono-de-solfa.html
 labels: ""
+tags: ["Celedonio Flores", "Edmundo Rivero", "Horacio Ferrer", "Horacio Salgán", "Alberto Gómez", "Orlando Goñi"]
 ---
 
 Puso sostenidos y bemoles a tangos memorables —algunos de ellos, como 'Atenti, pebeta', se completó con los versos de Celedonio Flores—; hizo oír su bandoneón al frente de orquestas típicas en las que militaban también Orlando Goñi, Cayetano Puglisi, Aníbal *Pichuco* Troilo. Sin embargo —insólitamente—, Ciriaco Ortiz no parece haber afincado en el prestigio popular del mismo modo que otros intérpretes menos valiosos y personales. Y eso que tiene "*tantos años de bandoneonista como de edad*", según mentan sus amigos; una edad, por lo demás, imprecisa: C. O. elude con una sonrisa pícara todo lo que se refiera a su fecha de nacimiento, producido —eso sí es verídico— en la ciudad de Córdoba, cerca del Mercado Norte, en donde desplegó sus travesuras siesteras.

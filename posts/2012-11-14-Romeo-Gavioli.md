@@ -3,6 +3,7 @@ title: "Romeo Gavioli"
 date: "2012-11-14"
 original_url: https://tangosalbardo.blogspot.com/2012/11/romeo-gavioli.html
 labels: ""
+tags: ["Edgardo Donato", "Romeo Gavioli"]
 ---
 
 Este uruguayo tuvo un potencial importante como cantor de tango e incluso como músico. Fué violinista, director, compositor. Provenía de una familia de músicos pero desde muy pequeño llamaba la atención en su barrio montevideano La comercial, por sus dotes canoras. Por ello ingresó en los Coros de la Iglesia de la Merced, a la vez que estudiaba violín.

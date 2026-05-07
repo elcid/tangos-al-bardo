@@ -3,6 +3,7 @@ title: "Ariel Ardit: Gardel sinfónico"
 date: "2016-08-25"
 original_url: https://tangosalbardo.blogspot.com/2016/08/ariel-ardit-gardel-sinfonico.html
 labels: ""
+tags: ["Mario Battistella", "Manuel Romero", "Carlos Gardel", "Ariel Ardit"]
 ---
 
 El año pasado, al cumplirse el 80º aniversario del trágico fallecimiento de Carlos Gardel en Medellín junto a varios de sus acompañantes, Ariel Ardit resolvió homenajearlo, en el mismo lugar del accidente: el aeropuerto Olaya Herrera de dicha ciudad colombiana. Fue el 24 de junio del año pasado y no lo hizo de la manera tradicional, sino acompañado por la orquesta sinfónica de Medellín, dirigida por el maestro Gonzalo Ospina. Fue una representación maravillosa ante cinco mil personas.

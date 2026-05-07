@@ -3,6 +3,7 @@ title: "A bailar, a bailar..."
 date: "2016-09-24"
 original_url: https://tangosalbardo.blogspot.com/2016/09/a-bailar-bailar.html
 labels: ""
+tags: ["Francisco Canaro", "Juan D'Arienzo", "Eduardo Arolas", "Alberto Marino"]
 ---
 
 *"Se empilchaba despacio, casi lerdo*

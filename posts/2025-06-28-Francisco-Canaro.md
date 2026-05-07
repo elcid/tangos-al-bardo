@@ -3,6 +3,7 @@ title: "Francisco Canaro"
 date: "2025-06-28"
 original_url: https://tangosalbardo.blogspot.com/2025/06/francisco-canaro.html
 labels: ""
+tags: ["José González Castillo", "Francisco Canaro", "Juan D'Arienzo", "Ricardo Ruiz", "Carlos Dante", "Charlo"]
 ---
 
 ** "Los cantores de mi orquesta".**

@@ -3,6 +3,7 @@ title: "Luis Teisseire"
 date: "2013-08-03"
 original_url: https://tangosalbardo.blogspot.com/2013/08/luis-teisseire_3.html
 labels: ""
+tags: ["Juan Andrés Caruso", "Carlos Di Sarli", "Augusto Berto", "José Basso"]
 ---
 
 Hoy quiero recordar a este músico de la guardia vieja, flautista para más señas, que no ha tenido la debida relevancia dentro de los anecdotarios tangueros, aunque sí fue muy respetado por su lucha por los derechos de los músicos y ha dejado una obra muy interesante sintetizada especialmente en un racimo de temas que siguen dando vuelta en el carrusel musical rioplatense.

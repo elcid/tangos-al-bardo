@@ -3,6 +3,7 @@ title: "Bien milonga"
 date: "2017-05-23"
 original_url: https://tangosalbardo.blogspot.com/2017/05/bien-milonga_23.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Francisco Canaro", "Mariano Mores"]
 ---
 
 [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhGYDiiBo25A7cgFYvk2fRhcCOa9devVcPoB4PHxdghrcA9NL5oNAkpvE-LPRlWTtzxlMxD-gPp66ug5_BKGMnnQXosNp2IF7pQgSQ6wzwGNKAhg1nDQnQh6xfKDm8VFPOyeGgvQ4JUJm5R/s320/yunta.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhGYDiiBo25A7cgFYvk2fRhcCOa9devVcPoB4PHxdghrcA9NL5oNAkpvE-LPRlWTtzxlMxD-gPp66ug5_BKGMnnQXosNp2IF7pQgSQ6wzwGNKAhg1nDQnQh6xfKDm8VFPOyeGgvQ4JUJm5R/s1600/yunta.jpg) *Muchachos, comienza la ronda*

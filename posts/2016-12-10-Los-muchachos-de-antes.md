@@ -3,6 +3,7 @@ title: "Los muchachos de antes"
 date: "2016-12-10"
 original_url: https://tangosalbardo.blogspot.com/2016/12/los-muchachos-de-antes.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Juan D'Arienzo", "Carlos Waiss"]
 ---
 
 * "Llevo el tango en el alma porque es muy mío,

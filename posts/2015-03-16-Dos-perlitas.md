@@ -3,6 +3,7 @@ title: "Dos perlitas"
 date: "2015-03-16"
 original_url: https://tangosalbardo.blogspot.com/2015/03/dos-perlitas_16.html
 labels: ""
+tags: ["Francisco Canaro"]
 ---
 
 En las milongas de los primeros años cincuenta, se bailaba con aquellos discos de pasta de 78rpm. Los discjockeys de entonces ponían un tango por ambas caras (que podía ser un tango y un vals o milonga) y uno de jazz (que incluía música caribeña o brasileña). Y recuerdo que era bastante común que en este primer género se escuchara * La vestida de rojo*, una rumba movidita ejecutada por la orquesta de Harry Roy, que aparecía en la película *Por unos ojos negros*, en 1935.

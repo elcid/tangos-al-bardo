@@ -3,6 +3,7 @@ title: "El Sexteto de Maffia"
 date: "2014-09-02"
 original_url: https://tangosalbardo.blogspot.com/2014/09/el-sexteto-de-maffia.html
 labels: ""
+tags: ["Francisco Canaro", "Osvaldo Pugliese", "Sebastián Piana", "Eugenio Nóbile", "Aníbal Troilo", "Julio De Caro", "Pedro Laurenz", "Roberto Firpo"]
 ---
 
 El fabuloso e histórico dúo de bandoneones que formaron Pedro Maffia y Pedro Laurenz en el Sexteto de Julio De Caro, se separó definitivamente después de la última grabación que hicieron con De Caro, el 29 de noviembre de 1926. De un lado tenía el tango de Francisco De Caro, *Sueño azul *y en el reverso, el tango de Adolfo Mondino: *Coperito*.

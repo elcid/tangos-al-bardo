@@ -3,6 +3,7 @@ title: "Osvaldo Fresedo y la ronda nueva (VII)"
 date: "2025-11-02"
 original_url: https://tangosalbardo.blogspot.com/2025/11/fresedo.html
 labels: ""
+tags: ["Francisco Canaro", "Osvaldo Fresedo", "Agustín Magaldi", "Teófilo Ibáñez"]
 ---
 
 **Fresedo en París**

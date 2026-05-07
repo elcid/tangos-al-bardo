@@ -3,6 +3,7 @@ title: "La gran obra de TANGO VIA"
 date: "2018-03-15"
 original_url: https://tangosalbardo.blogspot.com/2018/03/la-gran-obra-de-tango-via.html
 labels: ""
+tags: ["Juan Carlos Cobián", "Leopoldo Federico", "Ismael Spitalnik", "Osvaldo Pugliese", "José Libertella", "Víctor Lavallén", "Astor Piazzolla", "Armando Pontier"]
 ---
 
 TangoVia Buenos Aires es una asociación civil sin fines de lucro que desde 2002 reúne a artistas, investigadores, productores e instituciones culturales para contribuir a la preservación, el desarrollo y la difusión del arte del tango en Buenos Aires y en el mundo.

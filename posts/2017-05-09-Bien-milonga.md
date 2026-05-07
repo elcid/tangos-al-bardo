@@ -3,6 +3,7 @@ title: "Bien milonga"
 date: "2017-05-09"
 original_url: https://tangosalbardo.blogspot.com/2017/05/bien-milonga_8.html
 labels: ""
+tags: ["Francisco Canaro"]
 ---
 
 "*Volvé pa' la milonga*

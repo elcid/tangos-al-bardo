@@ -3,6 +3,7 @@ title: "Ronda de ases"
 date: "2012-03-22"
 original_url: https://tangosalbardo.blogspot.com/2012/03/ronda-de-ases.html
 labels: ""
+tags: ["Osvaldo Fresedo", "Carlos Gardel", "Roberto Yanés", "Homero Manzi"]
 ---
 
 En este rinconcito de recuerdos, hoy revivimos la maravillosa década del 40. Los bailes era multitudinarios, los cafés de Tango se llenaban de fanáticos para ver a las orquestas y cantores, y la radio era el vehículo transmisor de todas las novedades y los grandes éxitos del momento.

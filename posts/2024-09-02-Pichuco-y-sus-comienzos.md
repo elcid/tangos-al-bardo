@@ -3,6 +3,7 @@ title: "Pichuco y sus comienzos"
 date: "2024-09-02"
 original_url: https://tangosalbardo.blogspot.com/2024/09/pichuco-y-sus-comienzos.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Eduardo Arolas", "Julio De Caro", "Juan Maglio"]
 ---
 
 ** El bandoneón** El primero que tuve se lo compramos a un ruso. El trato fue de 12 cuotas de 10 pesos. Pagamos las cuatro primeras y el ruso no vino más. Ese bandoneón todavía lo tengo. Yo lo llamo *cadenero* porque cincha conmigo esta dura barrera de la ida y de la muerte desde hace cuarenta años.

@@ -3,6 +3,7 @@ title: "Fabián Bertero"
 date: "2012-05-02"
 original_url: https://tangosalbardo.blogspot.com/2012/05/fabian-bertero.html
 labels: ""
+tags: ["Leopoldo Federico", "Atilio Stampone", "Horacio Ferrer", "José Colángelo"]
 ---
 
 Excelente violinista, magnífico director de la **Bertero Big Band**, acaba de volver a Buenos Aires después de una actuación en Turquía con su conjunto.

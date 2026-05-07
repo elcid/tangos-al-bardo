@@ -3,6 +3,7 @@ title: "Reportaje a Cadícamo"
 date: "2024-02-28"
 original_url: https://tangosalbardo.blogspot.com/2024/02/reportaje-cadicamo.html
 labels: ""
+tags: ["Enrique Cadícamo"]
 ---
 
 por Francisco "Paco" Urondo.

@@ -3,6 +3,7 @@ title: "Marioneta"
 date: "2023-04-27"
 original_url: https://tangosalbardo.blogspot.com/2023/04/marioneta.html
 labels: ""
+tags: ["Alfredo De Angelis", "Azucena Maizani", "Mercedes Simone", "Aníbal Troilo", "Floreal Ruiz", "José Basso"]
 ---
 
 Este tango de Armando Tagini y Juan José Guichandut revela una vez más el docudrama nostálgico que encierra el género en su poesía, y muy especialmente en la de este cantor-poeta que se luciera con temas como *Perfume de mujer, Mano cruel, La gayola, Gloria, Abrojos, Misa de once, Buey manso, Adiós Ninón, Menta y cedrón, El embrujo de tu violín*, o el que hoy rememoramos.

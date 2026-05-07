@@ -3,6 +3,7 @@ title: "Tango romanza"
 date: "2015-06-15"
 original_url: https://tangosalbardo.blogspot.com/2015/06/tango-romanza.html
 labels: ""
+tags: ["Juan Carlos Cobián", "Luis Adolfo Sierra", "Enrique Cadícamo", "Osvaldo Fresedo", "Enrique Delfino", "Osmar Maderna", "Lucio Demare"]
 ---
 
 Fue Juan Carlos Cobián, o fue Enrique Delfino o los dos a la vez, quienes se sacaron de la manga ese nuevo registro del tango que denominaron *Tango romanza*, para diferenciarlo del Tango milonga que era el santo y seña del género desde su invención. Incluso en algunas partituras, aclaran, por si fuera necesario, el estilo del nuevo modo de encarar esta música popular sin desvirtuarla. Por el contrario enriqueciéndola con temas como *Salomé* de Cobián o *Bélgica *de Delfino.

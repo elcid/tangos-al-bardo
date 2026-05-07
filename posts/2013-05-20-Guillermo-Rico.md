@@ -3,6 +3,7 @@ title: "Guillermo Rico"
 date: "2013-05-20"
 original_url: https://tangosalbardo.blogspot.com/2013/05/guillermo-rico.html
 labels: ""
+tags: ["Francisco Canaro", "Mercedes Simone"]
 ---
 
 Ha fallecido este galán-actor-cantor de tango, que tuvo mucho éxito en su momento. Tenía 93 años y había quedado ciego, pero su pinta relucía entre los integrantes de *Los 5 grandes del buen humor*, que en su época de parabienes filmaron varias películas, tenían programas cómicos de gran arraigo en el público y la vis cómica de varios de ellos, contrastaban con el lindo del grupo, que además cantaba muy bien.

@@ -3,6 +3,7 @@ title: "BIEN MILONGA"
 date: "2019-08-06"
 original_url: https://tangosalbardo.blogspot.com/2019/08/bien-milonga.html
 labels: ""
+tags: ["Francisco Canaro", "Juan D'Arienzo", "Walter Ríos"]
 ---
 
 Este tango nació para bailar

@@ -3,6 +3,7 @@ title: "La Valentina y el Burlesque Tango"
 date: "2014-04-16"
 original_url: https://tangosalbardo.blogspot.com/2014/04/la-valentina-y-el-burlesque-tango.html
 labels: ""
+tags: ["Francisco Canaro", "Cátulo Castillo", "Sebastián Piana", "Carlos Gardel", "Tita Merello", "Ada Falcón", "Nelly Omar", "Ivo Pelay"]
 ---
 
 Bajo este rótulo un tanto ambiguo se esconde una explosión de juvenilia que se inserta en las filas del tango, sin provenir del rock ni de otros géneros all'uso nostro. Son seis jóvenes capitaneados por la cantante que trae del pasado algunos fantasmas y los hace revivir en su interpretación.

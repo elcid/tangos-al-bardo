@@ -3,6 +3,7 @@ title: "Bailar Pugliese"
 date: "2015-02-26"
 original_url: https://tangosalbardo.blogspot.com/2015/02/don-osvaldo.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Orlando Goñi"]
 ---
 
 Parece increíble, pero desde que arribó la nueva alborada del tango en los años noventa y se diseminó por todo el mundo con un ímpetu extraordinario, las pistas se llenaron de bailarines que comenzaron a distinguir a algunas orquestas y entraron definitivamente en la órbita milonguera, que se había difuminado a partir de fines de los sesenta.

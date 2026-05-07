@@ -3,6 +3,7 @@ title: "El gordo Francini"
 date: "2014-01-03"
 original_url: https://tangosalbardo.blogspot.com/2014/01/el-gordo-francini.html
 labels: ""
+tags: ["José María Contursi", "Enrique Delfino", "Armando Pontier", "Alberto Podestá", "Homero Expósito", "Julián Centeya", "Julio De Caro", "Raúl Kaplún"]
 ---
 
 Para muchos fue el mejor violinista de la historia del tango. Su exccelente colega de la actualidad, Fabián Bertero, es uno de los que afirman tal cosa y ello, evidentemente, tiene doble validez por tratarse de quien se trata.

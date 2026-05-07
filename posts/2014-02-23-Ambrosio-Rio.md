@@ -3,6 +3,7 @@ title: "Ambrosio Rio"
 date: "2014-02-23"
 original_url: https://tangosalbardo.blogspot.com/2014/02/ambrosio-rio.html
 labels: ""
+tags: ["Ricardo Tanturi", "Ignacio Corsini", "Enrique Campos", "Carlos Gardel", "Homero Manzi", "Juan Maglio"]
 ---
 
 Los nombres que enriquecieron y enraizaron al tango en la sociedad rioplatense, son tantos y tan poco conocidos en muchos casos, que siento la necesidad permanente de rescatarlos del olvido y filiarlos en estas columnas que dan algunas vueltas por el mundo, y refrescan sus imágenes.

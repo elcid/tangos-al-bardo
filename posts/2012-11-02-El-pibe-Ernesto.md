@@ -3,6 +3,7 @@ title: "El pibe Ernesto"
 date: "2012-11-02"
 original_url: https://tangosalbardo.blogspot.com/2012/11/el-pibe-esrnesto.html
 labels: ""
+tags: ["Juan D'Arienzo", "Alfredo Gobbi"]
 ---
 
 Su célebre tango *Don Juan* sigue motivando a las parejas en la pista, en los compases nerviosos de Juan D'Arienzo o en los envolventes de Di Sarli. No es un tango que me atraiga demasiado y menos por la orquesta del pianista bahiense con ese golpeteo inusual del director y el comienzo en las teclas agudas, que lo registró en 3 oportunidades.

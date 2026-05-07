@@ -3,6 +3,7 @@ title: "Aquellas milongas"
 date: "2019-08-26"
 original_url: https://tangosalbardo.blogspot.com/2019/08/aquellas-milongas.html
 labels: ""
+tags: ["Pepito Avellaneda", "Juan Carlos Copes", "Osvaldo Pugliese", "Antonio Todaro", "Osvaldo Zotto", "María Nieves", "Virulazo"]
 ---
 
 Empecé a bailar muy pibe. En los finales de los años cuarenta y comienzos de los cincuenta, no había maestros de tango como hoy día. Ni por asomo. Se aprendía en las prácticas, entre los muchachos del barrio. Así comencé yo y comenzábamos la mayoría de los milongueros, término que no era bien visto por la pacata sociedad de entonces, que los juntaba en una bolsa con los burreros, atorrantes y demás adjetivos calificativos de gandules y vagos.

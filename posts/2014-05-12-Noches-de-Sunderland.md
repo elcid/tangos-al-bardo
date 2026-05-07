@@ -3,6 +3,7 @@ title: "Noches de Sunderland"
 date: "2014-05-12"
 original_url: https://tangosalbardo.blogspot.com/2014/05/noches-de-sunderland.html
 labels: ""
+tags: ["Carlos Gavito", "María Nieves"]
 ---
 
 Los milongueros solemos recrearnos en los recuerdos que, afortunadamente, quedan registrados en discos o material fílmico. El Club Sunderland de Villa Urquiza, en este caso, tiene la sana y hermosa costumbre de invitar a las figuras del tango para que realicen alguna exhibición en la Milonga de los sábados, sin aviso previo y sin preparativo alguno.

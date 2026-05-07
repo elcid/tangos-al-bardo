@@ -3,6 +3,7 @@ title: "Gardel con Rodio y Biagi"
 date: "2015-02-06"
 original_url: https://tangosalbardo.blogspot.com/2015/02/gardel-con-rodio-y-biagi.html
 labels: ""
+tags: ["Celedonio Flores", "Enrique Cadícamo", "Carlos Gardel", "Roberto Firpo", "Pedro Maffia", "Juan Maglio"]
 ---
 
 Sí, hoy he madrugado escuchando al gran cantor nacido en Francia y criado en el Abasto porteño, que llegó al Olimpo donde habitan las voces, las músicas y los recuerdos de aquellos artistas que nunca morirán porque dejaron una huella imborrable en el corazón de sus pueblos, y en este caso, en la genealogía del tango. Además, Gardel fue quien inventó la forma de cantarlo y lo hizo de tal manera que ninguno llegó a superarlo, aunque sus registros estén realizados primariamente, sin la pureza de los modernas grabaciones.

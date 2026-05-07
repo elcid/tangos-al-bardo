@@ -3,6 +3,7 @@ title: "El tano Marino"
 date: "2013-04-30"
 original_url: https://tangosalbardo.blogspot.com/2013/04/el-tano-marino.html
 labels: ""
+tags: ["Alberto Marino", "Aníbal Troilo", "Floreal Ruiz", "José Rótulo", "Abel Aznar", "Charlo"]
 ---
 
 Alfredito Gobbi le endosó su marca registrada: "*La voz de oro del tango*", y parafreaseando el tema de Abel Aznar, prodríamos decir: "*Y no le erró*". Fue en su momento una de las voces que brillaron con luz propia en las marquesinas del cuarenta y en una orquesta de multitudes como fue la de Aníbal Troilo, que encontró en esa dupla con Floreal Ruiz, al as de espadas y al as de bastos del tango.

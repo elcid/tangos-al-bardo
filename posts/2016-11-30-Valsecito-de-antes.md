@@ -3,6 +3,7 @@ title: "Valsecito de antes"
 date: "2016-11-30"
 original_url: https://tangosalbardo.blogspot.com/2016/11/valsecito-de-antes.html
 labels: ""
+tags: ["Homero Manzi"]
 ---
 
 Anoche lo estuve bailando una vez más en BIEN MILONGA, y confieso es uno de los que me retroceden en el tiempo y me llevan a una Buenos Aires enfundada en tangos, valsecitos y milongas, con aquellos tríos, dúos, cuartetos de guitarras y algún fueye, que pasaban por los cafés del barrio en la noche, o animaban las fiestas del sábados en algún patio emparrado, que me hacían soñar, porque yo era muy chico, y esas escenas me conmovían por dentro.

@@ -3,6 +3,7 @@ title: "La guitarrita"
 date: "2012-03-24"
 original_url: https://tangosalbardo.blogspot.com/2012/03/la-guitarrita.html
 labels: ""
+tags: ["Juan Carlos Cobián", "Pascual Contursi", "Eduardo Arolas", "Juan D'Arienzo", "Carlos Gardel", "José Martínez", "Miguel Caló"]
 ---
 
 Cuando el tango encontró por fin a su poeta en 1917, coincidió con el gran cantor que haría trascender esa poesía. Incluso a escala mundial.

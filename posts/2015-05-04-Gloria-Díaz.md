@@ -3,6 +3,7 @@ title: "Gloria Díaz"
 date: "2015-05-04"
 original_url: https://tangosalbardo.blogspot.com/2015/05/gloria-diaz.html
 labels: ""
+tags: ["Leopoldo Federico", "Florindo Sassone", "Osvaldo Pugliese", "Armando Pontier", "Hugo del Carril", "Roberto Rufino", "Carlos García", "Roberto Grela"]
 ---
 
 Retorno a la trinchera del tango después del fin de semana milonguero e ainda mais, y quiero traer hoy al blog a esta muchacha desaparecida de las marquesinas, oscurecida por el tiempo, pero que supo tener cartel de cantante de prima, a comienzos de los años setenta cuando el tango venía con bandera baja y con pocos seguidores fieles. Gloria Díaz había nacido en el Hospital Penna de Parque Patricios, cerquita de mi casa, pero aparecía como cantante de Bahía Blanca porque allí creció y comenzó su romance con el tango.

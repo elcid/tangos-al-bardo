@@ -3,6 +3,7 @@ title: "Un tango y nada más"
 date: "2018-12-21"
 original_url: https://tangosalbardo.blogspot.com/2018/12/un-tango-y-nada-mas.html
 labels: ""
+tags: ["Fulvio Salamanca", "Carlos Di Sarli", "Agustín Magaldi", "Juan D'Arienzo", "Julián Centeya", "Aníbal Troilo", "Héctor Varela", "Julio Martel"]
 ---
 
 Siento la necesidad de volver a traer a esta página, al fecundo poeta, locutor, presentador de orquestas típicas como la de Rodolfo Biagi, nochero, bohemio, que creó junto a Juan D'Arienzo, Héctor Varela, Fulvio Salamanca,Tito Ribero y otros compositores, páginas realmente valiosas y merecedoras de su recuerdo permanente. Me refiero a ese hijo de inmigrantes rusos, llamado Carlos Waiss, fallecido a sus 56 años, cuando su obra estaba en el candelero.

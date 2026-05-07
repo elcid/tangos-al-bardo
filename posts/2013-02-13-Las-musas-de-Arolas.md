@@ -3,6 +3,7 @@ title: "Las musas de Arolas"
 date: "2013-02-13"
 original_url: https://tangosalbardo.blogspot.com/2013/02/las-musas-de-arolas.html
 labels: ""
+tags: ["Manuel Buzón"]
 ---
 
 Fue grande entre los grandes, creador de melodías maravillosas cuando no sabía música y debía encargárselas a otros compañeros para que se las escribieran en el pentagrama. Murió muy joven, pero dejó una herencia impresionante en forma de partituras que siguen asombrando a los músicos profesionales, y constituyen toda una delicia para ellos. Como para los milongueros.

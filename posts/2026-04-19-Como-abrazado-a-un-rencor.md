@@ -3,6 +3,7 @@ title: "Como abrazado a un rencor"
 date: "2026-04-19"
 original_url: https://tangosalbardo.blogspot.com/2026/04/como-abrazao-un-rencor.html
 labels: ""
+tags: ["Francisco García Jiménez", "Horacio Salgán"]
 ---
 
 Conforta poder aludir a la modestia de nuestros músicos populares de la primera hora, viéndola reflejada en uno que continúa en la brecha de la era sin premios (y con apremios). Ha llegado a conquistar el halago que se traduce en cifras. De Rafael Rossi hablo hoy. Un hombre para el cual la suma de años no cuenta más que para las fórmulas de la vida civil, pues su estampa y espíritu siguen conservando una agilidad joven.

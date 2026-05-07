@@ -3,6 +3,7 @@ title: "Bien milonga"
 date: "2017-10-10"
 original_url: https://tangosalbardo.blogspot.com/2017/10/bien-milonga_10.html
 labels: ""
+tags: ["Alfredo De Angelis", "Francisco Canaro", "Alberto Echagüe", "Juan D'Arienzo", "Julio Martel", "Carlos Dante", "Charlo"]
 ---
 
 *Tu conoces el secreto de los tangos** *

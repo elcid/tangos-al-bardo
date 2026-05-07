@@ -3,6 +3,7 @@ title: "Mingo Sciaraffia"
 date: "2013-01-17"
 original_url: https://tangosalbardo.blogspot.com/2013/01/mingo-sciaraffia.html
 labels: ""
+tags: ["Alfredo De Angelis", "Feliciano Brunelli", "Celedonio Flores", "Cátulo Castillo", "Julio Camilloni", "Juan D'Arienzo", "Julio Martel", "Héctor Mauré"]
 ---
 
 En el tango militaron poetas, cantores y músicos que también calzaron los guantes de boxeo, y algunos destacaron en ese duro deporte: Cátulo Castillo, Celedonio Flores, Héctor Mauré o nuestro personaje de hoy Domingo Eduardo Sciaraffia.

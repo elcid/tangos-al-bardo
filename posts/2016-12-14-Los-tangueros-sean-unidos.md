@@ -3,6 +3,7 @@ title: "Los tangueros sean unidos"
 date: "2016-12-14"
 original_url: https://tangosalbardo.blogspot.com/2016/12/los-tangueros-sean-unidos.html
 labels: ""
+tags: ["Enrique Santos Discépolo", "Francisco García Jiménez", "José María Contursi", "Francisco Canaro", "Francisco Lomuto", "Adolfo Carabelli", "Osvaldo Fresedo", "Ricardo Tanturi"]
 ---
 
 *Los hermanos sean unidos*  * porque esa es la ley primera *  * tengan unión verdadera*  * en cualquier tiempo que sea *  * porque si entre ellos pelean*  * los devoran los de afuera.*   Martín Fierro

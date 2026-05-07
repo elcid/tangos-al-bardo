@@ -3,6 +3,7 @@ title: "Hermosa combinación"
 date: "2013-10-03"
 original_url: https://tangosalbardo.blogspot.com/2013/10/hermosa-combinacion.html
 labels: ""
+tags: ["Leopoldo Federico"]
 ---
 
 Se trata de la estampa clásica del tango, la que hemos vivido en nuestras carnes y en nuestro cuore tantas veces, durante tantos años.

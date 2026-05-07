@@ -3,6 +3,7 @@ title: "Bien milonga"
 date: "2021-11-09"
 original_url: https://tangosalbardo.blogspot.com/2021/11/bien-milonga_9.html
 labels: ""
+tags: ["Alberto Castillo", "Alberto Echagüe", "Ricardo Tanturi", "Juan D'Arienzo"]
 ---
 
 [![](https://blogger.googleusercontent.com/img/a/AVvXsEjPSowoj5ztkRsJN8ZHdLBhu1-C1azHPDSHk62Omm7IZGkpkvIFFDKzNskOkzK-I8TcflGZ9G4JodJqanQxtUnq7LCkwyrexmDjABP3ZzJxcaGBtTLYAPAbZFgMqn673UtbSdrHw5YNkChCUpk16bXtivRpi-Geed_ArkZiRWyIlIQfP1CPpvM_ogC2lA=w200-h200)](https://blogger.googleusercontent.com/img/a/AVvXsEjPSowoj5ztkRsJN8ZHdLBhu1-C1azHPDSHk62Omm7IZGkpkvIFFDKzNskOkzK-I8TcflGZ9G4JodJqanQxtUnq7LCkwyrexmDjABP3ZzJxcaGBtTLYAPAbZFgMqn673UtbSdrHw5YNkChCUpk16bXtivRpi-Geed_ArkZiRWyIlIQfP1CPpvM_ogC2lA=s564)

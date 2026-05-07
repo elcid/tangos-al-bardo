@@ -3,6 +3,7 @@ title: "D'Arienzo y Troilo"
 date: "2013-03-28"
 original_url: https://tangosalbardo.blogspot.com/2013/03/darienzo-y-troilo.html
 labels: ""
+tags: ["Juan D'Arienzo", "Alberto Marino", "Aníbal Troilo", "Juan Maglio"]
 ---
 
 Eran grandes rivales en las taquillas, pero a la vez grandes amigos en la vida. D'Arienzo comenzó a grabar en la RCA Víctor el 2 de julio de 1935. En Noviembre de ese año hizo algunos retoques para mejorar el sonido de su orquesta, y el día 18 de dicho mes Aníbal Troilo y Ciriaco Ortiz reforzaron la línea de bandoneones y grabaron con el *Rey del compás*, el tango de Juan Maglio *Pacho*: *Sábado inglés. *Acá los vemos, trenzados en un "desafío" a la paleta vasca en un frontón de la calle Reconquista entre Corrientes y Lavalle. D'Arienzo, Troilo, el árbitro, Vitale (representante de Pichuco) y Alberto Marino. Dos fenómenos en todo sentido. Pichuco cerraba los ojos, tecleaba suavecito, como si fuera el médium de un ángel que lo estaba haciendo en realidad y te estremecía el alma. Juan era un terremoto. Falopeaba a sus músicos a fuerza de meter manotazos empujándolos. Salamanca y Polito parecían tener cuatro manos.

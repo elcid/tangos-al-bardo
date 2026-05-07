@@ -3,6 +3,7 @@ title: "Carlos Bahr"
 date: "2014-07-23"
 original_url: https://tangosalbardo.blogspot.com/2014/07/carlos-bahr.html
 labels: ""
+tags: ["Fulvio Salamanca", "Armando Pontier", "Mercedes Simone", "Pedro Laurenz", "Floreal Ruiz", "Carlos Bahr", "José Basso"]
 ---
 
 Dentro del Parnaso de los poetas o letristas del tango, a lo largo de su historia, este vate ocupa un lugar importante, ganado a fuerza de calidad en su lunga producción. Es de lo que vienen a rebufo de los Manzi, Cátulo, Expósito, el *Catunga* Contursi, Celedonio, González Castillo, Discépolo, Le Pera, pero con laureles propios conseguidos en base a versos de cuidada elaboración, fácil recordación y que han entrado en el corazón de los tangueros.

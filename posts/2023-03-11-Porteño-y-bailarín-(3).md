@@ -3,6 +3,7 @@ title: "Porteño y bailarín (3)"
 date: "2023-03-11"
 original_url: https://tangosalbardo.blogspot.com/2023/03/porteno-y-bailarin-3.html
 labels: ""
+tags: ["Juan Carlos Copes", "María Nieves", "Ivo Pelay", "Virulazo"]
 ---
 
 **Los milongueros -hombres y mujeres- tienen códigos y ritos** que se van traspasando por generaciones. Al baile se va a milonguear, no a *levantar*. Los mejores jamás copian pasos de otros, en todo caso buscan mejorarlos. La competencia es motivadora y la personalidad es fundamental. En la época de oro, en el Club Atlético Huracán, por ejemplo, todos ocupaban *el lugar* que les correspondía.

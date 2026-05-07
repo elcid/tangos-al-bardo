@@ -3,6 +3,7 @@ title: "El tiempo pasa de largo..."
 date: "2025-10-07"
 original_url: https://tangosalbardo.blogspot.com/2025/10/el-tiempo-pasa-de-largo.html
 labels: ""
+tags: ["Carlos Bahr", "José Basso"]
 ---
 
 ... cuando te abrazo en un tango..

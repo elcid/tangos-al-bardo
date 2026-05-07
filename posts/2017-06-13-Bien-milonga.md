@@ -3,6 +3,7 @@ title: "Bien milonga"
 date: "2017-06-13"
 original_url: https://tangosalbardo.blogspot.com/2017/06/bien-milonga_13.html
 labels: ""
+tags: ["Juan D'Arienzo"]
 ---
 
 *Qué linda noche, tu cabellera suelta,*

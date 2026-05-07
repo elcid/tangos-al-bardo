@@ -3,6 +3,7 @@ title: "El aguacero"
 date: "2020-09-18"
 original_url: https://tangosalbardo.blogspot.com/2020/09/el-aguacero.html
 labels: ""
+tags: ["José González Castillo", "Libertad Lamarque", "Armando Pontier", "Cátulo Castillo", "Mercedes Simone", "Susana Rinaldi", "Homero Manzi", "Nelly Omar"]
 ---
 
 En mi última página hablaba de Cátulo Castillo y de ese patriarca del barrio de Boedo que fue su progenitor: Don José González Castillo. Periodista, hombre de teatro, poeta, dramaturgo, que cumplió una función vital del tango, por la evolución de la poesía, elevándola a un rango superior. El hecho de vivir en un barrio popular también le sirvió para pintar esas imágenes entrañables que habitan sus versos. Nacido en Rosario, criado en Salta, llegó a la Capital y se dedicó al periodismo.

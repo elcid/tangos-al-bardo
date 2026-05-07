@@ -3,6 +3,7 @@ title: "El Cachafaz"
 date: "2014-04-23"
 original_url: https://tangosalbardo.blogspot.com/2014/04/el-cachafaz.html
 labels: ""
+tags: ["Francisco Canaro", "Vicente Greco", "Carlos Gardel", "Manuel Romero", "José Martínez", "Anselmo Aieta", "Pedro Maffia"]
 ---
 
 Sus mentas de bailarín trascendieron a su tiempo y siempre se lo recuerda, aunque no haya documentos fílmicos que lo muestren en plenitud. Apenas un par de apariciones brevísimas en las películas* Tango* (1933), y *Carnavales de antaño* (1940). En la primera baila con una jovencita Carmencita Calderón y en la otra dirigida por Manuel Romero, con Sofía Bozán, que no era bailarina.

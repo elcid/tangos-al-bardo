@@ -3,6 +3,7 @@ title: "Otra armónica para el tango"
 date: "2012-09-14"
 original_url: https://tangosalbardo.blogspot.com/2012/09/otra-armonica-para-el-tango.html
 labels: ""
+tags: ["Hugo Díaz"]
 ---
 
 Y tenía que venir de Santiago del Estero como el inolvidable Hugo Díaz, ese negro que me hizo reír tanto con sus chistes, porque era un fenómeno contándolos.

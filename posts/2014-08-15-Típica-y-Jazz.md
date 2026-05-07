@@ -3,6 +3,7 @@ title: "Típica y Jazz"
 date: "2014-08-15"
 original_url: https://tangosalbardo.blogspot.com/2014/08/tipica-y-jazz.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Eugenio Nóbile", "Alfredo Gobbi", "Mariano Mores", "Oscar Alemán"]
 ---
 
 Con esta combineta pasamos hermosos momentos en aquellas veladas que ofrecían los clubes y las confiterías céntricas. Uno iba por la típica, pero el complemento no sólo servía para que los muchachos de la orquesta descansaran un rato y tomaran fuerzas para el resto de la noche, sino que además, con la jazz nos sacábamos el almidón, aflojábamos la percha y la pasábamos muy bien.

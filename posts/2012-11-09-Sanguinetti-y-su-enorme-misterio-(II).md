@@ -3,6 +3,7 @@ title: "Sanguinetti y su enorme misterio (II)"
 date: "2012-11-09"
 original_url: https://tangosalbardo.blogspot.com/2012/11/horacio-sanguinetti-ii.html
 labels: ""
+tags: ["Leopoldo Federico", "Osvaldo Pugliese", "Cátulo Castillo", "Julio Sosa"]
 ---
 
 El artículo sobre este pulcro y prolífico poeta del tango, cuya misteriosa desaparición en pleno éxito, podría dar lugar a una exigente investigación, rastreando su vida en Uruguay, me permitió recibir noticias de varias personas sobre el mismo. Conté que hacia allí debió cruzar el río ayudado por varios grandes personajes del tango para huir de la justicia por haber matado a su cuñado, que para colmo era militar.

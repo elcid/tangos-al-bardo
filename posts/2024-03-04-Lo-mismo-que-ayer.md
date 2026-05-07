@@ -3,6 +3,7 @@ title: "Lo mismo que ayer"
 date: "2024-03-04"
 original_url: https://tangosalbardo.blogspot.com/2024/03/lo-mismo-que-ayer.html
 labels: ""
+tags: ["Alberto Echagüe", "Aníbal Troilo", "Héctor Varela", "Juan Maglio"]
 ---
 
 Hoy nos toca hablar de Juan D’Arienzo, “El rey del compás” como lo bautizara acertadamente “El Príncipe cubano” (Ángel Sánchez Carreño) y los milongueros sabemos cuánta importancia ha tenido y tiene esta orquesta para los bailarines. Cuando suena su ritmo contagioso, golpeando en los cuatro tiempos del compás, los pies despegan acelerada y rítmicamente en la pista convertida en un remolino.

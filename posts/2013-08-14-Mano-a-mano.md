@@ -3,6 +3,7 @@ title: "Mano a mano"
 date: "2013-08-14"
 original_url: https://tangosalbardo.blogspot.com/2013/08/mano-mano.html
 labels: ""
+tags: ["Francisco Canaro", "Pascual Contursi", "Edmundo Rivero", "Rosita Quiroga", "Carlos Gardel"]
 ---
 
 Forma parte de la decena de tangos cantados, que son conocidos desde años en el mundo entero y que han sido modelo de muchos otros, por su envergadura, su polenta y la magistral creación de esos versos *lunfas* que hizo Celedonio, abriendo juego con el octosílabo inmortal: *Rechiflao en mi tristeza.*

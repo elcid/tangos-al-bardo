@@ -3,6 +3,7 @@ title: "Leo Lipesker"
 date: "2017-05-17"
 original_url: https://tangosalbardo.blogspot.com/2017/05/leo-lipesker.html
 labels: ""
+tags: ["Leopoldo Federico", "Roberto Rufino", "Julio De Caro", "Reinaldo Yiso", "Mariano Mores", "José Bragato", "Pedro Maffia", "Miguel Caló"]
 ---
 
 Se llamaba León Lipezker, era hijo de un matimonio ruso de Odessa que llegó a Rosario, Argentina, escapando de las penurias europeas del momento y donde tendrían seis descendientes, de los cuales cuatro se dedicaron con éxito a la música: Félix, León (que le quitaría artísticamente la ene final a su apellido). Santos y Freddy. Los dos últimos se deicaron preferentemente al jazz, aunque el popular Santos Lipesker, tocara el bandoneón, escribiera algunos tangos, militara en orquestas y grabara también esta música.

@@ -3,6 +3,7 @@ title: "Dos títulos: el mismo tango"
 date: "2014-08-03"
 original_url: https://tangosalbardo.blogspot.com/2014/08/dos-titulos-el-mismo-tango.html
 labels: ""
+tags: ["Francisco Canaro", "Adolfo Carabelli", "Osvaldo Pugliese", "Alberto Echagüe", "Mercedes Simone", "Alberto Marino", "Juan D'Arienzo", "Aníbal Troilo"]
 ---
 
 Ayer estuve de asado y piscina. Sábado maravilloso. Los choripanes estaban geniales y el asadito... pa'seguirla hasta la madrugada. Encima, regado con un vino rosado frío súper, y para el segundo tiempo nos obsequiamos, gracias a la gentileza de la dueña de casa, un Gran Reserva especial *Pesquera*, de Ribera del Duero, que es toda una delicia de la Diosa natura.

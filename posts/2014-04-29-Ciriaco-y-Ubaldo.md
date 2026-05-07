@@ -3,6 +3,7 @@ title: "Ciriaco y Ubaldo"
 date: "2014-04-29"
 original_url: https://tangosalbardo.blogspot.com/2014/04/ciriaco-y-ubaldo.html
 labels: ""
+tags: ["Enrique Delfino", "Ubaldo De Lío"]
 ---
 
 Estos genios se sentaban un rato a jugar con sus intrumentos y la armaban en grande. Épocas maravillosas de aquella bohemia interminable, que todos los que tuvimos la suerte de poder vivirla la llevamos prendida en el cuore, como el abrojito que cantaba Morán.

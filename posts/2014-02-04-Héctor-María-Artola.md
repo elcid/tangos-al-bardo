@@ -3,6 +3,7 @@ title: "Héctor María Artola"
 date: "2014-02-04"
 original_url: https://tangosalbardo.blogspot.com/2014/02/hector-maria-artola.html
 labels: ""
+tags: ["Luis Adolfo Sierra", "Libertad Lamarque", "Francisco Canaro", "Eduardo Arolas", "Alberto Marino", "Homero Manzi", "Carlos Bahr"]
 ---
 
 Músico de formación completa, que comenzó tocando piano, órgano y flautín y eligió finalmente el bandoneón para dar rienda suelta a su inspiración, también está considerado junto a Argentino Galván como piedra fundamental en la evolución técnica de la música escrita.

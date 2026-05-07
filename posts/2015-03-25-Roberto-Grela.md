@@ -3,6 +3,7 @@ title: "Roberto Grela"
 date: "2015-03-25"
 original_url: https://tangosalbardo.blogspot.com/2015/03/roberto-grela.html
 labels: ""
+tags: ["Francisco Gorrindo", "Leopoldo Federico", "Alberto Podestá", "Cátulo Castillo", "Eduardo Arolas", "Alberto Marino", "Edmundo Rivero", "Aníbal Troilo"]
 ---
 
 Aunque he hablado en anteriores notas del Blog, sobre este enorme guitarrista del barrio de San Telmo, lo he hecho por sus colaboraciones con Aníbal Troilo, Leopoldo Federico o Pepe Libertella. Estos dos últimos estaban sentados en mesas aledañas de un boliche nuevo muy lindo que se inaguraba hace unos diez años en San Telmo. Y yo estaba en la vecina a Libertella. Y escuchaba cómo se reía el Tano con las salidas de Grela. Esa noche actuaban el quinteto de Carlos Buono y Alberto Podestá.

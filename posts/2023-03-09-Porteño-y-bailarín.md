@@ -3,6 +3,7 @@ title: "Porteño y bailarín"
 date: "2023-03-09"
 original_url: https://tangosalbardo.blogspot.com/2023/03/porteno-y-bailarin.html
 labels: ""
+tags: ["Juan D'Arienzo"]
 ---
 
 ** Al compás del corazón**

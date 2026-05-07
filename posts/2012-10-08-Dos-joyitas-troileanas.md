@@ -3,6 +3,7 @@ title: "Dos joyitas troileanas"
 date: "2012-10-08"
 original_url: https://tangosalbardo.blogspot.com/2012/10/dos-joyitas-troileanas.html
 labels: ""
+tags: ["Eduardo Arolas", "Aníbal Troilo", "Agustín Bardi", "Julio De Caro", "Julián Plaza", "Orlando Goñi", "Raúl Garello"]
 ---
 
 A Pichuco le gustó desde el primer día mostrar sus preferencias musicales. Lo hizo al grabar su primer disco de 78rpm. De un lado tenía *Tinta verde* de Agustín Bardi y del otro: *Comme il faut* de Eduardo Arolas. Toda una definición de alta tanguidad.

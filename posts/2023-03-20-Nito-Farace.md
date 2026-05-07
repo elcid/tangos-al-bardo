@@ -3,6 +3,7 @@ title: "Nito Farace"
 date: "2023-03-20"
 original_url: https://tangosalbardo.blogspot.com/2023/03/nito-farace.html
 labels: ""
+tags: ["Osvaldo Fresedo", "Edmundo Rivero", "Julio De Caro"]
 ---
 
 En su cara se observa una sonrisa constante, se sienta y antes que le pregunten algo, comienza a hablar solo. Sus palabra fluyen sin cesar, como si la última vez que hubiese visto a Troilo hubiera sido hace unos días. Nito Farace tuvo el honor, dice de tocar con Pichuco, y los primero que sale de su boca es:

@@ -3,6 +3,7 @@ title: "El lunfa veterano"
 date: "2012-04-24"
 original_url: https://tangosalbardo.blogspot.com/2012/04/el-lunfa-veterano.html
 labels: ""
+tags: ["José María Otero", "Miguel Zotto", "Virulazo"]
 ---
 
 [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEizSUicH29rgM4jMSK8_q_RGeX2JBLy29PezU-HYX6FIXJXdiuTtorXFKamXgjT31mdkNWfNzTl21u6osL_mXPIKlMkSwhoCsVBDUP9k-hOdyeGRE-vXNn83yuGVr8Yl8P4MOjzkiUWYZCu/s320/Pareja+de+tango.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEizSUicH29rgM4jMSK8_q_RGeX2JBLy29PezU-HYX6FIXJXdiuTtorXFKamXgjT31mdkNWfNzTl21u6osL_mXPIKlMkSwhoCsVBDUP9k-hOdyeGRE-vXNn83yuGVr8Yl8P4MOjzkiUWYZCu/s1600/Pareja+de+tango.jpg) Dibujo de Ricardo Sendra

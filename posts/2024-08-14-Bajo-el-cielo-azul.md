@@ -3,6 +3,7 @@ title: "Bajo el cielo azul"
 date: "2024-08-14"
 original_url: https://tangosalbardo.blogspot.com/2024/08/bajo-el-cielo-azul.html
 labels: ""
+tags: ["Francisco Lomuto", "Francisco Canaro", "Ángel Villoldo", "Ivo Pelay"]
 ---
 
 Este valsecito de Ivo Pelay y Francisco Canaro nació en 1941, creado por ambos para la obra teatral "La historia del tango". Lo cantaba Francisco Amor que interpretaba el papel de Ángel Villoldo en la misma. Y sigue haciéndonos disfrutar en la pista al ritmo que le da *Pirincho* Canaro con su orquesta, o Francisco Lomuto que lo llevó al disco con su cantor Fernando Díaz.

@@ -3,6 +3,7 @@ title: "Discépolo, el viajero (I)"
 date: "2021-01-20"
 original_url: https://tangosalbardo.blogspot.com/2021/01/discepolo-el-viajero-i.html
 labels: ""
+tags: ["Enrique Santos Discépolo", "Azucena Maizani", "Alfredo Le Pera"]
 ---
 
 Dijo una vez Enrique Santos Discépolo, radiografiándose íntima y metafóricamente: *"Yo tengo alma de valija, pero de valija que vuelve... Mi vida, en realidad, fue siempre eso: un ir y un volver... soy "boomerang" por temperamento... Como los criminales, como los novios y como los cobradores, yo regreso siempre..." .** *Habrá que recordar siempre, que Discépolo tenía 5 años de edad cuando fallece su padre. Y en 1910 queda huérfano al morir su madre. Contaba apenas 9 años. Va a parar a la casa de una familia distinta a la suya, donde se siente ajeno a sus costumbres, distinto y desdichado. Cuando su hermano Armando se casa, lo lleva a vivir con ellos y allí encontrará su primera pasión por el teatro, las letras y un rumbo a su vida.  Dejará sus estudios de Magisterio y años más tarde recordará aquellos tiempos:*-Lo que perdí de aprender en el colegio, lo recuperé en la calle, en la vida. Tal vez allí, en ese tiempo tan lejano y hermoso, tal vez allí haya empezado a masticar las letras de mis canciones:..*

@@ -3,6 +3,7 @@ title: "Mario Pomar o Mario Corrales"
 date: "2012-05-26"
 original_url: https://tangosalbardo.blogspot.com/2012/05/mario-pomar-o-mario-corrales.html
 labels: ""
+tags: ["Enrique Santos Discépolo", "Francisco Rotundo", "Joaquín Do Reyes", "Carlos Di Sarli", "Osmar Maderna", "Miguel Caló", "Mario Pomar"]
 ---
 
 Este cantor que en 1950 se incorporó a la orquesta de Carlos Di Sarli, traía en sus alforjas una amplia hoja de servicios desde que en 1938 arrancara en el conjunto del fueye Federico Scorticatti.

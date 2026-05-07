@@ -3,6 +3,7 @@ title: "Aquellas yuntas de cantores"
 date: "2020-10-31"
 original_url: https://tangosalbardo.blogspot.com/2020/10/aquellas-yuntas-de-cantores.html
 labels: ""
+tags: ["Alfredo De Angelis", "Juan Carlos Cobián", "Francisco Canaro", "Osvaldo Pugliese", "Osvaldo Fresedo", "Alberto Echagüe", "Carlos Di Sarli", "Enrique Campos"]
 ---
 
 El tango ha ido evolucionando desde su creación en forma ininterrumpida, con las lógicas etapas de estacionamiento, en forma de creaciones, éxitos, arrastre de determinadas orquestas, ventas exitosas de discos y demás. La década del cuarenta, señalada uniformemente como la de explosión definitiva y consagratoria del género, en orquestas, cantores, poetas, compositores, páginas inoxidables y captación de público, permitió que el tango siga rindiéndole culto a aquellos registros discográficos. Y a la memoria de directores de orquesta, a las voces que heredaron el halo gardeliano y a esos sonidos atrapados en la memoria.

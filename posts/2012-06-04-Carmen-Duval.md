@@ -3,6 +3,7 @@ title: "Carmen Duval"
 date: "2012-06-04"
 original_url: https://tangosalbardo.blogspot.com/2012/06/carmen-duval.html
 labels: ""
+tags: ["Leopoldo Federico", "Mercedes Simone", "Horacio Salgán", "Anselmo Aieta"]
 ---
 
 Fue una de las más importantes cancionistas que nutrieron los micrófonos y las marquesinas tangueras en la segunda mitad de la década del treinta y en la gloriosa del cuarenta.

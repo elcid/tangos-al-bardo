@@ -3,6 +3,7 @@ title: "Mi noche triste"
 date: "2012-09-03"
 original_url: https://tangosalbardo.blogspot.com/2012/09/mi-noche-triste.html
 labels: ""
+tags: ["Pascual Contursi", "Osvaldo Pugliese", "Homero Expósito", "Carlos Gardel", "Roberto Firpo"]
 ---
 
 Más o menos estamos todos enterados que con este tango de Samuel Castriota, al que puso versos por su cuenta y riesgo Pascual Contursi -sin que de ello estuviese informado el compositor-, nació prácticamente el Tango-canción. La *cancionística*, según feliz expresión de Homero Expósito.

@@ -3,6 +3,7 @@ title: "Rodolfo Galé"
 date: "2023-08-24"
 original_url: https://tangosalbardo.blogspot.com/2023/08/rodolfo-gale.html
 labels: ""
+tags: ["Florindo Sassone", "Francisco Canaro", "Carlos Di Sarli", "Jorge Caldara", "Jorge Durán", "Carlos Bahr", "José Basso"]
 ---
 
 Lo vi cantar cuando yo era un pibe, allá en Mendoza. Pasaba las vacaciones del Colegio en casa de mis tíos, en Godoy Cruz y mis dos primos -que eran mayores- me llevaban a las milongas de aquella provincia. Recuerdo que estuvimos con la orquesta de Pugliese y me perdí la de D'Arienzo porque justo esa noche festejamos el cumpleaños de mi tía.

@@ -3,6 +3,7 @@ title: "Almanaque de ilusión"
 date: "2024-02-25"
 original_url: https://tangosalbardo.blogspot.com/2024/02/almanaque-de-ilusion.html
 labels: ""
+tags: ["Héctor Marcó"]
 ---
 
 Héctor Marcó fue cantor, compositor, poeta, y dejó un groso reguero de páginas porque su reto era el de reinventarse, y la imaginación la trasladó a partituras que viborearon en los atriles de orquestas y cantantes. Se inspiró tanto en la interminable sustracción del amor, como en esas callecitas con olor de pizza y asado en que fue transcurriendo su vida tanguera.

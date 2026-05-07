@@ -3,6 +3,7 @@ title: "Ángel Villoldo"
 date: "2018-09-20"
 original_url: https://tangosalbardo.blogspot.com/2018/09/angel-villoldo.html
 labels: ""
+tags: ["Carlos Di Sarli", "Ángel Villoldo", "Alfredo Gobbi", "Miguel Caló"]
 ---
 
 Fue consagrado como "El Papá del tango" por sus creaciones que lo muestran como un gran adelantado a su tiempo, aunque si nos basáramos sencillamente en **El choclo**, uno de los más conocidos en el mundo entero, solamente opacado por* La cumparsita*, podríamos calificarlo como "El Profeta del tango". Y vale la pena tener en cuenta que Villoldo lo pergeñó en 1903, cuando la música popular porteña recién estaba buscando sus formas.

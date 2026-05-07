@@ -3,6 +3,7 @@ title: "Pedro Laurenz"
 date: "2012-06-28"
 original_url: https://tangosalbardo.blogspot.com/2012/06/pedro-laurenz.html
 labels: ""
+tags: ["Luis Petrucelli", "Eduardo Arolas", "Julio De Caro", "Pedro Laurenz", "Pedro Maffia"]
 ---
 
 Si Eduardo Arolas con su despliegue emocional y Arturo Bernstein con sus conocimientos musicales y su serenidad inmutable, sentaron las bases de la escuela del fueye, no cabe duda alguna que Pedro Laurenz y Pedro Maffia fueron quienes las llevaron a una altura catedrática y sirvieron de ejemplo a las generaciones posteriores.

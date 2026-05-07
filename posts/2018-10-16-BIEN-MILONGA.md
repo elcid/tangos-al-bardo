@@ -3,6 +3,7 @@ title: "BIEN MILONGA"
 date: "2018-10-16"
 original_url: https://tangosalbardo.blogspot.com/2018/10/bien-milonga_16.html
 labels: ""
+tags: ["Francisco Canaro", "Juan D'Arienzo"]
 ---
 
 [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgTDIBVVr0YHCMS-W5HWKh-hClH6YgaoR_MgwkARpX79pOTDDoWmBqbX52AZY70eC_r3TkLymTiMn4JCFmHSzAhbCoTrTFL4orx6pjBH-rQ2eH1hTTJJE7c08ymJxuVZlrOLi_jTQVofln_/s200/40970302_246272952745350_6965441540830393312_n.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgTDIBVVr0YHCMS-W5HWKh-hClH6YgaoR_MgwkARpX79pOTDDoWmBqbX52AZY70eC_r3TkLymTiMn4JCFmHSzAhbCoTrTFL4orx6pjBH-rQ2eH1hTTJJE7c08ymJxuVZlrOLi_jTQVofln_/s1600/40970302_246272952745350_6965441540830393312_n.jpg) *Bailar un tango con vos, firuleteado*

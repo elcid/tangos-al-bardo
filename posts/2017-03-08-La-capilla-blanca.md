@@ -3,6 +3,7 @@ title: "La capilla blanca"
 date: "2017-03-08"
 original_url: https://tangosalbardo.blogspot.com/2017/03/la-capilla-blanca.html
 labels: ""
+tags: ["Leopoldo Federico", "Carlos Di Sarli", "Alberto Podestá", "Roberto Rufino", "Héctor Marcó", "Mario Pomar"]
 ---
 
 Carlos Di Sarli no fue muy prolífico en cuanto a su tarea de compositor, pese a que, si analizamos su obra, encontramos páginas realmente hermosas y que han superado el agotamiento del calendario. Le daba muchas vueltas al tema que tuviera entre manos, y a su maravilloso* Bahía Blanca*, por ejemplo, tardó unos veinte años en darle el toque definitivo, en 1957, que encandiló a todo el mundo.

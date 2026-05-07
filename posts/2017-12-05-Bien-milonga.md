@@ -3,6 +3,7 @@ title: "Bien milonga"
 date: "2017-12-05"
 original_url: https://tangosalbardo.blogspot.com/2017/12/bien-milonga.html
 labels: ""
+tags: ["Alberto Echagüe", "Pedro Laurenz"]
 ---
 
 *Seguí... seguí muchacha seguí** *

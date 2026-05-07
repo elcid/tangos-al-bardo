@@ -3,6 +3,7 @@ title: "Enrique Alessio"
 date: "2015-05-01"
 original_url: https://tangosalbardo.blogspot.com/2015/05/enrique-alessio.html
 labels: ""
+tags: ["Libertad Lamarque", "Eduardo Del Piano", "Osvaldo Pugliese", "Fulvio Salamanca", "Alberto Castillo", "Alberto Echagüe", "Eduardo Arolas", "Alberto Marino"]
 ---
 
 Hoy quiero ocuparme de este excelente bandoneonista, compositor y director, que pasó con su fueye por dos orquestas tan disímiles como las de Osvaldo Pugliese, en su arranque, y la de Juan D'Arienzo, donde debió suceder a un fenómeno del instrumento que parecía tener 20 dedos: Héctor Varela. Y tanto en una como en otra formación aquilató sus méritos de músico muy bien formado, capaz de ahormarse del mismo modo en orquestas de tal calibre, dejando en ambas su sello de bandoneón de fuste. Había estudiado con Alejandro Junnissi y su talento hizo el resto.

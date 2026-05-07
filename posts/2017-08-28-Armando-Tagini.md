@@ -3,6 +3,7 @@ title: "Armando Tagini"
 date: "2017-08-28"
 original_url: https://tangosalbardo.blogspot.com/2017/08/armando-tagini.html
 labels: ""
+tags: ["Francisco García Jiménez", "José María Contursi", "Enrique Rodríguez", "Luis Petrucelli", "Eladia Blázquez", "Cátulo Castillo", "Homero Expósito", "Alberto Marino"]
 ---
 
 Por una razón cultural y lógica, para que llegaran al tango poetas de la envergadura de Homero Manzi, Cátulo Castillo, José María Contursi, Homero Expósito o Eladia Blázquez, por ejemplo, antes tenían que haber tallado los adelantados para explotar la fuerza mineral de la palabra, los costumbrismos de la ciudad feérica, el substrato que crece en los suburbios afiliándose a la raíz de la música popular por excelencia.

@@ -3,6 +3,7 @@ title: "Adiós arrabal"
 date: "2025-06-30"
 original_url: https://tangosalbardo.blogspot.com/2025/06/adios-arrabal.html
 labels: ""
+tags: ["Julio De Caro"]
 ---
 
 Este tango cuyos versos se sumergen en el suburbio, sigue goteando en nuestros cuores, bailándolo en las milongas o escuchándolo en el ordenador y el reproductor. Porque tiene todos esos matices que hemos conocido en nuestros barrios porteños, en el suburbio y en aquel sustrato bohemio, aniquilado por la globalización materialista y el adoquinado bacheado por el tiempo.

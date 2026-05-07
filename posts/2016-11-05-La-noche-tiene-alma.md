@@ -3,6 +3,7 @@ title: "La noche tiene alma "
 date: "2016-11-05"
 original_url: https://tangosalbardo.blogspot.com/2016/11/la-noche-tiene-un-alma-iluminada.html
 labels: ""
+tags: ["Francisco Canaro", "Alberto Echagüe", "Juan D'Arienzo", "Héctor Varela", "Charlo"]
 ---
 
 * Llueve...*

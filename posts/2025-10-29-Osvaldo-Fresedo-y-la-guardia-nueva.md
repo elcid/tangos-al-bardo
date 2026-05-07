@@ -3,6 +3,7 @@ title: "Osvaldo Fresedo y la guardia nueva"
 date: "2025-10-29"
 original_url: https://tangosalbardo.blogspot.com/2025/10/osvaldo-fresedo-y-la-guardia-nueva.html
 labels: ""
+tags: ["Luis Adolfo Sierra", "Osvaldo Fresedo", "Augusto Berto", "Pedro Maffia"]
 ---
 
 Entrevistado por el autor, en su domicilio de la calle Eduardo Madero, de la localidad de Martínez, Provincia de Buenos Aires, el 14 de agosto de 1973.

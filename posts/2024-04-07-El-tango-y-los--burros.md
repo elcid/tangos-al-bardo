@@ -3,6 +3,7 @@ title: "El tango y los \"burros\""
 date: "2024-04-07"
 original_url: https://tangosalbardo.blogspot.com/2024/04/el-tango-y-los-burros.html
 labels: ""
+tags: ["José María Otero", "Celedonio Flores", "Alberto Castillo", "Osvaldo Pugliese", "Alberto Gómez", "Aníbal Troilo", "Alberto Morán", "Manuel Romero"]
 ---
 
 Gardel fue el primero que entró a cantarle a su gran afición: los* tungos* de carrera. Y lo hizo con la misma pasión que ponía en las tribunas de la arena de “Molerpa” cuando alentaba al pingo en el cual había depositado su confianza y sus mangos. **Leguisamo solo, Palermo, La catedrática, Soy una fiera, Canchero, Bajo Belgrano, Polvorín, Pan comido o Preparate p’al domingo** son una clara muestra de su predilección por este deporte de apuestas que nos legaron los ingleses.

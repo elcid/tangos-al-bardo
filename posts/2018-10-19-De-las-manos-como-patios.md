@@ -3,6 +3,7 @@ title: "De las manos como patios"
 date: "2018-10-19"
 original_url: https://tangosalbardo.blogspot.com/2018/10/de-las-manos-como-patios.html
 labels: ""
+tags: ["Horacio Ferrer", "Aníbal Troilo", "Pedro Maffia"]
 ---
 
 Kilómetro y medio separa al Italiano del Hospital de Niños, donde sesenta años antes, siguiendo a sus hermanos Marcos y a la Chochita muerta de brazos, hijo de Aníbal Carmelo Troilo y de Felisa Bagnolo, nace Aníbal Troilo, llamado Pichuco.

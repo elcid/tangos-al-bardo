@@ -3,6 +3,7 @@ title: "Barrio de tango"
 date: "2024-02-01"
 original_url: https://tangosalbardo.blogspot.com/2024/02/barrio-de-tango.html
 labels: ""
+tags: ["Francisco Fiorentino", "Eduardo Del Piano", "Roberto Goyeneche", "Alberto Castillo", "Osvaldo Pugliese", "Osvaldo Fresedo", "Ricardo Tanturi", "Roberto Rufino"]
 ---
 
 *...y a lo lejos la voz de un bandoneón*....

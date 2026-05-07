@@ -3,6 +3,7 @@ title: "Víctor Braña"
 date: "2013-04-04"
 original_url: https://tangosalbardo.blogspot.com/2013/04/victor-brana.html
 labels: ""
+tags: ["Juan Carlos Cobián", "Domingo Federico", "Fulvio Salamanca", "José Colángelo", "Reinaldo Yiso", "Carlos Dante", "Miguel Caló"]
 ---
 
 Es uno de esos nombres que están escondidos en un segundo plano dentro de las enciclopedias tangueras, pero que realizó aportes muy interesantes en este campo y merece ser recordado en el blog, que pretende hacer justicia con los olvidados.

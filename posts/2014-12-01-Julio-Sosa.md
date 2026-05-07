@@ -3,6 +3,7 @@ title: "Julio Sosa"
 date: "2014-12-01"
 original_url: https://tangosalbardo.blogspot.com/2014/12/julio-sosa.html
 labels: ""
+tags: ["Leopoldo Federico", "Francisco Rotundo", "Alberto Podestá", "Hugo del Carril", "Julio Sosa"]
 ---
 
 Hace menos de una semana, el 26 de noviembre, se cumplió un nuevo aniversario del fallecimiento de este cantor uruguayo, al cual el periodista Ricardo Gasparini, de la CBS Columbia le soldó el definitivo y muy ajustado alias artístico de "*El varón del tango*". Acertado además por su estilo, que tan bien transmitía las letras que interpretaba, y porque supo pelearla y ganar batallas cuando el tango estaba en un bache tremendo, como ocurre en algunas etapas de su historia.

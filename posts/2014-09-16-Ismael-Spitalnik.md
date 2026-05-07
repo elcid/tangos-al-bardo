@@ -3,6 +3,7 @@ title: "Ismael Spitalnik"
 date: "2014-09-16"
 original_url: https://tangosalbardo.blogspot.com/2014/09/ismael-spitalnik.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Ismael Spitalnik", "Víctor Lavallén", "Hugo del Carril", "Horacio Salgán", "Edmundo Rivero", "Aníbal Troilo", "Alfredo Gobbi"]
 ---
 
 Ese tangazo que compuso a principios de la década del cincuenta, me sigue sirviendo para darle nombre a la Milonga que tengo en Madrid y que lleva precisamente el nombre de su creación: **Bien milonga.** Lo grabaron magistralmente tanto la orquesta de Aníbal Troilo como la de Osvaldo Pugliese y en ambos casos hizo el arreglo del mismo. Además, en ese momento integraba el formidable cuarteto de bandoneones de la orquesta de Pugliese junto a Víctor Lavallén, Mario Demarco y el *Tano* Ruggiero.

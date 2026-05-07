@@ -3,6 +3,7 @@ title: "Con Pichuco"
 date: "2017-02-06"
 original_url: https://tangosalbardo.blogspot.com/2017/02/con-pichuco.html
 labels: ""
+tags: ["Aníbal Troilo", "María Nieves", "Homero Manzi"]
 ---
 
 Es uno de los tantos hermosos regalos que sirven para exorcizar recuerdos de momentos inolvidables, de noches interminables, llenas de música y emociones que anclarían en mi espíritu. Y también, invoca pantallazos de las veces que estuve sentado en la mesa con Aníbal Troilo, por deferencia suya, aunque lo hacía con toda naturalidad y sin el menor esfuerzo.

@@ -3,6 +3,7 @@ title: "Barrio de tango"
 date: "2023-10-06"
 original_url: https://tangosalbardo.blogspot.com/2023/10/barrio-de-tango.html
 labels: ""
+tags: ["Alfredo Le Pera", "Carlos Gardel", "Ángel Vargas"]
 ---
 
 Vuelvo otra vez con los barrios porteños y lo que representaron para la fundación, preservación, crecimiento y un desarrollo sostenido que lo llevó a la épica de los años cuarenta y cincuenta del tango. Cuando alcanzó su grado máximo de emotividad con los destellos creativos de poetas, músicos, compositores, cantores y directores de orquestas que nos vuelcan en la alucinación de la añoranza perpetua.

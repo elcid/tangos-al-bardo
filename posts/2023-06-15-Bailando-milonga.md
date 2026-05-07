@@ -3,6 +3,7 @@ title: "Bailando milonga"
 date: "2023-06-15"
 original_url: https://tangosalbardo.blogspot.com/2023/06/bailando-milonga.html
 labels: ""
+tags: ["Sebastián Piana"]
 ---
 
 *"Para bailar esta milonga, / hay que tener primeramente / una buena compañera / que sienta en el alma / el ritmo de fuego así…" *

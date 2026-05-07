@@ -3,6 +3,7 @@ title: "El fueye de Laurenz"
 date: "2013-02-28"
 original_url: https://tangosalbardo.blogspot.com/2013/02/el-fueye-de-laurenz.html
 labels: ""
+tags: ["José María Contursi", "Osvaldo Pugliese", "José Colángelo", "Pedro Laurenz", "José Rótulo"]
 ---
 
 Mi experiencia milonguera me permite afirmar que el bandoneón de ese maestro enorme que fue Pedro Laurenz (*né* Pedro Blanco Acosta), es el único que en la pista me guía por encima del piano, inclusive.

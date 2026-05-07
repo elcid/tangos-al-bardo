@@ -3,6 +3,7 @@ title: "Las variaciones de La cumparsita"
 date: "2013-03-24"
 original_url: https://tangosalbardo.blogspot.com/2013/03/las-variaciones-de-la-cumparsita.html
 labels: ""
+tags: ["Enrique Rodríguez", "Juan D'Arienzo"]
 ---
 
 Las variaciones constituyen una parte fundamental del tango y los que que debemos interpretarlas en la pista, sabemos muy bien el efecto que producen en nuestro ánimo y en nuestras piernas, aunque desde hace años se haya atenuado en bailarines y profesores, esa potencia transmisora que tienen.

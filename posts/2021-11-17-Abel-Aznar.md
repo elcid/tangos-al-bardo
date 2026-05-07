@@ -3,6 +3,7 @@ title: "Abel Aznar"
 date: "2021-11-17"
 original_url: https://tangosalbardo.blogspot.com/2021/11/abel-aznar.html
 labels: ""
+tags: ["Florindo Sassone", "Osvaldo Pugliese", "Carlos Di Sarli", "Azucena Maizani", "Horacio Ferrer", "Héctor Varela", "Reinaldo Yiso", "Juan Maglio"]
 ---
 
 Se llamaba Mariano Abel Aznar. Autor, Compositor. Nació en la localidad de Libertad, Partido de Merlo, Provincia de Buenos Aires, el 26 de junio de 1913. Falleció el 5 de marzo de 1983. Su padre, aragonés, tocaba la guitarra y el bandoneón y era de profesión ferroviario. Desde los 13 años de edad Abel trabajó en los ferrocarriles con su padre, quien lo quería graduado de ingeniero químico:

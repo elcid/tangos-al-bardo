@@ -3,6 +3,7 @@ title: "El contrabajo en el tango"
 date: "2022-11-15"
 original_url: https://tangosalbardo.blogspot.com/2022/11/el-contrabajo-en-el-tango.html
 labels: ""
+tags: ["Juan Carlos Cobián", "Francisco Canaro", "Osvaldo Pugliese", "Osvaldo Fresedo", "Astor Piazzolla", "Eduardo Arolas", "Horacio Ferrer", "Aníbal Troilo"]
 ---
 
 Instrumento de cuatro cuerdas - también denominado violín- a frotación de arco. Es el de mayor tamaño y más grave sonoridad en la familia de su género. De limitadas posibilidades solistas, es la base incuestionable de toda formación instrumental de cuerdas y de orquestas de todas las estructuras tímbricas y numéricas.

@@ -3,6 +3,7 @@ title: "Mauricio Marcelli"
 date: "2013-05-24"
 original_url: https://tangosalbardo.blogspot.com/2013/05/mauricio-marcelli.html
 labels: ""
+tags: ["Roberto Goyeneche", "Osvaldo Pugliese", "Alberto Podestá", "Atilio Stampone", "Alberto Marino", "Néstor Marconi", "Aníbal Troilo", "Julio De Caro"]
 ---
 
 Pocos músicos en la actualidad pueden presentar una hoja de servicios tan brillante como la de este violinista porteño, de formación clásica. Desde su adolescencia integró orquestas del calibre de: Enrique Mario Francini, Alfredo Gobbi, Argentino Galván, Miguel Caló, Aníbal Troilo, Osvaldo Pugliese, Atilio Stampone y otros. Además colaboró en las grabaciones de numerosos conjuntos y cantores como Alberto Podestá, Floreal Ruiz, Alberto Marino o Roberto Goyeneche entre tantos.

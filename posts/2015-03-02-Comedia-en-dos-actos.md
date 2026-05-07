@@ -3,6 +3,7 @@ title: "Comedia en dos actos"
 date: "2015-03-02"
 original_url: https://tangosalbardo.blogspot.com/2015/03/comedia-en-dos-actos.html
 labels: ""
+tags: ["Francisco García Jiménez", "Ángel Villoldo"]
 ---
 
 Para demostrar los avatares que debió sportar el tango para desparramarse por todo mundo y pasar de las clases populares a las clases altas, Francisco García Jiménez, autor de tantos tangos deliciosos, escribió una especie de comedieta documental en dos brevísimos actos, sobre un hecho verídico en el cual sólo se han disfrazado los nombres de los protagonistas.

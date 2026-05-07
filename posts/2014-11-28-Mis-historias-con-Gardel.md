@@ -3,6 +3,7 @@ title: "Mis historias con Gardel"
 date: "2014-11-28"
 original_url: https://tangosalbardo.blogspot.com/2014/11/mis-historias-con-gardel.html
 labels: ""
+tags: ["Francisco García Jiménez", "Eduardo Del Piano", "José María Otero", "Azucena Maizani", "Horacio Ferrer", "Carlos Gardel", "Julio De Caro", "Alfredo Gobbi"]
 ---
 
 Esta nota la publiqué en el año 2008, en una web, a solicitud de un gran Tanguero: José Pedro Aresi. Hoy la traigo al Blog para contribuir a desenredar la madeja tejida sobre el presunto Gardel uruguayo y su nacimiento en Tacuarembó, algo que jamás dijo en vida el gran cantor nacido en Francia y naturalizado argentino, como dejó sentado en su Testamento ológrafo.

@@ -3,6 +3,7 @@ title: "Bajo un cielo de estrellas"
 date: "2019-05-30"
 original_url: https://tangosalbardo.blogspot.com/2019/05/bajo-un-cielo-de-estrellas.html
 labels: ""
+tags: ["José María Contursi", "Alberto Podestá", "Miguel Caló"]
 ---
 
 Los valsecitos le han dado un ingrediente vital al mundo del tango. Por su musicalidad, su bailabilidad y algunos versos que se han quedado instalados en el corazón de tangueros y milongueros de ambos sexos. Esos valsecitos que canturreaban las muchachas mientras fregaban la ropa o lavaban los utensilios de cocina. Que se escuchaban en cafés y fondas de los barrios, interpretados por fueyes, guitarras y cantores anónimos. Y se silbaban por las calles.

@@ -3,6 +3,7 @@ title: "Historias de tango"
 date: "2012-06-12"
 original_url: https://tangosalbardo.blogspot.com/2012/06/historias-de-tango.html
 labels: ""
+tags: ["José María Contursi", "Julio Camilloni", "Héctor Varela"]
 ---
 
 José María Contursi que escribió la gran mayoría de sus composiciones en primera persona, reflejando las desdichas del amor, quedó inmortalizado por su romance con Grisel.

@@ -3,6 +3,7 @@ title: "Palermo en octubre"
 date: "2012-10-25"
 original_url: https://tangosalbardo.blogspot.com/2012/10/palermo-en-octubre.html
 labels: ""
+tags: ["Roberto Goyeneche", "Armando Pontier", "Aníbal Troilo"]
 ---
 
 Cuando la primavera ya lleva un mes instalada en las terracitas del porteño barrio de Palermo, las mismas se llenan de bulliciosos parroquianos de ambos sexos que se han liberado definitivamente de las ropas pesadas, las corbatas y las chaquetas.

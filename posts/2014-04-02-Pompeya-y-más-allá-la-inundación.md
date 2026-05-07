@@ -3,6 +3,7 @@ title: "Pompeya y más allá la inundación..."
 date: "2014-04-02"
 original_url: https://tangosalbardo.blogspot.com/2014/04/pompeya-y-mas-alla-la-inundacion.html
 labels: ""
+tags: ["Francisco Canaro", "Homero Manzi"]
 ---
 
 Me alegró muchísimo la noticia de la creación de un Centro Cultural en el sur porteño completamente dedicado al tango. Se llamará **Polo Bandoneón** y estará ubicado en Puente Alsina, en el límite con la provincia. Habrá taller de luthería y de música, biblioteca y la proyección de documentales sobre el género.* *La dirección será el histórico Puente Alsina -que cantara en su bello tango Bejamín Tagle Lara-, en la Avenida Sáenz Oeste 1480, en el barrio de Nueva Pompeya.

@@ -3,6 +3,7 @@ title: "Gardel en napolitano"
 date: "2012-03-30"
 original_url: https://tangosalbardo.blogspot.com/2012/03/gardel-en-napolitano.html
 labels: ""
+tags: ["Carlos Gardel"]
 ---
 
 La categoría que tuvo artísticamente Carlos Gardel, está determinada fundamentalmente por haber inventado el tango cantado y la forma de interpretarlo, en el propio ritmo de esta música. No hay más que escucharlo en las diferentes expresiones del texto literario: Melancólico, satírico, sentencioso, romántico, burlesco, trágico, compadre, reflexivo o coloquial, por citar algunas facetas en los casi mil temas que interpretó.

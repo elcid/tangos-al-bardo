@@ -3,6 +3,7 @@ title: "Españoles en el tango"
 date: "2015-02-24"
 original_url: https://tangosalbardo.blogspot.com/2015/02/espanoles-en-el-tango.html
 labels: ""
+tags: ["Luis Bayón Herrera", "Francisco Lomuto", "Armando Pontier", "Homero Expósito", "Pedro Maffia"]
 ---
 
 Fueron unos cuantos los músicos y cantantes españoles que pasaron por Buenos Aires, vivieron la fiebre del tango y permanecieron enganchados en este género. De alguna manera tiene cierta relación con el cuplé y se presta para aquellos que trabajaron en orquestas de fosos de teatros o se asociaron a las revistas del centro de Buenos Aires, donde le tomaron el gusto a la música popular porteña. Algunos llegaron de pequeños con sus padres inmigrantes y terminaron siendo porteños cabales

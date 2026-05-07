@@ -3,6 +3,7 @@ title: "Mariano Mores"
 date: "2024-07-30"
 original_url: https://tangosalbardo.blogspot.com/2024/07/mariano-mores.html
 labels: ""
+tags: ["Enrique Santos Discépolo", "José María Contursi", "Libertad Lamarque", "Francisco Canaro", "Carlos Di Sarli", "Hugo del Carril", "Roberto Rufino", "Juan D'Arienzo"]
 ---
 
 ** "EL TANGO ES EL ABRAZO A LA MUJER**

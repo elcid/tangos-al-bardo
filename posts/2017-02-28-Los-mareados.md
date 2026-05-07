@@ -3,6 +3,7 @@ title: "Los mareados"
 date: "2017-02-28"
 original_url: https://tangosalbardo.blogspot.com/2017/02/los-mareados-rara.html
 labels: ""
+tags: ["Juan Carlos Cobián", "Enrique Cadícamo"]
 ---
 
 Rara. Como encendida

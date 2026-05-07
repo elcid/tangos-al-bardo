@@ -3,6 +3,7 @@ title: "Ángel Vargas en postales"
 date: "2012-05-21"
 original_url: https://tangosalbardo.blogspot.com/2012/05/angel-vargas-en-postales.html
 labels: ""
+tags: ["Ángel Vargas"]
 ---
 
 Ya saben que tengo una especial debilidad por el gran cantor de Parque Patricios. Es un pedazo grande de la historia de Buenos Aires, que supo recrear en los temas que interpretó a lo largo de su carrera.

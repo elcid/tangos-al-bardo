@@ -3,6 +3,7 @@ title: "BIEN MILONGA"
 date: "2015-05-02"
 original_url: https://tangosalbardo.blogspot.com/2015/05/bien-milonga.html
 labels: ""
+tags: ["Osvaldo Pugliese"]
 ---
 
 Sí muchachos y muchachas, yo firmetex como Castillo: "¡*Siga el baile....siga el baile...*!". Si en la milonga, además del placer de bailar con gente que sepa mover con excelencia los remos en el tango, estás de nuevo canturreando y caminando con Troilo, D'Arienzo, Pugliese, Di Sarli, Tanturi, Demare, Canaro, Caló, Biagi, De Angelis, José García, Lomuto, y *tutti i fiocchi* de la galería tanguera y sus cantores.

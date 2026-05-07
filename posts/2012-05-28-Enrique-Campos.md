@@ -3,6 +3,7 @@ title: "Enrique Campos"
 date: "2012-05-28"
 original_url: https://tangosalbardo.blogspot.com/2012/05/enrique-campos.html
 labels: ""
+tags: ["Francisco García Jiménez", "Alberto Castillo", "Ricardo Tanturi", "Enrique Campos", "Alfredo Gobbi", "Ricardo Ruiz", "Floreal Ruiz", "Raúl Kaplún"]
 ---
 
 Fue un cantor que derramaba simpatía instantánea. De un fraseo muy musical y perfecta dicción, el triunfo en aquella Buenos Aires del cuarenta, no era fácil y sin embargo arrancó ganando.

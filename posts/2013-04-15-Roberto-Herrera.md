@@ -3,6 +3,7 @@ title: "Roberto Herrera"
 date: "2013-04-15"
 original_url: https://tangosalbardo.blogspot.com/2013/04/roberto-herrera.html
 labels: ""
+tags: ["Juan Carlos Copes", "Osvaldo Pugliese", "Horacio Salgán"]
 ---
 
 Ya no lo puede discutir nadie. Roberto Herrera ha alcanzado una altura en la danza del tango, a la que sólo pueden llegar los grandes. Por estudios, por vocación, por capacidad personal, sus performances y exhibiciones son de profundo voltaje emotivo y de altos dividendos estéticos.

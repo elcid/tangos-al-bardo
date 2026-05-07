@@ -3,6 +3,7 @@ title: "Se viene D'Arienzo..."
 date: "2013-09-15"
 original_url: https://tangosalbardo.blogspot.com/2013/09/se-viene-darienzo.html
 labels: ""
+tags: ["Fulvio Salamanca", "Alberto Echagüe", "Horacio Salgán", "Juan D'Arienzo", "Vicente Greco", "Anselmo Aieta", "Héctor Varela", "Ivo Pelay"]
 ---
 
 El mundo está llegando a los finales de la década de 1920, y la crisis económica mundial que se prolongaría durante la década del 30, originando temas como el de Canaro e Ivo Pelay: *¿Dónde hay un mango?*-esa ranchera que tanto le gustaba a Juan Domingo Perón-, se instalaría también en playas argentinas para quedarse.

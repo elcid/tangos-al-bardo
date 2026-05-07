@@ -3,6 +3,7 @@ title: "Porteño y bailarín"
 date: "2023-06-29"
 original_url: https://tangosalbardo.blogspot.com/2023/06/porteno-y-bailarin.html
 labels: ""
+tags: ["José María Otero", "Julián Centeya", "Alfredo Gobbi", "María Nieves", "Héctor Marcó"]
 ---
 
 * “Me hiciste tango como soy: **romántico y dulzón” *Héctor Marcó

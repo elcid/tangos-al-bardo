@@ -3,6 +3,7 @@ title: "BIEN MILONGA"
 date: "2018-12-18"
 original_url: https://tangosalbardo.blogspot.com/2018/12/bien-milonga_18.html
 labels: ""
+tags: ["Alfredo De Angelis", "Francisco Canaro", "Julio Martel", "Carlos Dante"]
 ---
 
 * Me gusta bailar juntito *

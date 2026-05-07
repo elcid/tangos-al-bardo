@@ -3,6 +3,7 @@ title: "Mozart en tiempo de tango"
 date: "2012-05-27"
 original_url: https://tangosalbardo.blogspot.com/2012/05/mozart-en-tiempo-de-tango.html
 labels: ""
+tags: ["Pablo Agri"]
 ---
 
 Fue una idea estupensa, plasmada en el CD que nos acerca a Mozart en aires de tango y milonga.

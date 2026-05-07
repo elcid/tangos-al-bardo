@@ -3,6 +3,7 @@ title: "De los músicos de tango"
 date: "2020-10-28"
 original_url: https://tangosalbardo.blogspot.com/2020/10/de-los-musicos-de-tango.html
 labels: ""
+tags: ["Edmundo Rivero"]
 ---
 
 En nuestro propio ambiente, el de los músicos y el tango, hay unas pocas palabras que todos conocemos y manejamos casi en exclusiva. Para que no haya tampoco en esto secreto, procuré hacer una lista, eso sí, ahorrándoles la explicación de lo que todos saben: por ejemplo qué es un tanguito y qué un tangazo. O que *viola*, ente los argentinos no es de gamba ni d'amore, es para dedos y no para arco, es la vieja vihuela española y la misma vigüela del segundo verso de Martín Fierro. Ahí va el *deschave*.

@@ -3,6 +3,7 @@ title: "Quiero verte una vez más"
 date: "2013-11-22"
 original_url: https://tangosalbardo.blogspot.com/2013/11/quiero-verte-una-vez-mas.html
 labels: ""
+tags: ["Francisco García Jiménez", "José María Contursi", "Libertad Lamarque", "Francisco Canaro", "Mariano Mores", "Héctor Marcó"]
 ---
 
 Este tango es uno más de la saga de temas que recuerdan el increíble romance de José María Contursi y Grisel. Una belleza para la cual no pasa el tiempo, y por el contrario, el romanticismo de las letras de ese poeta mayúsculo que escribía en primera persona sus historias imborrables, nos aferran a alguna peripecia amorosa que cualquiera de nosotros o un amigo, pueda haber vivido.

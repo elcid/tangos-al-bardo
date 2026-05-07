@@ -3,6 +3,7 @@ title: "Juan D'Arienzo - Documental"
 date: "2015-03-09"
 original_url: https://tangosalbardo.blogspot.com/2015/03/juan-darienzo-documental.html
 labels: ""
+tags: ["Alberto Echagüe", "Ricardo Tanturi", "Juan D'Arienzo"]
 ---
 
 Este regalo no tiene desperdicio. Los que tuvimos la suerte de vivirlo en vivo y en directo, a través de la radio, en milongas, con los clubes desbordados de bailarines que lo sentían en el alma, sabemos lo que vale este Documento que me obsequiara mi buen amigo Rubén. Nadie, ninguna orquesta vendió discos a lo bestia como Juan D'Arienzo en aquellos largos años de su apogeo.Ninguna tuvo tantos imitadores en todo el país como la del *"Rey del compás*".

@@ -3,6 +3,7 @@ title: "Bien milonga"
 date: "2021-09-07"
 original_url: https://tangosalbardo.blogspot.com/2021/09/bien-milonga_7.html
 labels: ""
+tags: ["Alberto Castillo"]
 ---
 
 Hoy,  Que estoy en el salón, Me saben amansado,

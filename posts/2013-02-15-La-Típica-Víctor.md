@@ -3,6 +3,7 @@ title: "La Típica  Víctor"
 date: "2013-02-15"
 original_url: https://tangosalbardo.blogspot.com/2013/02/la-tipica-victor.html
 labels: ""
+tags: ["Francisco Fiorentino", "Adolfo Carabelli", "Luis Petrucelli", "Mercedes Simone", "Alberto Gómez", "Julio De Caro", "Anselmo Aieta", "Pedro Maffia"]
 ---
 
 Un síntoma de lo que ya arrastraba y convocaba el tango en los años treinta, era la conformación de esta Orquesta por la RCA Víctor, exclusivamente con la finalidad de grabar discos de ese género, que era lo que pedía el mercado.

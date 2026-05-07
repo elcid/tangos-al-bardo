@@ -3,6 +3,7 @@ title: "Edmundo Rivero"
 date: "2013-09-10"
 original_url: https://tangosalbardo.blogspot.com/2013/09/edmundo-rivero.html
 labels: ""
+tags: ["Virgilio Expósito", "Celedonio Flores", "Edmundo Rivero", "Aníbal Troilo", "Carlos Gardel", "Carlos Figari", "Mario Demarco", "Hugo Díaz"]
 ---
 
 Fue un grande entre los cantores de tango y un lujo para este género, aunque le haya costado subir el Himalaya de las contras que le surgieron por todos lados, por su grave voz de barítono con tendencia a bajo y su pinta que no encajaba con la herencia gardeliana. Hasta allí, entre los cantores, no había surgido ninguno con esa tesitura de voz, y Rivero fue quien les abrió definitivamente las puertas.

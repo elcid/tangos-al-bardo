@@ -3,6 +3,7 @@ title: "¡Y llegué a las dos mil...!"
 date: "2022-02-23"
 original_url: https://tangosalbardo.blogspot.com/2022/02/y-llegue-las-dos-mil.html
 labels: ""
+tags: ["Alberto Castillo", "Enrique Campos", "Julio Sosa"]
 ---
 
 Cómo podía imaginar, allá por el año 2012, más exactamente el 25 de febrero de ese año, que esta página iba a perdurar diez años más tarde y llegar a las dos mil notas... Pues, eso es exactamente lo que ha pasado. Y sinceramente, uno que ha sido periodista, que ha recorrido tanto mundo escribiendo, por toda América y Europa, no puede menos que sentirse feliz por haberle dedicado todo este pequeño esfuerzo...al TANGO.

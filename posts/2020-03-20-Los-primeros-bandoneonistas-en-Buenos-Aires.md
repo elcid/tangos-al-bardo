@@ -3,6 +3,7 @@ title: "Los primeros bandoneonistas en Buenos Aires"
 date: "2020-03-20"
 original_url: https://tangosalbardo.blogspot.com/2020/03/los-primeros-bandoneonistas-en-buenos.html
 labels: ""
+tags: ["Francisco Canaro", "Vicente Greco", "Juan Maglio"]
 ---
 
 -A Domingo Santa Cruz, lo conocí tocando con su hermano Juan, en una casa de bailes en San Martín (Provincia Bs. Aires). A Santa Cruz la afición al bandoneón le venía de herencia, pues su padre fue gran ejecutante de bandoneón allá por el año 1865, según refiere Héctor Bates en su libro "La Historia del Tango", en el que también menciona en el año 1870 a Pedro Ávila y Tomás Moore (El Inglés), al ciego Ruperto y a otros que también llegué a conocer, pero ya mucho más adelante.

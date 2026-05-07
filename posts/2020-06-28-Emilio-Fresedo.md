@@ -3,6 +3,7 @@ title: "Emilio Fresedo"
 date: "2020-06-28"
 original_url: https://tangosalbardo.blogspot.com/2020/06/emilio-fresedo.html
 labels: ""
+tags: ["Osvaldo Fresedo", "Alberto Echagüe", "Teófilo Ibáñez", "Juan D'Arienzo", "Carlos Gardel", "José Martínez"]
 ---
 
 Su hermano, Osvaldo, le ha robado todo el protagonismo y es lógico que así fuera, por sus méritos como director de una afamada orquesta, como compositor y por todo lo que representó en el devenir del tango. Pero Emilio, cuatro años mayor, supo manejarse no sólo como músico, sino incluso como periodista, trabajó como productor de especialidades medicinales, escribió cuentos y fue antecesor mío en el Diario *La Razón*. En una época traté bastante con su hijo Oscar, a quien me encontraba en el boliche frente a radio El Mundo y charlábamos de tango y de fútbol.

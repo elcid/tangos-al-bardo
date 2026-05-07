@@ -3,6 +3,7 @@ title: "Hugo Rivas"
 date: "2014-10-21"
 original_url: https://tangosalbardo.blogspot.com/2014/10/hugo-rivas.html
 labels: ""
+tags: ["Enrique Cadícamo", "Aníbal Troilo", "Julio Pane"]
 ---
 
 A este musicazo joven, pero para quien la guitarra ha venido a ser como una prolongación de su cuerpo, es un orgullo contarlo en las filas del tango desde siempre. Porque lo mamó en casa con su padre y tío, guitarreros y cantores de aquellos que destilaban serenatas o mostraban su calibre junto a Adolfo Berón o en escenarios y micrófonos radiales. Se lucieron en teatros, en festejados programas de televisión, en Radio El Mundo y Splendid y viajaron con sus guitarras por casi toda Sudamérica.

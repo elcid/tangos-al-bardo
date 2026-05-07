@@ -3,6 +3,7 @@ title: "Bien milonga"
 date: "2017-10-24"
 original_url: https://tangosalbardo.blogspot.com/2017/10/bien-milonga_24.html
 labels: ""
+tags: ["Ricardo Tanturi", "Juan D'Arienzo", "Enrique Campos"]
 ---
 
 *Bailarines de afición*

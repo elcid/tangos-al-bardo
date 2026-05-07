@@ -3,6 +3,7 @@ title: "Bien milonga"
 date: "2018-04-17"
 original_url: https://tangosalbardo.blogspot.com/2018/04/bien-milonga_17.html
 labels: ""
+tags: ["Juan D'Arienzo"]
 ---
 
 * Fue en el baile del Club Eslava*

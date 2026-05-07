@@ -3,6 +3,7 @@ title: "La Editorial del Tango"
 date: "2014-09-03"
 original_url: https://tangosalbardo.blogspot.com/2014/09/la-editorial-del-tango.html
 labels: ""
+tags: ["Enrique Santos Discépolo", "Enrique Cadícamo", "Osvaldo Pugliese", "Alfredo Le Pera", "Aníbal Troilo", "Carlos Gardel", "Julio De Caro", "Pedro Maffia"]
 ---
 
 Es la Editorial que más libros de Tango ha publicado a lo largo de su historia. Está ubicada en la calle Rodríguez Peña 452 de la Ciudad de Buenos Aires, y en el reciente Festival de Tango organizado por la Municipalidad, presentó su Stand repleto de títulos del género, que lograron muy buenas ventas entre el público asistente al Gran Evento Internacional.

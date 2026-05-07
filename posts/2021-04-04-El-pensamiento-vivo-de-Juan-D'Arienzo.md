@@ -3,6 +3,7 @@ title: "El pensamiento vivo de Juan D'Arienzo"
 date: "2021-04-04"
 original_url: https://tangosalbardo.blogspot.com/2021/04/el-pensamiento-vivo-de-juan-darienzo.html
 labels: ""
+tags: ["Francisco Lomuto", "Osvaldo Fresedo", "Astor Piazzolla", "Alberto Echagüe", "Eugenio Nóbile", "Juan D'Arienzo", "Héctor Mauré", "Carlos Dante"]
 ---
 
 **A 60 años de su debut en la música arrabalera**

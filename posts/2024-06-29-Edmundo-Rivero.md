@@ -3,6 +3,7 @@ title: "Edmundo Rivero"
 date: "2024-06-29"
 original_url: https://tangosalbardo.blogspot.com/2024/06/edmundo-rivero.html
 labels: ""
+tags: ["Edmundo Rivero"]
 ---
 
 ** Ciudadano y granadero**

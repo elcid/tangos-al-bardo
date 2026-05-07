@@ -3,6 +3,7 @@ title: "El cachafaz"
 date: "2013-11-18"
 original_url: https://tangosalbardo.blogspot.com/2013/11/el-cachafaz.html
 labels: ""
+tags: ["Francisco García Jiménez", "Juan D'Arienzo"]
 ---
 
 Pocos, muy pocos personajes del tango, que no hayan sido músicos o cantores, han logrado instalarse en la leyenda del tango con tal arraigo, soportando el paso de los años que van difuminando logros y currículos. Evidentemente fue el bailarín más famoso de su época, y más conocido por su apodo que por su apellido.

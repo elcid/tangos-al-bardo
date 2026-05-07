@@ -3,6 +3,7 @@ title: "La cantina"
 date: "2020-02-15"
 original_url: https://tangosalbardo.blogspot.com/2020/02/la-cantina.html
 labels: ""
+tags: ["Cátulo Castillo", "Aníbal Troilo", "Roberto Grela", "Jorge Casal"]
 ---
 
 Fueron los inmigrantes italianos los que fundaron estos boliches en Buenos Aires. En el barrio de la Boca especialmente, pero también en el Abasto, en Chacarita. Con esos travesaños de pared a pared de los cuales colgaban jamones, salames, longanizas.. Las calderas bullendo con pastas que luego soltarían su aroma en las mesas, untadas con el pesto genovés y el tuco.

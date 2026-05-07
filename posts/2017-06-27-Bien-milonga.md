@@ -3,6 +3,7 @@ title: "Bien milonga"
 date: "2017-06-27"
 original_url: https://tangosalbardo.blogspot.com/2017/06/bien-milonga_27.html
 labels: ""
+tags: ["Ismael Spitalnik", "Osvaldo Pugliese", "Francisco Canaro", "Aníbal Troilo"]
 ---
 
 [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjBj4eweknzayT2d_3R5GZLEt4HR03A74NzDxr9VUyhN9jPGSzGcz5Xx3CBRLmx3fzZSDmCsOAzHWRXzDzmxEXeOPiMs97X8jc7aQx0EaJSt7U7MYtu0EtmUwLyg1wby09iY9qEGwuvFMHm/s200/-piernas-en-baile-01.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjBj4eweknzayT2d_3R5GZLEt4HR03A74NzDxr9VUyhN9jPGSzGcz5Xx3CBRLmx3fzZSDmCsOAzHWRXzDzmxEXeOPiMs97X8jc7aQx0EaJSt7U7MYtu0EtmUwLyg1wby09iY9qEGwuvFMHm/s1600/-piernas-en-baile-01.jpg)Y nunca mejor dicho. Sí, Ismael Spitalnik quiso afirmar con el título de su tango, el alma milonguera que tenía el tema que había compuesto. Luego sonaría a música celestial en las versiones de Osvaldo Pugliese, Aníbal Troilo y sus orquestas. Igual que nos invita al baile, todo el material que seleccionamos para los asiduos concurrentes a nuestra milonga de los martes -Bien Milonga- en la Casa de Aragón de Madrid.

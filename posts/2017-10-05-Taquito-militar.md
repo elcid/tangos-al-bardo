@@ -3,6 +3,7 @@ title: "Taquito militar"
 date: "2017-10-05"
 original_url: https://tangosalbardo.blogspot.com/2017/10/taquito-militar.html
 labels: ""
+tags: ["Francisco Canaro", "Aníbal Troilo", "Ubaldo De Lío", "Mariano Mores", "María Graña"]
 ---
 
 -Discépolo, Tania y yo , con mi Orquesta de Cámara del Tango, habíamos sido invitados a un acto en el Ministerio (de Guerra), con la presencia del General Perón. Al terminar mi actuación se acercó un señor a quien no conocía, para pedirme que tocáramos algo más. Como solo quedábamos en el salón dos de los músicos, Pepe Corriale y Ubaldo De Lío, improvisamos los tres un tema. Al final el mismo señor me solicitó una pieza más. Entonces me puse a improvisar sobre un motivo de milonga que tenía en mente: en esa improvisación se fue desarrollando "Taquito militar". Fue tal el entusiasmo de este señor -de quien después supe que era el General Franklin Lucero, ministro de Guerra-, que tuvimos que repetirla tres veces esa misma noche. Después, plasmé la forma definitiva y pasó el tiempo.

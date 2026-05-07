@@ -3,6 +3,7 @@ title: "Hugo del Carril"
 date: "2014-02-20"
 original_url: https://tangosalbardo.blogspot.com/2014/02/hugo-del-carril.html
 labels: ""
+tags: ["Enrique Santos Discépolo", "Luis César Amadori", "Francisco Canaro", "Hugo del Carril", "Floreal Ruiz", "Homero Manzi", "Ivo Pelay"]
 ---
 
 Este prócer del tango y del cine, como actor o director, merece no una, sino varias páginas, por todo lo que hizo en su vida. Se llamaba Piero Bruno Hugo Fontana, era hijo de padres italianos que se separaron y lo criaron su padrinos franceses, que incluso se lo llevaron a vivir un tiempo a Francia, aunque volvería a su barrio porteño de Flores en el que anduvo en sus inicios tangueros con otro grande del tango: Floreal Ruiz.

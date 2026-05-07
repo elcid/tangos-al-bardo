@@ -3,6 +3,7 @@ title: "En un rincón"
 date: "2018-02-19"
 original_url: https://tangosalbardo.blogspot.com/2018/02/en-un-rincon.html
 labels: ""
+tags: ["Lucio Demare", "Homero Manzi", "Raúl Berón"]
 ---
 
 Cuando amontonás muchas noches, días, madrugadas con aventuras, heridas, historias que dejaron flecos..., el camino se va nutriendo de pasiones, sentimientos, adioses, excitantes improvisaciones, el misterio del amor y el aprendizaje del abandono. Son experiencias que devienen en un síndrome emocional. El tiempo dilatado de las caricias, el tiempo del éxtasis, la espita de la melancolía que el poeta lleva al papel convertido en verso. Historias de vida.

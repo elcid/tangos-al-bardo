@@ -3,6 +3,7 @@ title: "Bien milonga"
 date: "2014-09-08"
 original_url: https://tangosalbardo.blogspot.com/2014/09/el-sabado-proximo-13-de-setiembre.html
 labels: ""
+tags: ["Ismael Spitalnik", "Osvaldo Zotto", "María Nieves", "Virulazo"]
 ---
 
 El sábado próximo -13 de setiembre-, recomienzo con BIEN MILONGA, -como el tangazo de Ismael Spitalnik-, en la CASA DE ARAGÓN de Madrid, la milonga que dirijo, y ya tengo todas las neuronas al rojo vivo. Seleccionando la música hiperbailable, y moviendo los remos al compás de estos temas mientras los voy escogiendo de la grosa discoteca que guardo en casa. No puedo quedarme quieto cuando escucho algunos temas que me impulsan por el salón, meta caminatas y figuras.

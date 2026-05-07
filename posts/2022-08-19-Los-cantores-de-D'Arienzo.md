@@ -3,6 +3,7 @@ title: "Los cantores de D'Arienzo"
 date: "2022-08-19"
 original_url: https://tangosalbardo.blogspot.com/2022/08/los-cantores-de-darienzo.html
 labels: ""
+tags: ["Francisco Fiorentino", "Libertad Lamarque", "Alberto Echagüe", "Juan D'Arienzo", "Héctor Mauré", "Carlos Dante"]
 ---
 
 El *Rey del compás* le dio mucha manija a los cantores de su orquesta. Por su rítmica y exitosa formación pasaron entre los años 1928 y 2015, 19 vocalistas, entre los que no contamos a invitados ocasionales como Libertad Lamarque, Antonio Prieto o Mercedes Serrano, que también pusieron su voz en grabaciones de la orquesta.

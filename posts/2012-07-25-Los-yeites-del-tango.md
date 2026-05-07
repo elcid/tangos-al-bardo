@@ -3,6 +3,7 @@ title: "Los yeites del tango"
 date: "2012-07-25"
 original_url: https://tangosalbardo.blogspot.com/2012/07/los-yeites-del-tango.html
 labels: ""
+tags: ["Enrique Rodríguez", "Osvaldo Pugliese", "Juan D'Arienzo"]
 ---
 
 La palabra lunfarda* yeite*, procede del portugués * geito*, que significa aptitud, disposición natural para alguna cosa. Con el tiempo se usa también para describir las habilidades o picardías de algunas personas que sacan provecho de ello.

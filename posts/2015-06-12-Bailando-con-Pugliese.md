@@ -3,6 +3,7 @@ title: "Bailando con Pugliese"
 date: "2015-06-12"
 original_url: https://tangosalbardo.blogspot.com/2015/06/bailando-con-pugliese.html
 labels: ""
+tags: ["Juan Carlos Copes", "Osvaldo Pugliese", "Horacio Salgán", "Agustín Bardi", "Julio De Caro"]
 ---
 
 Fue una de las orquestas preferidas de los milongueros durante muchos años y movió multitudes en sus presentaciones en clubes y salas de baile. Tenía además una colección de hinchas que lo seguían a todas partes y mostraban características insólitas. Se colocaban una *curita* en la cara como si tuvieran alguna herida, usaban el yuguiyo del cuello alto y la corbata con nudo filipino. Entraban y salían -de madrugada- de los bailes gritando la consigna característica: "*¡Ese...ese...ese...la barra de Pugliese!"*

@@ -3,6 +3,7 @@ title: "Edmundo Rivero"
 date: "2023-12-23"
 original_url: https://tangosalbardo.blogspot.com/2023/12/edmundo-rivero.html
 labels: ""
+tags: ["Cátulo Castillo", "Edmundo Rivero", "Horacio Salgán", "Carlos Gardel", "Mario Demarco"]
 ---
 
 ** La voz diferente**

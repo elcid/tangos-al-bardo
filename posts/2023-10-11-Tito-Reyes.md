@@ -3,6 +3,7 @@ title: "Tito Reyes"
 date: "2023-10-11"
 original_url: https://tangosalbardo.blogspot.com/2023/10/tito-reyes.html
 labels: ""
+tags: ["Francisco Fiorentino", "Roberto Goyeneche", "Joaquín Do Reyes", "Roberto Rufino", "Alberto Marino", "Edmundo Rivero", "José Colángelo", "Aníbal Troilo"]
 ---
 
 En el catastro tanguero quedó registrado para siempre, como el último cantor de la orquesta del legendario bandoneonista-director-compositor Aníbal Troilo. Con gran acierto expresionista, esta orquesta quedó reconocida en los medios tangueros como *La orquesta de los cantores.*

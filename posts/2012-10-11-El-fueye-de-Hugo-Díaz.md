@@ -3,6 +3,7 @@ title: "El fueye de Hugo Díaz"
 date: "2012-10-11"
 original_url: https://tangosalbardo.blogspot.com/2012/10/el-fueye-de-hugo-diaz.html
 labels: ""
+tags: ["José Colángelo", "José Canet", "Hugo Díaz"]
 ---
 
 Era un santiagueño total, en su mansedumbre, la gracia chispeante y el foklore de su tierra caliente instalado en el alma. Le regalaron una armónica cuando tenía 4 años, y como quedó ciego durante un año, por un pelotazo que recibió mientras veía a los changos correr detrás del balón, el instrumento le sirvió para mitigar su pena durante la convalecencia. Y le arrancaba intuitivamente melodías increibles.

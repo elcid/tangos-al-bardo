@@ -3,6 +3,7 @@ title: "Valseando, que es gerundio"
 date: "2013-03-30"
 original_url: https://tangosalbardo.blogspot.com/2013/03/valseando-que-es-gerundio.html
 labels: ""
+tags: ["Roberto Firpo"]
 ---
 
 Los valsecitos porteños tienen ese no se qué, ¿viste?, que me impulsan a juguetear en la pista y bailarlos de forma distinta a los tangos, que son más reconcentrados y requieren otro tipo de cauce emocional.

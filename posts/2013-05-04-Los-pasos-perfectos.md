@@ -3,6 +3,7 @@ title: "Los pasos perfectos"
 date: "2013-05-04"
 original_url: https://tangosalbardo.blogspot.com/2013/05/los-pasos-perfectos.html
 labels: ""
+tags: ["Edgardo Donato", "Roberto Firpo"]
 ---
 
 Se trata de un juego muy lindo creado por una excelente dibujante canadiense, Véronique Paquette que en francés se situla "*Trouvez l'erreur !*". Como además de artista del lápiz y el pincel, ella es artista de la pista, al tratarse de una muy buena milonguera, pues señala en sus dibujos los errores comunes de postura, de caminar la pista, de ser en definitiva buenos milongueros unos y otras.

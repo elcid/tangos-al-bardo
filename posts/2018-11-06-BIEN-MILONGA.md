@@ -3,6 +3,7 @@ title: "BIEN MILONGA"
 date: "2018-11-06"
 original_url: https://tangosalbardo.blogspot.com/2018/11/bien-milonga.html
 labels: ""
+tags: ["Francisco Rotundo", "Enrique Campos", "Julio De Caro", "Floreal Ruiz", "Ariel Ardit"]
 ---
 
 *Aunque una luz al instante*

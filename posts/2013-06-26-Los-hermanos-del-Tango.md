@@ -3,6 +3,7 @@ title: "Los hermanos del Tango"
 date: "2013-06-26"
 original_url: https://tangosalbardo.blogspot.com/2013/06/los-hermanos.html
 labels: ""
+tags: ["José María Contursi", "Francisco Canaro", "Julio De Caro"]
 ---
 
 Un caso muy común en la historia del tango, fue que los hermanos caminasen unidos o separados por la senda de esta música. Ello ocurrió desde muy temprano, como lo demuestra el caso de los hermanos Canaro, los De Caro o los Caló.

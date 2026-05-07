@@ -3,6 +3,7 @@ title: "El cantor de Buenos Aires"
 date: "2014-04-25"
 original_url: https://tangosalbardo.blogspot.com/2014/04/el-cantor-de-buenos-aires.html
 labels: ""
+tags: ["Juan Carlos Cobián", "Enrique Cadícamo", "Donato Racciatti", "Osvaldo Pugliese", "Aníbal Troilo", "Carlos Gardel", "Jorge Casal", "Raúl Berón"]
 ---
 
 Este tango de Juan Carlos Cobián y Enrique Cadícamo guarda unas pequeñas historias que vale la pena recrearlas otra vez. En marzo de 1936 Cadícamo se encontraba terminando de escribir una comedia en tres actos con intercalaciones musicales por encargo del empresario del Teatro Smart, Alberto Ballerini que era amigo suyo. La obra se titulaba *El cantor de Buenos Aires* y era una suerte de biografía de Carlos Gardel, fallecido trágicamente nueve meses antes.

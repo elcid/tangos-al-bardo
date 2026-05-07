@@ -3,6 +3,7 @@ title: "Carlos Quilici"
 date: "2013-02-07"
 original_url: https://tangosalbardo.blogspot.com/2013/02/carlos-quilici.html
 labels: ""
+tags: ["Domingo Federico", "Osvaldo Pugliese", "Víctor Lavallén", "Rodolfo Mederos", "Homero Expósito", "Agustín Magaldi", "Antonio Agri", "Julián Plaza"]
 ---
 
 Se trata de un destacado bandoneonista rosarino que está realizando una gira por diversos países europeos, a los que retorna cada tanto. Es un muy buen amigo con quien hemos compartido lindas noches de tango en Madrid y a quien me reencontré la semana pasada en una milonga madrileña. Porque además de tocar excelentemente el fueye, cosa curiosa, baila muy bien también.

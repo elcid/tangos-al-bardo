@@ -3,6 +3,7 @@ title: "El tango bailado (2)"
 date: "2023-05-08"
 original_url: https://tangosalbardo.blogspot.com/2023/05/el-tango-bailado-2.html
 labels: ""
+tags: ["Antonio Todaro"]
 ---
 
 De aquellas figuras iniciales han desaparecido muchas, pero la originalidad de la sociedad de cuerpos, permite una infinita posibilidad de invención. Muchos pasos se han ido puliendo y mejorando, y sobre aquellas figuras se han ido tejiendo y mejorando dibujos, enriqueciendo lo que crearon algunos grandes bailarines como El Cachafaz, Tarila, El Negro Cotongo, el Mocho Undarz, Miguel Bucino, Antonio Todaro, Portalea, Lampazo, Cantinflas, Tim, Lavandina, el fino Ribera y tantos anónimos de aquella inmensa masa de milongueros porteños del 40 y 50.

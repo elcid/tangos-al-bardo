@@ -3,6 +3,7 @@ title: "Sangre azul"
 date: "2015-08-26"
 original_url: https://tangosalbardo.blogspot.com/2015/08/sangre-azul.html
 labels: ""
+tags: ["Francisco García Jiménez", "Francisco Canaro", "Luis Petrucelli", "Lucio Demare", "Juan Maglio"]
 ---
 
 Hoy traigo al blog este tango olvidado, porque ganó el Primer Premio en el Cuarto Concurso del Disco Nacional, en tangos Instrumentales, del año 1927. El mismo se realizaba en el Palace Theatre que estaba ubicado en la porteña calle Corrientes 757 y su autor fue el uruguayo Fioravanti Di Cicco, que lo dedicó a la señora Margot Tenaud. Curiosamente, el tercer premio de esta categoría lo obtuvo el tango *Río de oro*, del mismo autor en sociedad con Lucio Demare.

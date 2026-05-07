@@ -3,6 +3,7 @@ title: "Tres arreglos de Troilo actualizados"
 date: "2014-01-22"
 original_url: https://tangosalbardo.blogspot.com/2014/01/tres-arreglos-de-troilo-actualizados.html
 labels: ""
+tags: ["Ismael Spitalnik", "Astor Piazzolla", "Aníbal Troilo", "Julián Plaza", "Pablo Agri"]
 ---
 
 Este regalito no tiene precio y nos produce mucha emoción. Carlos Zito ha tenido la gentileza de ofrecerlo públicamente y lo degustamos con todo lo que representa este trabajo realizado para poder sacar el "estilo Pichuco", y la presentación inmejorable de Gabriel Soria.

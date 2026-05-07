@@ -3,6 +3,7 @@ title: "Julio Ahumada"
 date: "2017-06-19"
 original_url: https://tangosalbardo.blogspot.com/2017/06/julio-ahumada.html
 labels: ""
+tags: ["Leopoldo Federico", "Joaquín Do Reyes", "Alberto Castillo", "Osvaldo Pugliese", "Julio Camilloni", "Néstor Marconi", "Julián Centeya", "Aníbal Troilo"]
 ---
 
 Con sus flamantes veinte años llegó a Buenos Aires, instalándose en la famosa Pensión "La Alegría", de la calle Salta 321, donde convivió con un lote de músicos que harían roncha en los años cuarenta, cincuenta y más adelante. Toda gente procedente de provincias, con capacidadaes instaladas en sus quehaceres, estudios y dedicación. Ahumada traía las enseñanzas bandoneonísticas y musicales que le había transmitido Abel Bedrune.

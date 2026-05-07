@@ -3,6 +3,7 @@ title: "Desde el alma"
 date: "2014-10-10"
 original_url: https://tangosalbardo.blogspot.com/2014/10/desde-el-alma.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Hugo del Carril", "Roberto Firpo", "Homero Manzi"]
 ---
 
 Página emblemática dentro del vademécum tanguero, este valsecito fue creado por una muchachita uruguaya como *Vals Boston*, una especie de pariente del vals vienés, pero más lento, monorrítmico, melodioso. Ella se llamaba Rosa Clotilde Mele (1897-1981), había nacido en Montevideo, y cuando tenía dos años de edad, sus padres italianos se radicaron en Buenos Aires con toda la familia.

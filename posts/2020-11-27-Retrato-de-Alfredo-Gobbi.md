@@ -3,6 +3,7 @@ title: "Retrato de Alfredo Gobbi"
 date: "2020-11-27"
 original_url: https://tangosalbardo.blogspot.com/2020/11/retrato-de-alfredo-gobbi.html
 labels: ""
+tags: ["Alfredo Gobbi"]
 ---
 
 In memorian

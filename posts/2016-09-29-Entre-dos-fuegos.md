@@ -3,6 +3,7 @@ title: "Entre dos fuegos"
 date: "2016-09-29"
 original_url: https://tangosalbardo.blogspot.com/2016/09/entre-dos-fuegos.html
 labels: ""
+tags: ["Carlos Di Sarli", "Juan D'Arienzo", "Julio De Caro"]
 ---
 
 Este tango, grabado por Juan D'Arienzo con mucho acierto, tiene detrás una historia interesante porque se remonta a los años en que nuestra música rioplatense, saltaba el océano, con los músicos, sus instrumentos, sus partituras, para conquistar París, como epicentro de Europa. En aquella vanguardia de los Gobbi, Villoldo, y después Saborido y Vicente Geroni Flores, había quedado abierta una huella fecunda que era importante ensanchar.

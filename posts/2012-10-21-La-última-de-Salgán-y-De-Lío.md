@@ -3,6 +3,7 @@ title: "La última de Salgán y De Lío"
 date: "2012-10-21"
 original_url: https://tangosalbardo.blogspot.com/2012/10/la-ultima-de-salgan-y-de-lio_21.html
 labels: ""
+tags: ["Juan Carlos Cobián", "Leopoldo Federico", "Néstor Marconi", "Horacio Salgán", "Ubaldo De Lío", "Pedro Laurenz", "Antonio Agri"]
 ---
 
 El gran Horacio Salgán tenía 94 años en el momento que subió al escenario de la *Torquato Tasso*, en el barrio de San Telmo. Ubaldo De Lío contaba 82.

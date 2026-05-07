@@ -3,6 +3,7 @@ title: "La noche que te fuiste"
 date: "2019-03-03"
 original_url: https://tangosalbardo.blogspot.com/2019/03/la-noche-que-te-fuiste.html
 labels: ""
+tags: ["José María Contursi", "Roberto Goyeneche", "Celedonio Flores", "Aníbal Troilo", "Osmar Maderna", "Floreal Ruiz", "Miguel Caló", "Lidia Borda"]
 ---
 
 Dos grandes del tango coincidieron en el anclaje de estos versos y esta música que se harían historia en el silbo de los porteños, en las piernas de los milongueros y el canto de hombres y mujeres en el patio de sus casas, en el boliche de la esquina, en el rumor de las fábricas, en las ondas de emisoras radiales.... Y de orquestas como las de Troilo, Caló, Pontier y voces que lo inmortalizarían: Floreal Ruiz, Raúl Iriarte, Roberto Goyeneche, María Graña, Malena Muyala, Lidia Borda...

@@ -3,6 +3,7 @@ title: "BIEN MILONGA"
 date: "2019-11-19"
 original_url: https://tangosalbardo.blogspot.com/2019/11/bien-milonga_19.html
 labels: ""
+tags: ["Francisco Canaro", "Juan D'Arienzo", "Homero Manzi"]
 ---
 
 Así es el tango

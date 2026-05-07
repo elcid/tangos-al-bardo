@@ -3,6 +3,7 @@ title: "\"Lo primero es la elegancia\""
 date: "2017-04-05"
 original_url: https://tangosalbardo.blogspot.com/2017/04/lo-primero-es-la-elegancia.html
 labels: ""
+tags: ["Juan Carlos Copes", "María Nieves"]
 ---
 
 Cuando yo empecé a bailar, cada club, cada milonga tenía sus características. Y había que respetarlas. En Estrella de Maldonado, por ejemplo, la mina más famosa era *La conejo*, que era amiga de *La Ñata,* la hermana de María Nieves. Yo era muy joven, pintón, iba empilchado con el único traje milonguero que tenía y apenas si me animaba a sacar a alguna chica. Iba a una esquina de la pista y cabeceaba a una. Después me corría a otra esquina y cabeceaba a otra.

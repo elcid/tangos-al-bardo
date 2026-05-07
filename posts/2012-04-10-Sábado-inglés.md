@@ -3,6 +3,7 @@ title: "Sábado inglés"
 date: "2012-04-10"
 original_url: https://tangosalbardo.blogspot.com/2012/04/entre-los-muchos-tangos-que-reflejan-la.html
 labels: ""
+tags: ["Juan D'Arienzo", "Juan Maglio", "José Basso"]
 ---
 
 Entre los muchos tangos que reflejan la realidad social de una época, hoy voy a escoger uno en especial: **Sábado inglés**.

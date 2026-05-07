@@ -3,6 +3,7 @@ title: "Arrabalero"
 date: "2024-02-20"
 original_url: https://tangosalbardo.blogspot.com/2024/02/arrabalero.html
 labels: ""
+tags: ["Francisco Canaro", "Osvaldo Fresedo", "Juan Maglio", "Ada Falcón"]
 ---
 
 Es bueno recordar este tango que lleva versos de Eduardo Souto Calvo, un gallego de Padrón, llegado con la familia y sus 13 años a la Reina del Plata, que le daría todo el ornamento para que pudiera lucirse tempranamente como poeta. Es cierto que regentó cabarets en el centro porteño, tuvo el suyo, muy lujoso ("Imperio"), frente al Obelisco, pero también desarrolló gran carrera en el ambiente teatral, donde mostró sus dotes de organizador, montando compañías que incluso realizaron giras por provincias y países vecinos.

@@ -3,6 +3,7 @@ title: "El gordo Mancione"
 date: "2012-11-19"
 original_url: https://tangosalbardo.blogspot.com/2012/11/el-gordo-mancione.html
 labels: ""
+tags: ["Edgardo Donato", "Roberto Firpo", "Pedro Maffia", "Floreal Ruiz"]
 ---
 
 Fue un intuitivo que se metió en el tango porque le gustaba con locura y porque en esa época, en los barrios predominaban los guitarreros, futbolistas, cantores, boxeadores y músicos de todo pelaje. A él le dió por el fueye pero no tenía ni tiempo ni ganas de estudiar y por eso no profundizó en el manejo del instrumento, lo que da ciertos méritos, al haber formado orquestas que tuvieron seguidores y ocuparon un espacio con ese alerta de algo que no sabe muy bien que será, pero que está impulsado por una fuerte convicción.

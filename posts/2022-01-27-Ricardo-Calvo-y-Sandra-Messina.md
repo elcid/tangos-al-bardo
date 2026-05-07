@@ -3,6 +3,7 @@ title: "Ricardo Calvo y Sandra Messina"
 date: "2022-01-27"
 original_url: https://tangosalbardo.blogspot.com/2022/01/ricardo-calvo-y-sandra-messina.html
 labels: ""
+tags: ["Domingo Federico", "Alberto Castillo", "Pedro Laurenz"]
 ---
 
 **

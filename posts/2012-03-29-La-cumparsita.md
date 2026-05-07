@@ -3,6 +3,7 @@ title: "La cumparsita"
 date: "2012-03-29"
 original_url: https://tangosalbardo.blogspot.com/2012/03/la-cumparsita.html
 labels: ""
+tags: ["Pascual Contursi", "Agustín Magaldi", "Edgardo Donato", "Carlos Gardel"]
 ---
 
 Esta es una de las muchas perlitas que adornan el catastro tanguero. Se trata de una de las tantísimas grabaciones del inmortal tango de Gerardo Matos Rodríguez. En este caso, con la letra que le adosaron Pascual Contursi y Enrique P. Maroni.

@@ -3,6 +3,7 @@ title: "La Orquesta del CSMA"
 date: "2014-10-19"
 original_url: https://tangosalbardo.blogspot.com/2014/10/la-orquesta-del-csma.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Pedro Laurenz", "Julio De Caro", "Julián Plaza"]
 ---
 
 A veces uno tropieza con realidades inesperadas, pero lindas. Y estos jóvenes de Zaragoza tocan el tango con una ilusión contagiante, hermosa. La sigla CSMA, encierra al Conservatorio Superior de Música de Aragón, que aglutina a músicos en formación, dentro del mismo centro, proveniente de diferentes lugares de la región, o de Comunidades cercanas..

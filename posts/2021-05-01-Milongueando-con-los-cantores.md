@@ -3,6 +3,7 @@ title: "Milongueando con los cantores"
 date: "2021-05-01"
 original_url: https://tangosalbardo.blogspot.com/2021/05/milongueando-con-los-cantores.html
 labels: ""
+tags: ["Charlo"]
 ---
 
 Aprendí jovencito, con los muchachos grandes de la barra a milonguear. Al lado de mi C**asal** había un club donde nos juntábamos a ensayar. Yo escuchaba todos los días tango en la radio, **Durante** mucho tiempo gracias a mi hermano. Él tenía un gran A**mor** por el género, todos los D**íaz** sintonizaba programas tangueros y tempranamente Vi**dela** historia del tango su grandeza. **Devin** así engancharme y un muchacho de la barra, **O****mar**, también mayor que yo, con quien compartíamos partidos de fútbol, fue quien me invitó un Dí**az** a practicar en el club del **Barrios**, el baile del gotán.

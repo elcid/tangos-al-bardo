@@ -3,6 +3,7 @@ title: "Vida querida"
 date: "2021-08-09"
 original_url: https://tangosalbardo.blogspot.com/2021/08/vida-querida.html
 labels: ""
+tags: ["Osvaldo Fresedo", "Ignacio Corsini", "Ricardo Ruiz"]
 ---
 
 En estos días de verano tórrido, las playas del sur y del norte me han dado la energía necesaria como para seguir rememorando etapas del tango que dejaron huella. Hoy, por ejemplo escucho a Fresedo, que es un poco la matriz de Di Sarli, con el predominio de los violines, además de otros instrumentos que fue introduciendo como el arpa o la percusión, dándole al conjunto un aura refinado pero llegador.

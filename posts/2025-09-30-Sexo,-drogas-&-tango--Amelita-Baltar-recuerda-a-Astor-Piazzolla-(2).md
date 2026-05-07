@@ -3,6 +3,7 @@ title: "Sexo, drogas & tango: Amelita Baltar recuerda a Astor Piazzolla (2)     
 date: "2025-09-30"
 original_url: https://tangosalbardo.blogspot.com/2025/09/sexo-drogas-tango-amelita-baltar_30.html
 labels: ""
+tags: ["Astor Piazzolla", "Susana Rinaldi", "Horacio Ferrer", "Edmundo Rivero", "Horacio Salgán", "Ubaldo De Lío"]
 ---
 
 Texto: *Julio De Bonis con la colaboración de Martín Robbio*

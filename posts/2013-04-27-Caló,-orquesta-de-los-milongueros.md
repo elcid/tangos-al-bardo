@@ -3,6 +3,7 @@ title: "Caló, orquesta de los milongueros"
 date: "2013-04-27"
 original_url: https://tangosalbardo.blogspot.com/2013/04/calo-orquesta-de-los-milongueros.html
 labels: ""
+tags: ["Domingo Federico", "Osvaldo Fresedo", "Armando Pontier", "Alberto Podestá", "Cátulo Castillo", "Homero Expósito", "Osmar Maderna", "Raúl Kaplún"]
 ---
 
 Uno nota esa alteración en las mesas, las sillas y el ardor de la pista cuando suena Caló. Muchos bailarines de ambos sexos me han confesado a lo largo de los años sus preferencias por esta orquesta, debido al swing milonguero que ofrece para el disfrute.

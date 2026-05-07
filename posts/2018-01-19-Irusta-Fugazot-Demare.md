@@ -3,6 +3,7 @@ title: "Irusta-Fugazot-Demare"
 date: "2018-01-19"
 original_url: https://tangosalbardo.blogspot.com/2018/01/irusta-fugazot-demare.html
 labels: ""
+tags: ["Francisco Canaro", "Aníbal Troilo", "Carlos Gardel", "Alfredo Gobbi", "Pedro Maffia", "Lucio Demare"]
 ---
 
 Era el trío más mentado que pudo haber caminado por esas calles de... París, Madrid, México, La Habana, Lima, Buenos Aires...Una época en la que el prestigio ganado desde su arranque en Madrid, les sirvió para abrir puertas, actuar en teatros, en cines, vender discos y hasta filmar películas, A la vez componían temas que tenían formidable pegada, muchos de ellos continúan sonando en reproductores de medio mundo.

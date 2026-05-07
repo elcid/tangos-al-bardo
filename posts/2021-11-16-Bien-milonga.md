@@ -3,6 +3,7 @@ title: "Bien milonga"
 date: "2021-11-16"
 original_url: https://tangosalbardo.blogspot.com/2021/11/bien-milonga_16.html
 labels: ""
+tags: ["Francisco Canaro", "Carlos Di Sarli"]
 ---
 
 Bailemos el tango que nos hace estremecer y así junto a tu oído de amor yo te hablaré.

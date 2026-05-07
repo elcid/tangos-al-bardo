@@ -3,6 +3,7 @@ title: "Los bandoneones de Di Sarli"
 date: "2013-04-26"
 original_url: https://tangosalbardo.blogspot.com/2013/04/los-bandoneones-de-di-sarli.html
 labels: ""
+tags: ["Leopoldo Federico", "Carlos Di Sarli", "Osvaldo Fresedo", "Roberto Rufino", "Aníbal Troilo", "Roberto Firpo", "Julián Plaza"]
 ---
 
 Toda la familia del tango se asombró siempre de las maravillas que logró Carlos Di Sarli con su orquesta, pese a no tener grandes orquestaciones ni arreglos muy trabajados. El estilo disarliano, con su* fuego sagrado*, como lo definía el bandoneonista de su orquesta Félix Verdi, que estuvo 22 años tocando en la orquesta del gran maestro de Bahía Blanca, sigue asombrando hoy día.

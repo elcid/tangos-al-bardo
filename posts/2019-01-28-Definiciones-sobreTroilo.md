@@ -3,6 +3,7 @@ title: "Definiciones sobreTroilo"
 date: "2019-01-28"
 original_url: https://tangosalbardo.blogspot.com/2019/01/definiciones-sobretroilo.html
 labels: ""
+tags: ["Luis Adolfo Sierra", "Leopoldo Federico", "Osvaldo Pugliese", "Astor Piazzolla", "Rodolfo Mederos", "Horacio Ferrer", "José Colángelo", "Aníbal Troilo"]
 ---
 
 HORACIO FERRER- Troilo fue el que cambió el tango. El tango moderno lo inventó él con sus pocos conocimientos musicales, pero con su condición de gran músico. Tenía la sensibilidad y la capacidad de ser un director con todas las de la ley. Nació para eso. Evidentemente, dirigía todo. Él estaba en un escenario y ya tenía la idea de cómo debía que estar la orquesta, cómo vestirla y cómo tratar a los músicos. A Troilo, cuando se mimetizaba con el bandoneón, se lo podía ver con los ojos cerrados, como viajando por su interior, de donde salían las más exquisitas melodías. Esa imagen, tan típica, tenía una explicación. “*Hay que saber el repertorio de memoria. Mis músicos saben 120 tangos, las orquestaciones de memoria. Porque cuando se lee la música se hacen dos trabajos: leer y expresarse. Cuando se sabe de memoria, se hace uno solo, que es expresarse*”, decía Pichuco.

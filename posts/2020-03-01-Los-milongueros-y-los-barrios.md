@@ -3,6 +3,7 @@ title: "Los milongueros y los barrios"
 date: "2020-03-01"
 original_url: https://tangosalbardo.blogspot.com/2020/03/el-tango-milonguero-y-los-barrios.html
 labels: ""
+tags: ["Pepito Avellaneda", "Alberto Castillo", "Osvaldo Fresedo", "Antonio Todaro", "Julián Centeya", "Carlos Gavito", "Osvaldo Zotto", "María Nieves"]
 ---
 
 A veces me dan ganas de recrear historias reales, vividas en primera persona, con la única finalidad de que dicha realidad prime sobre tantos mitos que se crean y perviven largamente. Incluso saltan por sobre las fronteras y se incrustan en relatos que navegan en la irrealidad, convirtiendo la historia en historieta. Nada grave, pero me gusta que los tangueros y milongueros cuenten sus vivencias y entre todos nos formemos una visión real del pasado que nos ha traído hasta acá.

@@ -3,6 +3,7 @@ title: "BIEN MILONGA"
 date: "2017-08-22"
 original_url: https://tangosalbardo.blogspot.com/2017/08/bien-milonga.html
 labels: ""
+tags: ["Alfredo Le Pera", "Juan D'Arienzo", "Aníbal Troilo"]
 ---
 
 *"Yo adivino el parpadeo*

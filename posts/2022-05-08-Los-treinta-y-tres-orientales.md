@@ -3,6 +3,7 @@ title: "Los treinta y tres orientales"
 date: "2022-05-08"
 original_url: https://tangosalbardo.blogspot.com/2022/05/los-treinta-y-tres-orientales.html
 labels: ""
+tags: ["Carlos Di Sarli"]
 ---
 
 Los Treinta y Tres Orientales es el nombre con el que se conoce a los hombres que, liderados por Juan Antonio Lavalleja y Manuel Oribe, en 1825, emprendieron una insurrección para reincorporar la Banda Oriental (territorio que comprendía lo que hoy es Uruguay y parte del dominio brasileño) a las Provincias Unidas del Río de la Plata.

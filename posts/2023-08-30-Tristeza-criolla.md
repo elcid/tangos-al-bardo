@@ -3,6 +3,7 @@ title: "Tristeza criolla"
 date: "2023-08-30"
 original_url: https://tangosalbardo.blogspot.com/2023/08/tristeza-criolla.html
 labels: ""
+tags: ["Ignacio Corsini", "Juan D'Arienzo", "Nelly Omar"]
 ---
 
 Este hermoso valsecito criollo, tiene una historia detrás y creo que es importante recordarlo porque la música nos lleva a zonas distorsionadas de nuestra memoria. La fabulación imaginaria, o el hecho real trasladado a la poesía, es el yunque donde se martilla la emoción de las palabras. Así se crean temas como éste que pueden difuminarse y alcanzar otros bríos en nuevos intérpretes.

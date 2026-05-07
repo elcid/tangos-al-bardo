@@ -3,6 +3,7 @@ title: "UN CD de Di Sarli"
 date: "2018-05-28"
 original_url: https://tangosalbardo.blogspot.com/2018/05/un-cd-de-di-sarli.html
 labels: ""
+tags: ["Carlos Di Sarli", "Alberto Podestá", "José Libertella", "Roberto Rufino", "Julián Plaza"]
 ---
 
 A veces da gusto descubrir a algún profesional, fuera de las fronteras rioplatenses y sudamericanas, que trata de descubrir y comprender algunas aristas del tango que han sido poco tratadas. En este caso se trata de un disjockey, cotizado en Europa, que musicaliza milongas y Festivales en distintas ciudades de este continente, y que analiza este LP de la orquesta de Carlos Di Sarli, que le ha llamado la atención, y con mucha razón.

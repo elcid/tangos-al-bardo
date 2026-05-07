@@ -3,6 +3,7 @@ title: "Doblete de Firpo"
 date: "2013-05-29"
 original_url: https://tangosalbardo.blogspot.com/2013/05/doblete-de-firpo.html
 labels: ""
+tags: ["Francisco Canaro", "Rosita Quiroga", "Roberto Firpo", "Carlos Gardel"]
 ---
 
 Me gusta traerlo al pianista de Las Flores, porque escuchándolo seguido, uno va siguiendo esa línea evolucionista que mantuvo con su orquesta -al margen de lo que grabara con el cuarteto-, y dejando unas composiciones que siguen desafiando al paso del tiempo por su enjundia tanguera.

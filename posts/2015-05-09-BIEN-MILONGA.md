@@ -3,6 +3,7 @@ title: "BIEN MILONGA"
 date: "2015-05-09"
 original_url: https://tangosalbardo.blogspot.com/2015/05/bien-milonga_9.html
 labels: ""
+tags: ["Mariano Mores", "Héctor Varela"]
 ---
 
 Carlitos Gardel cantaba este tango de Enrique P. Maroni:

@@ -3,6 +3,7 @@ title: "Orquesta Los Provincianos"
 date: "2017-10-26"
 original_url: https://tangosalbardo.blogspot.com/2017/10/orquesta-los-provincianos.html
 labels: ""
+tags: ["Adolfo Carabelli", "Osvaldo Fresedo", "Luis Petrucelli", "Eduardo Arolas", "Aníbal Troilo", "Alberto Gómez", "Orlando Goñi"]
 ---
 
 En los años veinte, Osvaldo Fresedo emigró de la RCA Victor, donde era un puntal, pasando a registrar sus grabaciones en el sello Odeón. El Director artístico de la RCA resolvió entonces crear varios conjuntos para vender discos y así nacieron: La Típica Victor, la Victor popular, La Típica Porteña, la Radio Victor, la Orquesta Argentina Victor, el Cuarteto Victor, La Victor Popular , la orquesta Victor Internacional, El Trío Victor y Los Provincianos. Los músicos rotaban a la hora de grabar y la dirección de estas orquestas corrieron a cargo de músicos de fuste seleccionados por Adolfo Carabelli, que era el director artístico y a la vez de la orquesta.

@@ -3,6 +3,7 @@ title: "Ricardo Vidort"
 date: "2021-08-20"
 original_url: https://tangosalbardo.blogspot.com/2021/08/ricardo-vidort.html
 labels: ""
+tags: ["Carlos Di Sarli"]
 ---
 
 **El estilo milonguero y la forma de enseñar y transmitir**

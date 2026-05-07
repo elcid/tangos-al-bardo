@@ -3,6 +3,7 @@ title: "Cuando tallan los recuerdos"
 date: "2024-10-09"
 original_url: https://tangosalbardo.blogspot.com/2024/10/cuando-tallan-los-recuerdos.html
 labels: ""
+tags: ["Enrique Cadícamo", "Osvaldo Pugliese", "Alberto Marino", "Raúl Garello"]
 ---
 
 Llueve llueve en el suburbio... en el centro y en las afueras de Madrid. Una lluvia que no parará durante horas. Y me llega desde el recuerdo este tango de Enrique Cadícamo y el fueye mercedino Rafael Rossi, que refleja perfectamente esos días grises que muerden el alma. Sobre todo en el caso del prolífico poeta, que está sólo en su apartamento y el frío del ambiente le penetra hondamente.

@@ -3,6 +3,7 @@ title: "Eras como la flor"
 date: "2023-06-14"
 original_url: https://tangosalbardo.blogspot.com/2023/06/eras-como-la-flor.html
 labels: ""
+tags: ["Mario César Arrieta", "Roberto Rufino", "Héctor Varela"]
 ---
 
 Apareció en los años cincuenta, allá por 1954 y rápidamente se desparramó por las emisoras radiales y por la televisión en el ritmo de orquestas y golas de cantores como Varela-Ledesma, Rotundo-Sosa, D'Arienzo-Laborde, Marino-Osvaldo Manzi, Basso-Galé,. Fue una gran pegada y realmente el tema, tanto en la letra como en la música tenían mucho gancho.

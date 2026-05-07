@@ -3,6 +3,7 @@ title: "La madrugada"
 date: "2016-09-12"
 original_url: https://tangosalbardo.blogspot.com/2016/09/la-madrugada.html
 labels: ""
+tags: ["Cátulo Castillo", "Juan D'Arienzo", "Aníbal Troilo", "Pedro Laurenz"]
 ---
 
 Hay tangos que encierran en mi memoria vivencias inolvidables, reminiscencias de épocas maravillosas para mi adolescencia, cuando esta música porteña me llevaba en vilo hasta la milonga. En aquellas prácticas entre varones de la barra, aprendíamos a bailar, a llevar, a ser llevados, a marcar secuencias, a escuchar las distintas orquestas para adherirnos a su cambiante.compás.

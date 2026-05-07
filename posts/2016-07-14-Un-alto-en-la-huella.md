@@ -3,6 +3,7 @@ title: "Un alto en la huella"
 date: "2016-07-14"
 original_url: https://tangosalbardo.blogspot.com/2016/07/un-alto-en-la-huella.html
 labels: ""
+tags: ["Fulvio Salamanca", "Armando Pontier", "Juan D'Arienzo", "Carlos Bahr"]
 ---
 
 El estío castiga con rigor y el cuerpo pide playa y mar. Al fin de cuentas uno es humano y tiene que darle gusto al cuerpo. De** BIEN MILONGA** nos despedimos hasta el 3 de setiembre porque en Agosto cierra la Casa de Aragón, en Madrid y ahora están de obras. Así que, estimados amigos de **Tangos al bardo**, me tomaré un descansito y los abandono por unos días, aunque les dejo páginas y música en el blog, para que se entretengan a piaccere..

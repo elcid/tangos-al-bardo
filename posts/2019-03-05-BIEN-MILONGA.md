@@ -3,6 +3,7 @@ title: "BIEN MILONGA"
 date: "2019-03-05"
 original_url: https://tangosalbardo.blogspot.com/2019/03/bien-milonga.html
 labels: ""
+tags: ["Enrique Rodríguez", "Francisco Canaro", "Juan D'Arienzo", "Lito Bayardo"]
 ---
 
 *Va llegando gente al baile y hay que ver*

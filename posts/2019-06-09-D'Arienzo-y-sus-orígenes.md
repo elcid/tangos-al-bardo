@@ -3,6 +3,7 @@ title: "D'Arienzo y sus orígenes"
 date: "2019-06-09"
 original_url: https://tangosalbardo.blogspot.com/2019/06/darienzo-y-sus-origenes.html
 labels: ""
+tags: ["Juan D'Arienzo", "Anselmo Aieta", "Héctor Varela"]
 ---
 
 Por su impronta, sus modales, la manera de dirigir a la orquesta, los tangos *reos* que cantaba Echagüe y que hicieron huella en su época, por todos estos rasgos típicos, D'Arienzo siempre dio esa imagen de tipo de barrio, pícaro, atorrante, jodón, pasional y vivaracho. Siempre dispuesto a la exageración, a la broma, incluso con los cantores (Mario Bustos no le soportaba esas cosas) aunque la orquesta siempre marchara al ritmo vibrante que lo catapultó al éxito.

@@ -3,6 +3,7 @@ title: "Poema lunfa "
 date: "2012-09-24"
 original_url: https://tangosalbardo.blogspot.com/2012/09/poema-lunfa.html
 labels: ""
+tags: ["Edgardo Donato", "Anselmo Aieta"]
 ---
 
 Hace tiempo escribí ese soneto lunfa dedicado a mi barrio: Parque Patricios.

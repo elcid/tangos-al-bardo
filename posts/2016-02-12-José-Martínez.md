@@ -3,6 +3,7 @@ title: "José Martínez"
 date: "2016-02-12"
 original_url: https://tangosalbardo.blogspot.com/2016/02/jose-martinez.html
 labels: ""
+tags: ["Francisco Canaro", "Pascual Contursi", "Osvaldo Pugliese", "Osvaldo Fresedo", "Eduardo Arolas", "Juan D'Arienzo", "Vicente Greco", "Agustín Bardi"]
 ---
 
 Siempre me llamó la atención, este pianista y compositor, por la obra que dejó en forma de tangos imperecederos que se siguen escuchando y bailando a tantos años de su aparición. Unos me gustan más que otros, pero quizás lo más notable de todo, es que este hombre al que apodaban curiosamente "el gallego", que tenía antecedentes familiares argentinos hasta sus bisabuelos, como él lo aclaró en varias oportunidades, no sabía ni leer ni escribir música. Era un intuitivo que aprendió a tocar el piano viendo ejecutar el instrumento a algunos amigos.

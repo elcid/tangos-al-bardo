@@ -3,6 +3,7 @@ title: "Arias-Montes"
 date: "2017-03-15"
 original_url: https://tangosalbardo.blogspot.com/2017/03/arias-montes.html
 labels: ""
+tags: ["Juan Carlos Cobián", "Leopoldo Federico", "Libertad Lamarque", "Joaquín Do Reyes", "Víctor Lavallén", "Alberto Marino", "Edmundo Rivero", "Carlos García"]
 ---
 
 Ayer, charlando con el amigo Fabián Bertero, y a propósito de su dúo con Miguel Pereiro, recordábamos otros dúos famosos, y surgió el caso de lo que traigo hoy al Blog. Ya les contaré lo de ayer con estos dos músicos geniales, pero vale la pena volver a traer del olvido a este fueye rosarino y al guitarrista de Villa Devoto, que incursionó en la música clásica, el jazz y el folklore, para instalarse definitivamente en el paisaje tanguero, tocando incluso con Pichuco, que admiraba su gran capacidad muicial y la adaptación al cuarteto con el Gordo.

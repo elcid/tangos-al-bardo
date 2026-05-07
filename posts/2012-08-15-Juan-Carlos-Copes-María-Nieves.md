@@ -3,6 +3,7 @@ title: "Juan Carlos Copes-María Nieves"
 date: "2012-08-15"
 original_url: https://tangosalbardo.blogspot.com/2012/08/juan-carlos-copes-maria-nieves.html
 labels: ""
+tags: ["Juan Carlos Copes", "María Nieves"]
 ---
 
 Por lo mucho que han hecho por la difusión internacional del tango-danza; por el camino que le han abierto a tantas parejas jóvenes que hoy desfilan en Festivales y actuaciones en todo el mundo; por su calidad humana, debemos reconocerle sus enormes méritos profesionales y visionarios.

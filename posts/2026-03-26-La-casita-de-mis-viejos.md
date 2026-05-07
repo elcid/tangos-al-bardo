@@ -3,6 +3,7 @@ title: "La casita de mis viejos"
 date: "2026-03-26"
 original_url: https://tangosalbardo.blogspot.com/2026/03/la-casita-de-mis-viejos.html
 labels: ""
+tags: ["Juan Carlos Cobián", "Enrique Cadícamo", "Armando Pontier", "Julio Sosa"]
 ---
 
 Enrique Cadícamo: "Cobián estaba a cargo de la asesoría musical de la Editorial Ricordi y un día me telefonea pidiéndome que me acerque allá, a San Martín al 500, para escuchar un tango que acaba de componer. Aquella sería nuestra primera colaboración.

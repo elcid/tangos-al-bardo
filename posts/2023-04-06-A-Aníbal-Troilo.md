@@ -3,6 +3,7 @@ title: "A Aníbal Troilo"
 date: "2023-04-06"
 original_url: https://tangosalbardo.blogspot.com/2023/04/a-anibal-troilo.html
 labels: ""
+tags: ["Aníbal Troilo"]
 ---
 
 Pichuco, soy yo tu bandoneón el que te habla,

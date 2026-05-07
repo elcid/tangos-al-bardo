@@ -3,6 +3,7 @@ title: "Los cantores y el baile"
 date: "2019-07-22"
 original_url: https://tangosalbardo.blogspot.com/2019/07/los-cantores-y-el-baile.html
 labels: ""
+tags: ["Roberto Goyeneche", "Alberto Castillo", "Edmundo Rivero", "Julio Martel", "Ricardo Ruiz", "Ángel Vargas"]
 ---
 
 En los últimos tiempos entre cada *cosa nueva* que se pretende introducir en la danza del tango, también figura la supuesta diferencia entre los tangos instrumentales y los cantados. Incluso algunos "pinchas", agregan sus opiniones sobre dicha pretendida diferencia, que a mí, como milonguero curtido en tantas noches, en clubes, en salones del centro, con orquestas en vivo, con grabaciones y demás, me cuesta muchísimo llegar a entender, ni siquiera medianamente.

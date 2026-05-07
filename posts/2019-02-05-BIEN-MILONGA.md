@@ -3,6 +3,7 @@ title: "BIEN MILONGA"
 date: "2019-02-05"
 original_url: https://tangosalbardo.blogspot.com/2019/02/bien-milonga.html
 labels: ""
+tags: ["Alfredo De Angelis", "Francisco Canaro", "Alberto Castillo", "Ricardo Tanturi", "Carlos Dante"]
 ---
 
 [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj9mY6TQB44VBkCfDB2kf9mjt_ZfdAZxOlW7MyKEnwaPM9OFj9i5lr7HDtdgeMFx7lcpqz1yGi_rbgx8Ej2R7W6usLsDBQSMaod5VIKlPqeN4slB0P7RfTIqJPRkHitAlpnk30dF3TSDpsB/s200/Lumiere.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj9mY6TQB44VBkCfDB2kf9mjt_ZfdAZxOlW7MyKEnwaPM9OFj9i5lr7HDtdgeMFx7lcpqz1yGi_rbgx8Ej2R7W6usLsDBQSMaod5VIKlPqeN4slB0P7RfTIqJPRkHitAlpnk30dF3TSDpsB/s1600/Lumiere.jpg) * Estar así... ensimismados en la unión*

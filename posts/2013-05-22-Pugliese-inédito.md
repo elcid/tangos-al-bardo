@@ -3,6 +3,7 @@ title: "Pugliese inédito"
 date: "2013-05-22"
 original_url: https://tangosalbardo.blogspot.com/2013/05/pugliese-inedito.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Carlos Gardel", "Manuel Meaños"]
 ---
 
 La larga y fecunda carrera de Osvaldo Pugliese, de honda raigambre en el pueblo que sigue entusiasmándose con su legado tanguero, contiene algunas versiones de páginas que no llegó a grabar comercialmente pero que sí fueron registradas por aquellos que quieren preservar estos documentos.

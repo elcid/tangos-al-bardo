@@ -3,6 +3,7 @@ title: "La gran etapa del tango (2)"
 date: "2025-09-29"
 original_url: https://tangosalbardo.blogspot.com/2025/09/la-gran-etapa-del-tango-2.html
 labels: ""
+tags: ["Celedonio Flores", "Juan D'Arienzo", "Osmar Maderna", "Floreal Ruiz"]
 ---
 
 El porteño se encontró de pronto viviendo la realidad que un periodista, Dante Panzeri, supo sintetizar de esta manera: "Perón pateaba lingotes de oro que impedían sus paso en los pasillos del Banco central. Yo cenaba en el Tabarís, con champán y show, por cinco pesos.

@@ -3,6 +3,7 @@ title: "Cuando todo se vino abajo"
 date: "2025-03-31"
 original_url: https://tangosalbardo.blogspot.com/2025/03/cuando-todo-se-vino-abajo.html
 labels: ""
+tags: ["Edmundo Rivero"]
 ---
 
 Nunca interrumpí mis actuaciones en la televisión, acudí de tanto en tanto a la radio, hubo actuación en teatros y una incluso en el propio Colón, pero todos estos años han sido para mí, los del **Viejo Almacén**. No sólo lo vi nacer y crecer sino que hasta me tocó verlo caer y levantarse. Allí es donde cada noche he dado lo mejor de mí.

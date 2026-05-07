@@ -3,6 +3,7 @@ title: "Angelito Vargas en registros poco difundidos"
 date: "2012-05-17"
 original_url: https://tangosalbardo.blogspot.com/2012/05/angelito-vargas-en-registros-poco.html
 labels: ""
+tags: ["Francisco Canaro", "Homero Manzi"]
 ---
 
 Hoy los invito a escuchar algunos temas que grabó el gran cantor de Parque Patricios, fuera de la órbita de su inolvidable pareja musical: Ángel D'Agostino.

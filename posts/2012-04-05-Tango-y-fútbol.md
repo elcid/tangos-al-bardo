@@ -3,6 +3,7 @@ title: "Tango y fútbol"
 date: "2012-04-05"
 original_url: https://tangosalbardo.blogspot.com/2012/04/tango-y-futbol.html
 labels: ""
+tags: ["Carlos Di Sarli", "Atilio Stampone", "Julián Centeya", "Vicente Greco", "Agustín Bardi", "Ernesto Baffa", "Alfredo Gobbi", "Héctor Varela"]
 ---
 
 El fútbol argentino y el tango han convivido fraternalmente por tratarse de dos grandes pasiones populares.

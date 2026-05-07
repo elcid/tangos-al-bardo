@@ -3,6 +3,7 @@ title: "Amanda Ledesma"
 date: "2012-07-03"
 original_url: https://tangosalbardo.blogspot.com/2012/07/amanda-ledesma.html
 labels: ""
+tags: ["Libertad Lamarque", "Rosita Quiroga"]
 ---
 
 **

@@ -3,6 +3,7 @@ title: "BIEN MILONGA"
 date: "2015-01-24"
 original_url: https://tangosalbardo.blogspot.com/2015/01/bien-milonga_24.html
 labels: ""
+tags: ["Alberto Podestá", "Pedro Laurenz"]
 ---
 
 *Sábado a la tarde, te planchás el traje, *

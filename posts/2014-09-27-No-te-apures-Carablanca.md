@@ -3,6 +3,7 @@ title: "No te apures Carablanca"
 date: "2014-09-27"
 original_url: https://tangosalbardo.blogspot.com/2014/09/no-te-apures-carablanca.html
 labels: ""
+tags: ["Enrique Rodríguez", "Homero Expósito", "Ignacio Corsini", "Hugo del Carril", "Mercedes Simone", "Aníbal Troilo", "Lucio Demare", "Carlos Bahr"]
 ---
 
 Hoy es sábado, tengo la milonga a la noche, una clase antes y por eso quiero terminar la settimana a pura poesía y música. Y elegí este tango de uno de los poetas que merecen estar en el podio de los grandes. Me refiero a Carlos Bahr, quien dejó sembrada una parva de temas que iluminaron las noches interminables del cuarenta y cincuenta. La música le pertenece a Roberto Garza, bandoneonista, arreglador, director y compositor.

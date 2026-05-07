@@ -3,6 +3,7 @@ title: "Horacio Salgán"
 date: "2026-01-27"
 original_url: https://tangosalbardo.blogspot.com/2026/01/horacio-salgan.html
 labels: ""
+tags: ["Francisco Canaro", "Horacio Salgán", "Carlos García", "Julio De Caro", "Roberto Firpo", "Miguel Caló"]
 ---
 
 Porteño de ley, nacido en la calle Gallo, el 15 de julio de 1916, con apenas 3 años veía a su padre castigar el piano y se enamoró del instrumento. Sus primeros estudios musicales los desarrolló en la modesta academia del maestro Luppo, en el barrio de Caballito. A los 13 ya era un aventajado alumno del Conservatorio Municipal y consumado intérprete de Bach, Beethoven, Ravel, Debussy y Chopin.

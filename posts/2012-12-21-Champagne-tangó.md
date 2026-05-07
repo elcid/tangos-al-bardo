@@ -3,6 +3,7 @@ title: "Champagne tangó"
 date: "2012-12-21"
 original_url: https://tangosalbardo.blogspot.com/2012/12/champagne-tango.html
 labels: ""
+tags: ["Pascual Contursi", "Juan D'Arienzo", "Roberto Firpo"]
 ---
 
 Cuando sufrimos en alguna pista europea la desidia, inconstancia e ignorancia de las reglas de un buen musicalizador, que nos permita disfrutar del ritmo bailable de tantas orquesta típicas, nos damos cuenta de lo mucho que sabíamos cuando teníamos 20 años y recorríamos las mejores milongas de Buenos Aires.

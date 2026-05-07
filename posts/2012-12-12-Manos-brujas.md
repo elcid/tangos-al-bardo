@@ -3,6 +3,7 @@ title: "Manos brujas"
 date: "2012-12-12"
 original_url: https://tangosalbardo.blogspot.com/2012/12/manos-brujas.html
 labels: ""
+tags: ["Juan D'Arienzo", "José Martínez", "Juan Maglio"]
 ---
 
 Rodolfo Biagi está en las páginas de la historia tanguera por motivos varios y todos válidos, pero a mí me gustaría destacarlo especialmente por haber transmitido su energía pianística a la orquesta de Juan D'Arienzo, consolidando el cambio que en ese año 1935 ya había mostrado el *Rey del compás *con el uruguayo Lidio Fasoli al piano, y alejándose de sus primeros años como director de una orquesta, que sonaba de una manera neutra, sin fuerza.

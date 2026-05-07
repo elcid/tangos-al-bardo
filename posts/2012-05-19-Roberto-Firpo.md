@@ -3,6 +3,7 @@ title: "Roberto Firpo"
 date: "2012-05-19"
 original_url: https://tangosalbardo.blogspot.com/2012/05/roberto-firpo.html
 labels: ""
+tags: ["Luis Adolfo Sierra", "Osvaldo Pugliese", "Roberto Firpo", "Carlos García"]
 ---
 
 Fue quien en mayor medida contribuyó a estructurar la definitiva composición de la Orquesta típica, según la certera aseveración del historiador y musicólogo Luis Adolfo Sierra.

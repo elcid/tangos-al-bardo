@@ -3,6 +3,7 @@ title: "Bien Milonga"
 date: "2021-10-19"
 original_url: https://tangosalbardo.blogspot.com/2021/10/bien-milonga_19.html
 labels: ""
+tags: ["Carlos Di Sarli", "Edgardo Donato"]
 ---
 
 Buena como nadie, linda como el sol

@@ -3,6 +3,7 @@ title: "Miguel Orlando"
 date: "2014-07-31"
 original_url: https://tangosalbardo.blogspot.com/2014/07/miguel-orlando.html
 labels: ""
+tags: ["Enrique Santos Discépolo", "Francisco Canaro", "Luis Petrucelli", "Alfredo Le Pera", "Aníbal Troilo", "Vicente Greco", "Julio De Caro", "Roberto Firpo"]
 ---
 
 Su sobrino nieto, Mario Orlando, es uno de los mejores musicalizadores de las milongas porteñas y charlando con él, en el Salón *La Argentina*, me recordaba precisamente a este bandoneonista, a quien llamaban *El Pibe*, porque empezó tocando de pantalones cortos y con mucho tino.

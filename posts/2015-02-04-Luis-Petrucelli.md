@@ -3,6 +3,7 @@ title: "Luis Petrucelli"
 date: "2015-02-04"
 original_url: https://tangosalbardo.blogspot.com/2015/02/luis-petrucelli.html
 labels: ""
+tags: ["Francisco Canaro", "Adolfo Carabelli", "Ismael Spitalnik", "Osvaldo Fresedo", "Luis Petrucelli", "Eduardo Arolas", "Julio De Caro", "José Martínez"]
 ---
 
 Fue uno de los grandes bandoneonistas que abrieron el camino y que me encanta. Su sonidos, sus fraseos, son realmente hermosos, como correponde a un alumno del *alemán* Bernstein, aquel que rivalizara en los cafetines de la Boca, nada menos que con Eduardo Arolas. Curiosamente, Arturo Bernstein nació en Brasil, aunque se crió en Buenos Aires, pero por su apellido gemano, y la afición a los *chops* de cerveza, le quedó el apelativo. Era un bandoneonista de escuela que tocaba con partituras en una época que casi ninguno lo hacía. Y fue un gran maestro que transmitió sus enseñanzas a tres pichones que harían roncha en la historia del tango: Federico Scorticati, Ismael Spitalnik y el citado Petrucelli.

@@ -3,6 +3,7 @@ title: "Bien milonga"
 date: "2017-12-12"
 original_url: https://tangosalbardo.blogspot.com/2017/12/bien-milonga_12.html
 labels: ""
+tags: ["Carlos Di Sarli", "Alberto Echagüe", "Alberto Podestá", "Juan D'Arienzo"]
 ---
 
 * Yo soy repique de tango*

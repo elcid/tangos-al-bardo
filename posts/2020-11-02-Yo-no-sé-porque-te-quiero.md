@@ -3,6 +3,7 @@ title: "Yo no sé porque te quiero"
 date: "2020-11-02"
 original_url: https://tangosalbardo.blogspot.com/2020/11/yo-no-se-porque-te-quiero.html
 labels: ""
+tags: ["Francisco Lomuto", "Francisco Canaro", "Ignacio Corsini", "Ivo Pelay"]
 ---
 
 Este tango de Francisco Canaro e Ivo Pelay lo crearon en 1934 para la obra teatral "La canción de los barrios", que se estrenó el 17 de julio de dicho año en el teatro Sarmiento, situado en la calle Cangallo, entre Carlos Pellegrini y Cerrito (ya desaparecido). Se trataba de una de las tantas comedias musicales que supieron tejer entre ambos.

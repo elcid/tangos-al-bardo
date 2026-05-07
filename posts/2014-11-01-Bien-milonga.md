@@ -3,6 +3,7 @@ title: "Bien milonga"
 date: "2014-11-01"
 original_url: https://tangosalbardo.blogspot.com/2014/11/bien-milonga.html
 labels: ""
+tags: ["Ismael Spitalnik", "Aníbal Troilo", "Julio De Caro"]
 ---
 
 Así se llama la Milonga que llevo los sábados por la noche en Madrid. Como el bello tango de Ismael Spitalnik. Por eso hoy me doy un poco de manivela, pese a que no acostumbro a meterlo en el Blog. Me deleito seleccionando la música para cada día, aunque me lleve varias horas. Entiendo que es la única manera de llevar un sitio donde se baila Tango, y no se puede defraudar a los milongueros. Así lo hacía a mis dieciocho años, cuando armábamos la milonga en el Club Charleston, de mi barrio y venía la muchachada del Huracán, Barracas Central, Unidos de Pompeya y Boedo.

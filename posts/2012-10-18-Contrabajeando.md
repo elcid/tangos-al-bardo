@@ -3,6 +3,7 @@ title: "Contrabajeando"
 date: "2012-10-18"
 original_url: https://tangosalbardo.blogspot.com/2012/10/contrabajeando.html
 labels: ""
+tags: ["Francisco Fiorentino", "Horacio Malvicino", "Joaquín Do Reyes", "Aníbal Troilo", "José Bragato", "Lucio Demare"]
 ---
 
 Ástor Piazzolla estuvo tocando y en muchos casos, haciendo los arreglos, en la orquesta de Aníbal Troilo, desde 1939 hasta 1944, cuando se retira para dirigir la orquesta de Francisco Fiorentino, que también deja el conjunto de Pichuco.

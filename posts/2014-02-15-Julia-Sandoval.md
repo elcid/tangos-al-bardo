@@ -3,6 +3,7 @@ title: "Julia Sandoval"
 date: "2014-02-15"
 original_url: https://tangosalbardo.blogspot.com/2014/02/julia-sandoval.html
 labels: ""
+tags: ["José María Contursi", "Armando Pontier", "Cátulo Castillo", "Aníbal Troilo", "Raúl Garello", "Carlos Bahr"]
 ---
 
 En esas historias del tango que van sembrando recuerdos, siempre aparecen hilachas sueltas que vamos recogiendo por el camino y volvemos a armarlas. Esta excelente y hermosa actriz que tantas películas, radioteatros y programas de televisión protagonizó, también incursionó en el tango y lo hizo con notable acierto, aunque no insistió en el empeño, lamentablemente.

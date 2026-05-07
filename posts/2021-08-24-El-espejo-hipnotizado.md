@@ -3,6 +3,7 @@ title: "El espejo hipnotizado"
 date: "2021-08-24"
 original_url: https://tangosalbardo.blogspot.com/2021/08/el-espejo-hipnotizado.html
 labels: ""
+tags: ["Horacio Ferrer"]
 ---
 
 Marabú, con Di Sarli; Tibidabo, con Troilo; Chantecler con D'Arienzo, con D'Agostino, son ahora los tres refugios bohemios de la medianoche elegante de Buenos Aires de este tiempo.

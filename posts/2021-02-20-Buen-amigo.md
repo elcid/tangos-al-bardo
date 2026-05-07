@@ -3,6 +3,7 @@ title: "Buen amigo"
 date: "2021-02-20"
 original_url: https://tangosalbardo.blogspot.com/2021/02/buen-amigo.html
 labels: ""
+tags: ["Julio De Caro"]
 ---
 
 Este hermoso tango de Julio De Caro guarda una historia emotiva en su creación y estreno. Lo contó el propio De Caro cuando estuvo en nuetro programa "Dialogando con swing" que conducíamos con Osvaldo Papaleo los domingos por radio Argentina de 8 a 12.30 de la mañana. Ese día, además, me regaló dedicado su libro **El tango en mis recuerdos**, donde narra el emotivo proceso del mismo.

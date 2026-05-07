@@ -3,6 +3,7 @@ title: "El pensamiento vivo de Aníbal Troilo"
 date: "2020-11-06"
 original_url: https://tangosalbardo.blogspot.com/2020/11/el-pensamiento-vivo-de-anibal-troilo.html
 labels: ""
+tags: ["Juan Carlos Copes", "Roberto Goyeneche", "Astor Piazzolla", "Cátulo Castillo", "Roberto Rufino", "Alberto Marino", "Edmundo Rivero", "Horacio Ferrer"]
 ---
 
 Al cabo de casi un año de inactividad, "de pensar constantemente", una de las mayores deidades porteñas filosofa sobre los temas que más lo preocupan, y recorre su pasado, al que le es fiel porque allí nacieron sus amores de siempre. Pausado y sedentario ("*soy un gordo medio holgazán"*), discurre sobre sí mismo y advierte que algún día él mismo decidirá retirar a Pichuco de circulación

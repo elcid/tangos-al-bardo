@@ -3,6 +3,7 @@ title: "Los que Troilo no grabó (1)"
 date: "2021-12-10"
 original_url: https://tangosalbardo.blogspot.com/2021/12/los-que-troilo-no-grabo-1.html
 labels: ""
+tags: ["Enrique Santos Discépolo", "Francisco García Jiménez", "José González Castillo", "José María Contursi", "Francisco Pracánico", "Juan Carlos Cobián", "Enrique Cadícamo", "Celedonio Flores"]
 ---
 
 Es una verdadera pena todos los temas que Pichuco no llevó al disco, pese a tenerlos en su repertorio y tocarlos en radios, en milongas, en giras. Ya sabemos que lo de Odeón con su primera orquesta -la más bailable-, fue tan breve, que apenas grabó un disco de 78 rpm. en los cuales, de un lado estaba el tango de Eduardo Arolas: *Comme il faut*, y del otro, *Tinta verde*, de Agustín Bardi.

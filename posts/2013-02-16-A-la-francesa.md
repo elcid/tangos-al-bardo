@@ -3,6 +3,7 @@ title: "A la francesa"
 date: "2013-02-16"
 original_url: https://tangosalbardo.blogspot.com/2013/02/a-la-francesa.html
 labels: ""
+tags: ["Julián Centeya", "Héctor Varela", "Julio De Caro"]
 ---
 
 Los arregladores que no figuran en los créditos de los discos y con los cuales se ha cometido una terrible injusticia en ese sentido, han hecho cosas increíbles con páginas de tango, embelleciéndolas o hasta dotándolas de un nuevo ritmo, como sucedió con La Puñalada que era un tango y D'Arienzo lo transformó en una milonga que arrasó con todo.

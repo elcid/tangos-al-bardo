@@ -3,6 +3,7 @@ title: "Piazzolla y Borges"
 date: "2014-10-28"
 original_url: https://tangosalbardo.blogspot.com/2014/10/piazzolla-y-borges.html
 labels: ""
+tags: ["Edmundo Rivero"]
 ---
 
 La unión artística de estos dos genios pareció significar en su momento, una proeza imposible, de resultados maravillosos en el aspecto artístico. Por la enorme poesía borgiana y el impresionante talento creador de Piazzolla. Pero en el trato tuvieron varios choques, incomprensiones, y además el CD no consiguió salir de una zona oscura. Ni uno ni el otro guardaron buenos recuerdos de aquella aventura que además contó con la colaboración artística de Edmundo Rivero y Luis Medina Castro.

@@ -3,6 +3,7 @@ title: "Los Astros del tango"
 date: "2017-03-06"
 original_url: https://tangosalbardo.blogspot.com/2017/03/los-astros-del-tango.html
 labels: ""
+tags: ["Juan Carlos Cobián", "Luis Adolfo Sierra", "Florindo Sassone", "Osvaldo Pugliese", "Enrique Delfino", "Armando Pontier", "Eduardo Arolas", "Alberto Marino"]
 ---
 
 Este destacado septeto lo fundó un arreglador de primera línea, como lo fue Argentino Galván. Ocurrió en 1958, Galván escogió a músicos de jerarquía como Elvino Vardaro y Enrique Mario Francini en violines, Jaime Gosis en piano, el bandoneonista Julio Ahumada, José Bragato en cello (sería reemplazado más tarde por Enrique Bourget), Mario Lalli en viola y Rafael del Bagno en contrabajo.

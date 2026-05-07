@@ -3,6 +3,7 @@ title: "Gustavo y Giselle"
 date: "2014-08-17"
 original_url: https://tangosalbardo.blogspot.com/2014/08/gustavo-y-giselle.html
 labels: ""
+tags: ["Carlos Di Sarli", "Juan D'Arienzo"]
 ---
 
 Hoy me levanté muy milonguero, y compartiendo los matecitos y las medialunas, estuve escuchando un rato a Di Sarli y a D'Arienzo. Las piernas se movían solas debajo del escritorio y me hacía el bocho como si estuviera bailando en el salón, con una pareja bien acoplada.

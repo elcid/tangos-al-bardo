@@ -3,6 +3,7 @@ title: "Edgardo Martelli"
 date: "2014-08-08"
 original_url: https://tangosalbardo.blogspot.com/2014/08/edgardo-martelli.html
 labels: ""
+tags: ["José María Contursi", "Libertad Lamarque", "Alberto Castillo", "Osmar Maderna", "Mariano Mores", "León Benarós"]
 ---
 
 Acaba de regresar de Medellín, donde ya ha cumplido varias temporadas de actuaciones con notable repercusión, este cantor porteño que es ahijado artístico nada menos que de Libertad Lamarque. Tenía 21 años de edad y todas las posiblidades artísticas para ganarse su lugar en las carteleras del Tango, y el buen ojo de Libertad, le significó el pasaporte al éxito, a este más que sugestivo intérprete.

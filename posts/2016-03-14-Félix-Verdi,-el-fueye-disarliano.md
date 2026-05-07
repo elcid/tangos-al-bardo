@@ -3,6 +3,7 @@ title: "Félix Verdi, el fueye disarliano"
 date: "2016-03-14"
 original_url: https://tangosalbardo.blogspot.com/2016/03/felix-verdi-el-fueye-disarliano.html
 labels: ""
+tags: ["Francisco Canaro", "Carlos Di Sarli", "Ángel Villoldo", "Aníbal Troilo", "Julio De Caro", "Pedro Maffia"]
 ---
 
 Es curioso que se hable de un bandoneonista de la orquesta de Carlos Di Sarli, cuando en la formación de *El Señor del tango,* los fueyes ocupaban un discreto segundo plano, detrás del piano y las cuerdas. Pero, quizás por eso mismo, y por la curiosidad que despertaba el hecho de que en una orquesta típica, los bandoneones no fueran los que llevaban el ritmo, es que la palabra de este hombre veterano, e integrado por propia decisión en la formación que le atraía íntimamente, adquiere más relevancia y curiosidad.

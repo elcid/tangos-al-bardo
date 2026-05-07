@@ -3,6 +3,7 @@ title: "El mate amargo"
 date: "2012-09-09"
 original_url: https://tangosalbardo.blogspot.com/2012/09/el-mate-amargo.html
 labels: ""
+tags: ["Celedonio Flores", "Francisco Canaro", "Homero Expósito", "Alberto Morán", "Enrique Dizeo"]
 ---
 
 Todos saben que es la bebida nacional rioplatense. Una infusión que se toma diariamente, tanto en Argentina como en Uruguay, aunque también está arraigada en Paraguay y el sur de Brasil.

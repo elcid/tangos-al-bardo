@@ -3,6 +3,7 @@ title: "Carlos Gardel"
 date: "2012-04-24"
 original_url: https://tangosalbardo.blogspot.com/2012/04/carlos-gardel.html
 labels: ""
+tags: ["José María Aguilar", "Celedonio Flores", "Arturo De Bassi", "Carlos Gardel"]
 ---
 
 Hoy el cuore me pide escuchar a Carlitos. Es que , me cuesta pasar unos días sin poner un par de temas del *Mudo*, como mínimo.

@@ -3,6 +3,7 @@ title: "Bien Milonga"
 date: "2022-03-29"
 original_url: https://tangosalbardo.blogspot.com/2022/03/bien-milonga_29.html
 labels: ""
+tags: ["Alberto Echagüe", "Juan D'Arienzo", "Teófilo Ibáñez", "Héctor Mauré"]
 ---
 
 Buena como nadie, linda como el sol

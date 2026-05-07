@@ -3,6 +3,7 @@ title: "Andrés Linetzky"
 date: "2013-06-19"
 original_url: https://tangosalbardo.blogspot.com/2013/06/andres-linetzky.html
 labels: ""
+tags: ["Fernando Suárez Paz", "Leopoldo Federico", "Osvaldo Pugliese", "Rodolfo Mederos", "José Libertella", "Horacio Salgán", "Ángel Villoldo", "José Colángelo"]
 ---
 
 Algunos pilares del tango iniciático andaban a caballo, como el enorme Ángel Villoldo, que entre muchos oficios, era también cuarteador y sacaba los tranvías de la estacada con su pingo y su pericia. Hoy los nuevos valores tangueros viven arriba de los aviones, siguiendo aquella estela y demostrando sus grandes cualidades y lo mucho que tiene por mostrar el tango.

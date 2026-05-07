@@ -3,6 +3,7 @@ title: "Osvaldo Pugliese y su orquesta"
 date: "2020-03-06"
 original_url: https://tangosalbardo.blogspot.com/2020/03/osvaldo-pugliese-y-su-orquesta.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Alberto Morán"]
 ---
 
 El 11 de agosto de 1939 se produce el debut de Osvaldo Pugliese con su primera orquesta en el Café El Nacional, de la calle Corrientes 980. El escenario por el cual desfilaron orquestas y cantores de fábula, en una Buenos Aires nochera, con una cartografía emocional de gran calado. Y con elevada capacidad de creación por parte de los compositores que dejarían páginas inmortales para la historia.

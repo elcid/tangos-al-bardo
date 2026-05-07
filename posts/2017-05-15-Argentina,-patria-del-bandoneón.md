@@ -3,6 +3,7 @@ title: "Argentina, patria del bandoneón"
 date: "2017-05-15"
 original_url: https://tangosalbardo.blogspot.com/2017/05/argentina-patria-del-bandoneon.html
 labels: ""
+tags: ["Enrique Santos Discépolo", "Pascual Contursi", "Vicente Greco", "Aníbal Troilo", "Pedro Maffia", "Homero Manzi"]
 ---
 
 El Bandoneón llegó a Buenos Aires en el bagayo de un inmigrante alemán, quién jamás pudo suponer que con él traía el instrumento que andaba buscando la emoción porteña para poder desparramarse por el mundo. Y así fue que una noche, allá por el 1900, cuando todavía los muchachos se recostaban en las paredes de las esquinas para que no se derrumbaran y se ataban el pescuezo con un pañuelo para que no se les cayera la cabeza al escupir fuerte por el colmillo,

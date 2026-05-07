@@ -3,6 +3,7 @@ title: "Piazzolla y los bandoneonistas"
 date: "2015-12-18"
 original_url: https://tangosalbardo.blogspot.com/2015/12/piazzolla-y-los-bandoneonistas.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Francisco Canaro", "Aníbal Troilo"]
 ---
 
 Ástor Piazzolla sostenía que el mejor bandoneonista que existía era Roberto Di Filippo. Había estado a su lado en la orquesta que tuvo Ástor en 1946. Fueron grandes amigos y contaba que cuando estaban juntos eran muy felices hablando de música.

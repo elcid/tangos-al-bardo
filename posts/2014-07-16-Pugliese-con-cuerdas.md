@@ -3,6 +3,7 @@ title: "Pugliese con cuerdas"
 date: "2014-07-16"
 original_url: https://tangosalbardo.blogspot.com/2014/07/pugliese-con-cuerdas.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Aníbal Troilo", "Alfredo Gobbi", "Ariel Ardit"]
 ---
 
 Son las grabaciones que al principio permanecieron inéditas durante un tiempo. Época de vacas flacas para el tango que venía en picada, en una de esas mareas bajas que cada tanto lo asaltan. Pero, a diferencia de otros ritmos, el tango siempre vuelve con nuevas fuerzas, nuevos instrumentistas y cantantes y nuevos impulsos.

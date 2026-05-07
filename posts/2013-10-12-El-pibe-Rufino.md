@@ -3,6 +3,7 @@ title: "El pibe Rufino"
 date: "2013-10-12"
 original_url: https://tangosalbardo.blogspot.com/2013/10/el-pibe-rufino.html
 labels: ""
+tags: ["Antonio Bonavena", "Carlos Di Sarli", "Osvaldo Fresedo", "Carlos Gardel", "Héctor Marcó"]
 ---
 
 Una de las voces más grandes que ha dado el tango en su historia, es sin duda la de este chico del Abasto, cuyo padre era fanático de Gardel y supo transmitirle el genoma tanguero a este gran artista para que sus registros perduren en el tiempo con toda la frescura y categoría de aquellos lejanos días.

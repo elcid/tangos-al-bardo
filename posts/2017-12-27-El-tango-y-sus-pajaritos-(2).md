@@ -3,6 +3,7 @@ title: "El tango y sus pajaritos (2)"
 date: "2017-12-27"
 original_url: https://tangosalbardo.blogspot.com/2017/12/el-tango-y-sus-pajaritos-2.html
 labels: ""
+tags: ["Roberto Goyeneche", "Enrique Rodríguez", "Celedonio Flores", "Joaquín Do Reyes", "Francisco Canaro", "Julio De Caro", "Raúl Garello", "José Rótulo"]
 ---
 
 Continuando con los pájaros y aves que el tango ha introducido en sus páginas, algunas de las cuales siguen teniendo gran difusión, hoy hago el recorrido con ejemplares que pueblan los espacios públicos, parques, plazas y también el verde pampa que se extiende por los costados bonaerenses.

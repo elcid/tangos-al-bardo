@@ -3,6 +3,7 @@ title: "PODCAST: La usina del tango"
 date: "2024-02-22"
 original_url: https://tangosalbardo.blogspot.com/2024/02/podcast-la-usina-del-tango.html
 labels: ""
+tags: ["José María Otero"]
 ---
 
 # José María Otero: el gran difusor del tango en Madrid

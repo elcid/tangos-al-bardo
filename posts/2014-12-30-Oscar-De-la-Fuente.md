@@ -3,6 +3,7 @@ title: "Oscar De la Fuente"
 date: "2014-12-30"
 original_url: https://tangosalbardo.blogspot.com/2014/12/oscar-de-la-fuente.html
 labels: ""
+tags: ["Alfredo De Angelis", "Antonio Bonavena", "Julio De Caro", "Alberto Morán", "Ricardo Ruiz", "Jorge Durán"]
 ---
 
 A veces nos nos detenemos un rato en estos músicos que estuvieron en la hornada grande del tango, pero no trascendieron mayormente de cara al público, aunque en cambio dejaron su impronta registrada en numerosos trabajos a lo largo de su carrera.. Este violinista y guitarrista, nacido y criado en la céntrica casa paterna de Lavalle y Suipacha, estaba destinado a la música clásica, después de estudiar con el maestro Edmundo Weigand, recibirse a los 19 años en el Conservatorio Nacional, y recibir una beca para perfeccionarse en Italia.

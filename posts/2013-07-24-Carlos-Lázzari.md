@@ -3,6 +3,7 @@ title: "Carlos Lázzari"
 date: "2013-07-24"
 original_url: https://tangosalbardo.blogspot.com/2013/07/carlos-lazzari.html
 labels: ""
+tags: ["Domingo Federico", "Osvaldo Pugliese", "Donato Racciatti", "Francisco Canaro", "Fulvio Salamanca", "Armando Pontier", "Juan D'Arienzo", "Héctor Varela"]
 ---
 
 Este excelente bandoneonista que cubrió nada menos que 26 años sentado en la fila de bandoneones de la orquesta de Juan D'Arienzo, falleció sin ruido mediático, hace cuatro años. Realmente merecía un mayor reconocimiento después de su gran historial en las filas tangueras como bandoneonista, arreglador, compositor y director.

@@ -3,6 +3,7 @@ title: "¿Donde estás corazón?"
 date: "2025-10-08"
 original_url: https://tangosalbardo.blogspot.com/2025/10/donde-estas-corazon.html
 labels: ""
+tags: ["Alberto Castillo", "Francisco Canaro", "Francisco Lomuto", "Armando Pontier", "Azucena Maizani", "Ignacio Corsini", "Mercedes Simone", "Teófilo Ibáñez"]
 ---
 
 Este tema que está considerado como **Patrimonio de la humanidad,** nació como canción y así recuerdo que lo cantaba mi madre cuando yo era chico. Su autor es un catalán que vivió muchos años en Argentina, Chile y México. Se llamaba Luis Martínez Serrano y estudió música en el *Conservatorio de La Prensa*, en Buenos Aires, con los destacados maestros Ernesto Drangosch y Alberto Williams. Tenía siete años de edad cuando sus padres se trasladaron a vivir en Argentina y el chico ya seguía las influencias de su padre músico, que lo mandó a estudiar.

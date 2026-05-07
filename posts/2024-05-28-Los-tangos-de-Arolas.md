@@ -3,6 +3,7 @@ title: "Los tangos de Arolas"
 date: "2024-05-28"
 original_url: https://tangosalbardo.blogspot.com/2024/05/los-tangos-de-arolas.html
 labels: ""
+tags: ["Francisco Lomuto", "Carlos Di Sarli", "Eduardo Arolas", "Juan D'Arienzo", "Julio De Caro"]
 ---
 
 Este tango dedicado a la provincia argentina ubicada en el noroeste del país, en la Región del Norte Grande, fue compuesto por Eduardo Arolas en 1918. Inicialmente lo tituló como "*Estocada a fondo*", pero luego lo cambió razonablemente, rindiéndole un homenaje a la provincia norteña.

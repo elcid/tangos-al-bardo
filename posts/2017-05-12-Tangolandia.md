@@ -3,6 +3,7 @@ title: "Tangolandia"
 date: "2017-05-12"
 original_url: https://tangosalbardo.blogspot.com/2017/05/tangolandia.html
 labels: ""
+tags: ["José González Castillo", "Luis César Amadori", "Juan Andrés Caruso", "Juan Carlos Copes", "Francisco Canaro", "Ignacio Corsini", "Ángel Villoldo", "Mariano Mores"]
 ---
 
 La comedia musical que llevó el nombre del título, la estrenó Francisco Canaro, con su orquesta, sus cantores Marcelo Paz, Juan Carlos Rolón, Francisco Amor e Isabel de Grana, un numeroso elenco artístico, la actuación de Jorge Vidal y Alba Solís, el ballet de Juan Carlos Copes y María Nieves, además de la pareja Julia y Lalo Bello como bailarines, en el Teatro Alvear, en 1957, conmemorando los cincuenta años con el tango, del mítico director de orquesta.

@@ -3,6 +3,7 @@ title: "Yuyo verde"
 date: "2017-05-25"
 original_url: https://tangosalbardo.blogspot.com/2017/05/yuyo-verde.html
 labels: ""
+tags: ["José María Contursi", "Virgilio Expósito", "Domingo Federico", "Osvaldo Pugliese", "Homero Expósito", "Aníbal Troilo", "Alberto Morán", "Floreal Ruiz"]
 ---
 
 Este tango de Homero Expósito y Domingo Federico, me atrapó de chico. Lo cantaba en el patio, mientra lavaba ropa u otros objetos, una vecina de muy buena voz. Y yo me detenía en cada párrafo mentalmente. Para colmo era verano, todo el espacio abierto al cielo en aquellas casas y los versos musicalizados y muy bien interpretados por la muchacha, reflejaban maravillosamente aquel estío juvenil que vivíamos.

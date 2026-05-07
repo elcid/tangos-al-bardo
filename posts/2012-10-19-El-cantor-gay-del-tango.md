@@ -3,6 +3,7 @@ title: "El cantor gay del tango"
 date: "2012-10-19"
 original_url: https://tangosalbardo.blogspot.com/2012/10/el-cantor-gay-del-tango.html
 labels: ""
+tags: ["Juan D'Arienzo", "Carlos Gardel", "Anselmo Aieta", "Lito Bayardo"]
 ---
 
 Se hizo su lugarcito en el ambiente con el nombre artístico de *Amour* Naya y tenía muy buen gusto cantando tangos. Era natural de Rosario, donde se inició en las noches quilomberas y legendarias del barrio Pichincha.

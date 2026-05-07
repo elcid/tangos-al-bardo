@@ -3,6 +3,7 @@ title: "Edmundo Rivero y sus historias"
 date: "2013-04-21"
 original_url: https://tangosalbardo.blogspot.com/2013/04/edmundo-rivero-y-sus-historias.html
 labels: ""
+tags: ["Edmundo Rivero", "Horacio Salgán", "Ernesto Baffa", "Homero Manzi"]
 ---
 
 Los que tuvimos la suerte de alcanzar a conocer la Corrientes tanguera, el centro porteño donde se cocinaba la música popular de Buenos Aires, bailar en las confiterías céntricas con aquellas orquestas o verlas actuar, sentir aquella ansiedad romántica que jugaba su desvelo a la aventura, nos sentimos reconfortados e identificados con lecturas que reflejan ese rumor de época. Por eso hoy lo traigo al gran Edmundo Rivero que en su libro autobiográfico reseña viejas anécdotas. Como ésta por ejemplo:

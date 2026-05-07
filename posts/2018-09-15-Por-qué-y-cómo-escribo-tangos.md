@@ -3,6 +3,7 @@ title: "Por qué y cómo escribo tangos"
 date: "2018-09-15"
 original_url: https://tangosalbardo.blogspot.com/2018/09/por-que-y-como-escribo-tangos.html
 labels: ""
+tags: ["Enrique Santos Discépolo"]
 ---
 
 Escribo tangos porque me atrae su ritmo. Lo siento con la intensidad de muy pocas otras cosas. Su síntesis es un desafío que me provoca y que yo acepto complacido... Decir tantas cosas en tan corto espacio. ¡Qué difícil y qué lindo!

@@ -3,6 +3,7 @@ title: "Bien milonga"
 date: "2022-03-15"
 original_url: https://tangosalbardo.blogspot.com/2022/03/bien-milonga_15.html
 labels: ""
+tags: ["Juan D'Arienzo", "Héctor Varela", "Héctor Mauré"]
 ---
 
 Qué gusto da seguir ese compás

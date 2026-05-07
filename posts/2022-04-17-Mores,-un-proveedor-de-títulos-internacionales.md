@@ -3,6 +3,7 @@ title: "Mores, un proveedor de títulos internacionales"
 date: "2022-04-17"
 original_url: https://tangosalbardo.blogspot.com/2022/04/mores-un-proveedor-de-titulos.html
 labels: ""
+tags: ["Francisco Canaro", "Cátulo Castillo", "Mariano Mores"]
 ---
 
 Cuando Mariano Mores, entonces Marianito, ingresó en el mundo del arte popular allá por los años treinta, lo hizo con títulos especialísimos, a través de una personalidad adolescente, dotada de facultades pianísticaa realmente sorprendentes.

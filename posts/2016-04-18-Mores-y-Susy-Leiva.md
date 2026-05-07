@@ -3,6 +3,7 @@ title: "Mores y Susy Leiva"
 date: "2016-04-18"
 original_url: https://tangosalbardo.blogspot.com/2016/04/mores-y-susy-leiva.html
 labels: ""
+tags: ["Libertad Lamarque", "Francisco Canaro", "Cátulo Castillo", "Homero Expósito", "Aníbal Troilo", "Mariano Mores", "León Benarós"]
 ---
 
 Se nos fue el maestro Mariano Mores, después de haber sembrado tantas páginas inolvidables en el pentagrama del tango; de haberse formado en la orquesta de Francisco Canaro y buscar luego el camino sólo, con ideas nuevas, renovadoras, buscando un tango más internacional y agregando instrumentos y timbres diferenciales, que le dieran ese tono que buscaba.

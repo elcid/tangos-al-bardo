@@ -3,6 +3,7 @@ title: "Raza criolla (El taita)"
 date: "2014-03-25"
 original_url: https://tangosalbardo.blogspot.com/2014/03/raza-criolla-el-taita.html
 labels: ""
+tags: ["Eduardo Del Piano", "Osvaldo Pugliese", "Osvaldo Fresedo", "Ricardo Tanturi", "Juan D'Arienzo", "Carlos Gardel", "Julio De Caro", "Lito Bayardo"]
 ---
 
 Hoy me enganché con este tangazo del tano Salvador Grupillo, que también corre con el título de *El taita*, porque era bastante común en una época ponerle un segundo nombre a los tangos. Realmente contiene todos los matices que uno busca en el gotán: Armonía, ritmo y polenta para bailarlo o escucharlo. Y *Raza criolla *tiene esos ingredientes.

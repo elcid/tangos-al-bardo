@@ -3,6 +3,7 @@ title: "Alberto y Fernanda"
 date: "2014-10-30"
 original_url: https://tangosalbardo.blogspot.com/2014/10/alberto-y-fernanda.html
 labels: ""
+tags: ["Guillermo Fernández", "Osvaldo Pugliese", "Aníbal Troilo", "Alberto Morán"]
 ---
 
 Me gusta seguir la evolución de las parejas de bailarines que van asomando en el firmamento y confirmar que lo que de bueno apuntaban en sus apariciones primerizas, se va consolidando y les conduce hacia la madurez interpretativa. Siempre y cuando se ajusten a los cánones del tango de salón, bien macerado y de allí sigan creciendo y embelleciendo su baile, aunque lo transformen en espectáculo, con las licencias que ello propicia.

@@ -3,6 +3,7 @@ title: "Sentimental y dramático"
 date: "2022-05-27"
 original_url: https://tangosalbardo.blogspot.com/2022/05/sentimental-y-dramatico.html
 labels: ""
+tags: ["Enrique Santos Discépolo"]
 ---
 
 ** El tango alcanzó su destino el día que el bandoneón le dio su sello definitivo a la gran creación.**

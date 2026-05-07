@@ -3,6 +3,7 @@ title: "Bien milonga"
 date: "2017-05-30"
 original_url: https://tangosalbardo.blogspot.com/2017/05/bien-milonga_30.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Juan D'Arienzo"]
 ---
 
 * Lista tu figura, llegada la noche*

@@ -3,6 +3,7 @@ title: "Nacimiento del fueye"
 date: "2023-11-24"
 original_url: https://tangosalbardo.blogspot.com/2023/11/nacimiento-del-fueye.html
 labels: ""
+tags: ["Pedro Maffia"]
 ---
 
 "*A la memoria de Pedro Maffia*"

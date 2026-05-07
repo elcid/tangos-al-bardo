@@ -3,6 +3,7 @@ title: "D'Arienzo y Reynal"
 date: "2012-12-20"
 original_url: https://tangosalbardo.blogspot.com/2012/12/darienzo-y-reynal.html
 labels: ""
+tags: ["Fulvio Salamanca", "Alberto Echagüe", "Juan D'Arienzo", "Héctor Varela", "Héctor Mauré", "Héctor Marcó"]
 ---
 
 Cuando se le fueron todos los músicos y hasta el cantor Alberto Echagüe, para unirse en la aventura que iniciaba el brillante pianista Juan Polito al frente de su orquesta, Juan D'Arienzo no perdió la fe ni el tiempo. Rápidamente se puso a buscar instrumentistas y vocalistas para su nueva etapa.

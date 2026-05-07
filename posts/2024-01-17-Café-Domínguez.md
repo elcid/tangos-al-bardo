@@ -3,6 +3,7 @@ title: "Café Domínguez"
 date: "2024-01-17"
 original_url: https://tangosalbardo.blogspot.com/2024/01/cafe-dominguez.html
 labels: ""
+tags: ["Celedonio Flores", "Enrique Cadícamo", "Julián Centeya", "Carlos Gardel", "Ángel Vargas"]
 ---
 
 Enrique Cadícamo fue y es toda una gran leyenda del tango. La cantidad de temas exitosos creados por este poeta que también musicalizaba gran parte de su obra, posiblemente no tenga parangón, en cuanto a la enumeración de títulos que poblaron los pentagramas de orquestas típicas y cantantes de ambos sexos. Quizás con el ejemplo de Carlos Gardel, que le grabó 23 temas, nada menos, ya tendríamos una idea de su dimensión autoral.

@@ -3,6 +3,7 @@ title: "Un momento"
 date: "2019-09-13"
 original_url: https://tangosalbardo.blogspot.com/2019/09/un-momento.html
 labels: ""
+tags: ["Homero Expósito", "Aníbal Troilo", "Raúl Berón"]
 ---
 
 Héctor Luciano Stamponi, además de excelente pianista y director, fue un inspiradísimo compositor que dejó páginas de gran calado como* Quedémonos aquí, Inquietud, Caricias perdidas, Qué me van a hablar de amor, Junto a tu corazón, Triste comedia, Llamarada pasional, Delantal, Ella, Por otros caminos, Cuando cuentes la historia de tu vida, Pueblito de provincia, Ventanal, El último café, Mi cantar, El trompo auzl, El embrujo de tus ojos..*. Las milongas-candombe *Azabache, Pobre negra,* o valsecitos de esos que se te pegan, como* Flor de lino, Pedacito de cielo, Bajo un cielo de estrellas* y, entre otros, el que hoy me ocupa.

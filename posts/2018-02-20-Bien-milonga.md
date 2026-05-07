@@ -3,6 +3,7 @@ title: "Bien milonga"
 date: "2018-02-20"
 original_url: https://tangosalbardo.blogspot.com/2018/02/bien-milonga_20.html
 labels: ""
+tags: ["Juan D'Arienzo"]
 ---
 
 [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj5cw7qBTswyR_GgCRcvKB-_LrBigryynabC8CuXWCA7-yF46wxWUdjIupaZas5VxJ5SbbzVxQzGp9h8O_NXrHi6lnKpL8zEaCkZv-uAzPKF0OOktcPmYBzp3H_PT9Pme77uVbDJ_6P_rLK/s200/1e5c722b3f353a92d5cdfb5d0202cd12.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj5cw7qBTswyR_GgCRcvKB-_LrBigryynabC8CuXWCA7-yF46wxWUdjIupaZas5VxJ5SbbzVxQzGp9h8O_NXrHi6lnKpL8zEaCkZv-uAzPKF0OOktcPmYBzp3H_PT9Pme77uVbDJ_6P_rLK/s1600/1e5c722b3f353a92d5cdfb5d0202cd12.jpg) * Al compás de esta milonga** *

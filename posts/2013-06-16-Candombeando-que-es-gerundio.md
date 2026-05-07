@@ -3,6 +3,7 @@ title: "Candombeando que es gerundio"
 date: "2013-06-16"
 original_url: https://tangosalbardo.blogspot.com/2013/06/candombeando-que-es-gerundio.html
 labels: ""
+tags: ["Enrique Rodríguez", "Osvaldo Pugliese", "Alberto Castillo", "Julio Camilloni", "Edgardo Donato", "Jorge Dragone", "Romeo Gavioli"]
 ---
 
 El candombe es una danza de procedencia africana, como el tango y la milonga. La diferencia estriba en que se ejecuta con tamboriles que le dan un ritmo vivaz, ideal para las comparsas carnavaleras.

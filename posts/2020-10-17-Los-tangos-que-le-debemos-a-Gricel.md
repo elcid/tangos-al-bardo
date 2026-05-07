@@ -3,6 +3,7 @@ title: "Los tangos que le debemos a Gricel"
 date: "2020-10-17"
 original_url: https://tangosalbardo.blogspot.com/2020/10/los-tangos-que-le-debemos-gricel.html
 labels: ""
+tags: ["José María Contursi", "Pascual Contursi", "Carlos Di Sarli", "Alberto Podestá", "Pedro Laurenz", "Mariano Mores"]
 ---
 
 Si su padre inventó los versos del tango con **Mi noche triste** y aquel octosílabo inicial tan certero -*"Percanta que me amuraste"*, José María Contursi supo convertir en temas de gran llegada, su frustración amorosa. Es cierto que el estilo del Catunga es bien distinto al de su progenitor. Salvo en algunos temas como **Milonga de mis amores**, el vals **Tu nombre, A mí no me hablen de tango, Mis amigos de ayer*** *y quizás alguno más que se me escapa, toda su obra poética está dedicada a Gricel y son casi todas páginas de hondo calado.

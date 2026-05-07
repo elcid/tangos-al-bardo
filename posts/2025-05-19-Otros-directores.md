@@ -3,6 +3,7 @@ title: "Otros directores"
 date: "2025-05-19"
 original_url: https://tangosalbardo.blogspot.com/2025/05/otros-directores.html
 labels: ""
+tags: ["Francisco Canaro", "Pedro Maffia"]
 ---
 
 **según Pedro Maffia**

@@ -3,6 +3,7 @@ title: "Reconocimiento"
 date: "2013-08-07"
 original_url: https://tangosalbardo.blogspot.com/2013/08/reconocimiento.html
 labels: ""
+tags: ["Enrique Rodríguez", "Aníbal Troilo", "Pedro Maffia"]
 ---
 
 A veces, dentro del vademécum tanguero hay músicos, poetas, compositores y cantores que han pasado sin mayor reconocimiento y sin hacer ruido. Los que caminamos aquellas noches de Buenos Aires en que el tango reinaba por todos los rincones, pudimos conocer a muchas de esas orquestas de segunda o tercera fila, que sonaban bien y con las cuales se podía bailar.

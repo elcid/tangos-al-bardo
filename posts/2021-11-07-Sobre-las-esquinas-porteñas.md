@@ -3,6 +3,7 @@ title: "Sobre las esquinas porteñas"
 date: "2021-11-07"
 original_url: https://tangosalbardo.blogspot.com/2021/11/sobre-las-esquinas-portenas.html
 labels: ""
+tags: ["Homero Manzi"]
 ---
 
 GLOSARIO SENTIMENTAL DE LAS CANCIONES POPULARES

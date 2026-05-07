@@ -3,6 +3,7 @@ title: "Médico insigne y violinista"
 date: "2015-01-15"
 original_url: https://tangosalbardo.blogspot.com/2015/01/medico-insigne-y-violinista.html
 labels: ""
+tags: ["Leopoldo Federico", "Horacio Malvicino", "Astor Piazzolla"]
 ---
 
 El doctor argentino Pablo Chiale, destacado miembro del Comité de Arritmias de FAC, reconocido mundialmente en arritmias cardíacas de larga trayectoria y pionero de la electrofisiología, falleció el 20 de septiembre de 2014 y su fallecimiento provocó infinidad de mensajes de reconocimiento de muchos países, a toda su trayectoria profesional que sirvió para salvar y alargar numerosas vidas y para transmitir las ensañanzas a sus muchos alumnos. Pero también su muerte fue muy sentida en el mundo del tango, ya que era muy buen violinista y actuó en varios conjuntos.

@@ -3,6 +3,7 @@ title: "El bandoneón mayor de Rosario"
 date: "2019-07-15"
 original_url: https://tangosalbardo.blogspot.com/2019/07/el-bandoneon-mayor-de-rosario.html
 labels: ""
+tags: ["Leopoldo Federico", "Enrique Delfino", "Astor Piazzolla", "Armando Pontier", "Rodolfo Mederos", "Roberto Rufino", "Edgardo Donato", "Julián Centeya"]
 ---
 
 Antonio Ríos recibió elogios de los más encumbrados músicos del tango, como Aníbal Troilo, que lo destacó como el mejor fueye del país. También Ástor Piazzolla era un gran admirador de su talento. Pero cuando alcanzó el éxito en Buenos Aires, prefirió partir hacia un destino oscuro.

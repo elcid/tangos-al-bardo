@@ -3,6 +3,7 @@ title: "Drama tanguero"
 date: "2012-07-07"
 original_url: https://tangosalbardo.blogspot.com/2012/07/drama-tanguero.html
 labels: ""
+tags: ["Domingo Federico", "Osvaldo Pugliese", "Alberto Morán", "Homero Manzi"]
 ---
 
 A veces las letras de los tangos son crudas autobiografías. Homero Manzi decía que sólo podía hacer poesía con cosas que a él le habían sucedido, o le estaban pasando.

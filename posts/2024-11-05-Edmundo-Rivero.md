@@ -3,6 +3,7 @@ title: "Edmundo Rivero"
 date: "2024-11-05"
 original_url: https://tangosalbardo.blogspot.com/2024/11/edmundo-rivero.html
 labels: ""
+tags: ["Edmundo Rivero", "Roberto Firpo"]
 ---
 
 **Mis maestros cantores**

@@ -3,6 +3,7 @@ title: "Pedro Laurenz"
 date: "2016-12-28"
 original_url: https://tangosalbardo.blogspot.com/2016/12/pedro-laurenz.html
 labels: ""
+tags: ["José María Otero", "Pedro Laurenz"]
 ---
 
 ** LAURENZ**  * “Vos dejá nomás que algún chabón /*  *  chamuye al cuete*  *   y sacudile tu firulete”*     Rodolfo M. Taboada

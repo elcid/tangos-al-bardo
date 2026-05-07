@@ -3,6 +3,7 @@ title: "Los señores del tango"
 date: "2013-09-22"
 original_url: https://tangosalbardo.blogspot.com/2013/09/los-senores-del-tango.html
 labels: ""
+tags: ["Carlos Di Sarli", "Mario Pomar"]
 ---
 
 La historia muestra numerosos casos de orquestas que se formaron, deshojándose de otra donde sus músicos estaban alojados. Sucedió , por ejemplo, cuando Juan Polito se fue con los músicos y cantor que actuaban con D'Arienzo para formar rancho propio. O los que se marcharon con Fiorentino del conjunto de Troilo. El Sexteto Tango, escindido de Pugliese, y varios por el estilo.

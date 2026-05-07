@@ -3,6 +3,7 @@ title: "BIEN MILONGA"
 date: "2019-11-26"
 original_url: https://tangosalbardo.blogspot.com/2019/11/bien-milonga_26.html
 labels: ""
+tags: ["Juan D'Arienzo"]
 ---
 
 Novela del bailarín

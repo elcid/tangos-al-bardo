@@ -3,6 +3,7 @@ title: "A la milonga"
 date: "2012-10-27"
 original_url: https://tangosalbardo.blogspot.com/2012/10/a-la-milonga.html
 labels: ""
+tags: ["Homero Expósito"]
 ---
 
 Me he bautizado tempranamente en las milongas porteñas y atesoré sus ritos, códigos, guiños, mensajes audiovisuales y templé la oreja y el cuore con aquellas ireemplazables orquestas de los años cincuenta.

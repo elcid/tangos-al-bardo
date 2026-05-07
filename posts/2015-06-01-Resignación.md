@@ -3,6 +3,7 @@ title: "Resignación"
 date: "2015-06-01"
 original_url: https://tangosalbardo.blogspot.com/2015/06/resignacion.html
 labels: ""
+tags: ["Francisco Canaro", "Horacio Salgán", "Julio De Caro", "Charlo"]
 ---
 
 Hoy he escogido este tango que llevara al disco Francisco Canaro en 1927, cantándolo Luis Díaz. Y lo he traído al blog por varios motivos. Esencialmente, porque fue en este disco donde se inscribió por primera vez en los títulos, el nombre del estribillista, que hasta entonces no figuraba, por más prestigio que tuviera. Y ésta sería, otra vez, una de las tantas innovaciones que trajo Pirincho al mundo del tango.

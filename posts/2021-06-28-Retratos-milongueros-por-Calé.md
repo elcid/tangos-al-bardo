@@ -3,6 +3,7 @@ title: "Retratos milongueros por Calé"
 date: "2021-06-28"
 original_url: https://tangosalbardo.blogspot.com/2021/06/retratos-milongueros-por-cale.html
 labels: ""
+tags: ["Horacio Salgán"]
 ---
 
 ## **El hombre que radiografió al porteño**

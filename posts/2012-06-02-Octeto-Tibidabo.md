@@ -3,6 +3,7 @@ title: "Octeto Tibidabo"
 date: "2012-06-02"
 original_url: https://tangosalbardo.blogspot.com/2012/06/octeto-tibidabo.html
 labels: ""
+tags: ["Leopoldo Federico", "Osvaldo Pugliese", "Atilio Stampone", "Aníbal Troilo"]
 ---
 
 Traemos a la palestra a este "*Octeto*", que según aclara el señor Carlos Artime: "estuvo integrado sólo por 7 notables ejecutantes. Los temas fueron grabados en el año 1966, englobados en el CD bajo el título: *Soy del 40".*

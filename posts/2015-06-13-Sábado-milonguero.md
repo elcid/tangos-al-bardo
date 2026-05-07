@@ -3,6 +3,7 @@ title: "Sábado milonguero"
 date: "2015-06-13"
 original_url: https://tangosalbardo.blogspot.com/2015/06/sabado-milonguero.html
 labels: ""
+tags: ["Francisco Canaro", "Juan D'Arienzo", "Héctor Varela", "Héctor Mauré", "Lucio Demare", "Ivo Pelay"]
 ---
 
 Es uno de los grandes atractivos motivadores que tienen los fines de semana. Cuando andaba por los 17/18 años, los sábados solamente nos empilchábamos y nos poníamos a cien, si venía una orquesta típica a Huracán. Lo teníamos en el barrio y además los salones de dicho club eran espectaculares. Los domingos la milonga en el citado salón, era con grabaciones.

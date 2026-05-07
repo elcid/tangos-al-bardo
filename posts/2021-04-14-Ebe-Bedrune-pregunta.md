@@ -3,6 +3,7 @@ title: "Ebe Bedrune pregunta...."
 date: "2021-04-14"
 original_url: https://tangosalbardo.blogspot.com/2021/04/ebe-bedrune-pregunta.html
 labels: ""
+tags: ["Roberto Firpo"]
 ---
 
 [](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEisUIL4ujV-ud-51tsu7MNBJSHJrdr3KBYS1J6prC3KFoTCSV-RXnfG9vBgNPSnGmfCIVmI6HAHOEAysh6QjQyx1r5wE0yzxZdICuXewNEN1vxgg74FHWvbk9tvcZ2kswJmlzTDFrMf22bc/s300/FirpoA-1048784-1431728776-4048.jpeg) ...**y Roberto Firpo contesta.**

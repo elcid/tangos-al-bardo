@@ -3,6 +3,7 @@ title: "Luis Rubistein"
 date: "2019-05-19"
 original_url: https://tangosalbardo.blogspot.com/2019/05/luis-rubistein.html
 labels: ""
+tags: ["Libertad Lamarque", "Enrique Rodríguez", "Agustín Magaldi", "Mercedes Simone", "Rosita Quiroga", "Carlos Gardel", "Osmar Maderna", "Mariano Mores"]
 ---
 
 ¡Qué personajes albergó el tango! Lo remarco teniendo en cuenta, entre tantos otros, la personalidad, facundia y versatilidad de Rubistein, para desempeñar tareas dispares y tan productivas para él y para artistas, inversores y para el pueblo, que canturreó y silbó sus temas. Y además, con el agregado de que tres de sus hermanos: Oscar (Oscar Rubens), Mauricio (Maury) y Elías (Elías Randall), también incursionaron el tango y en el caso de Oscar y Elías dejaron páginas de éxito continuado.

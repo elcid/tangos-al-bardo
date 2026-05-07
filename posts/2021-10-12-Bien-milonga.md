@@ -3,6 +3,7 @@ title: "Bien milonga"
 date: "2021-10-12"
 original_url: https://tangosalbardo.blogspot.com/2021/10/bien-milonga_12.html
 labels: ""
+tags: ["Francisco Canaro", "Juan D'Arienzo"]
 ---
 
 Cuando vibra su compás

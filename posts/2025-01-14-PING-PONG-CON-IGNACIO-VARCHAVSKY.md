@@ -3,6 +3,7 @@ title: "PING PONG CON IGNACIO VARCHAVSKY"
 date: "2025-01-14"
 original_url: https://tangosalbardo.blogspot.com/2025/01/ping-pong-con-ignacio-varchavsky.html
 labels: ""
+tags: ["Leopoldo Federico", "Víctor Lavallén", "Armando Pontier", "Ignacio Corsini", "Aníbal Troilo", "Osmar Maderna"]
 ---
 
 **«¿Usted es el Hugo Baralis que tocaba en la orquesta de Troilo?»**

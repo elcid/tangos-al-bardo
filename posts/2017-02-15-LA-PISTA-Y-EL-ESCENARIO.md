@@ -3,6 +3,7 @@ title: "LA PISTA Y EL ESCENARIO"
 date: "2017-02-15"
 original_url: https://tangosalbardo.blogspot.com/2017/02/la-pista-y-el-escenario.html
 labels: ""
+tags: ["Juan Carlos Copes", "José María Otero", "María Nieves"]
 ---
 
 *“Pensar es el mayor error que un bailarín puede cometer. No hay que pensar, hay que sentir”.** *    Michael Jackson

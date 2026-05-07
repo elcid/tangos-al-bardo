@@ -3,6 +3,7 @@ title: "BIEN MILONGA"
 date: "2019-12-10"
 original_url: https://tangosalbardo.blogspot.com/2019/12/bien-milonga_10.html
 labels: ""
+tags: ["Alberto Echagüe", "Juan D'Arienzo", "Aníbal Troilo", "Héctor Marcó"]
 ---
 
 Tango de la medianoche

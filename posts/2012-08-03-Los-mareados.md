@@ -3,6 +3,7 @@ title: "Los mareados"
 date: "2012-08-03"
 original_url: https://tangosalbardo.blogspot.com/2012/08/los-mareados.html
 labels: ""
+tags: ["Juan Carlos Cobián", "Enrique Cadícamo", "Osvaldo Pugliese", "Osvaldo Fresedo", "Néstor Marconi", "Aníbal Troilo", "Raúl Lavié"]
 ---
 
 Este tango del pianista bahiense Juan Carlos Cobián, se llamó originalmente: *Los dopados*.

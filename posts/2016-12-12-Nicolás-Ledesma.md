@@ -3,6 +3,7 @@ title: "Nicolás Ledesma"
 date: "2016-12-12"
 original_url: https://tangosalbardo.blogspot.com/2016/12/nicolas-ledesma.html
 labels: ""
+tags: ["Fernando Suárez Paz", "Leopoldo Federico", "Cátulo Castillo", "Horacio Salgán", "Aníbal Troilo", "Roberto Firpo", "Julián Plaza", "Pablo Agri"]
 ---
 
 Cuando tenía once años, debutó en una confitería de su pueblo pampeano, en la orquesta de Erberto Benuzzi, que le cedió su puesto en el piano. Y el resultado no pudo ser peor, "*repetí mil veces un pasaje, hasta que, por fin, pude engancharme con la orquesta en la melodía. Pero aquella Cumparsita duró 32 minutos por mi culpa"*. Ahora se ríe, porque su camino se ha pavimentado y es uno de los puntales del tango actual, Aunque aquella tarde-noche, sufrió de lo lindo.

@@ -3,6 +3,7 @@ title: "Cuando el amor muere"
 date: "2015-02-16"
 original_url: https://tangosalbardo.blogspot.com/2015/02/cuando-el-amor-muere.html
 labels: ""
+tags: ["Libertad Lamarque", "Carlos Di Sarli", "Roberto Rufino", "Alfredo Belusi", "Mariano Mores", "Floreal Ruiz", "Héctor Marcó", "Jorge Durán"]
 ---
 
 Este tango tiene un subtítulo que dice: *Una vez y adiós*. Lo pergeñó el imaginativo e inagotable Héctor Marcó (Marcolongo), que dejó de cantar para escribir versos de tango y en este último rubro fue realmente un portento, alumbrándonos largos ratos con esas letras que dejan rastro. Porque además de su prolificidad, supo pintar situaciones románticas especialmente, pero también de otra índole. Y lo hizo en colaboración con una gran cantidad de compositores -Di Sarli lo eligió especialmente-, que supieron valorar sus pinturas cotidianas transformadas en verso.

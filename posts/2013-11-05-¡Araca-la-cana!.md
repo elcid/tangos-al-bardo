@@ -3,6 +3,7 @@ title: "¡Araca la cana!"
 date: "2013-11-05"
 original_url: https://tangosalbardo.blogspot.com/2013/11/araca-la-cana.html
 labels: ""
+tags: ["Osvaldo Fresedo", "Enrique Delfino", "Aníbal Troilo", "Carlos Gardel"]
 ---
 
 Este tema compuesto en el año 1933, refleja la influencia del lunfardo en las letras de tango. Nacida como una lengua popular y también de delincuentes, se ha ido consolidando y hoy día es una sublengua, la más rica del mundo, con voces provenientes de dialectos de distintos países especialmente de italianos, pero también portugueses, españoles, franceses y demás.

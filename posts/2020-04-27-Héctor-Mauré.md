@@ -3,6 +3,7 @@ title: "Héctor Mauré"
 date: "2020-04-27"
 original_url: https://tangosalbardo.blogspot.com/2020/04/hector-maure_27.html
 labels: ""
+tags: ["José María Aguilar", "Roberto Grela", "Héctor Mauré"]
 ---
 
 Vencedor de un mito

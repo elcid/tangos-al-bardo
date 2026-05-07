@@ -3,6 +3,7 @@ title: "A Mercedes"
 date: "2017-11-23"
 original_url: https://tangosalbardo.blogspot.com/2017/11/a-mercedes.html
 labels: ""
+tags: ["Enrique Rodríguez", "Osvaldo Fresedo", "Enrique Delfino", "Homero Expósito", "Cátulo Castillo", "Juan D'Arienzo", "Roberto Firpo", "Homero Manzi"]
 ---
 
 Hoy vuelvo con otro valsecito que levanta la temperatura en las pistas de baile, da mucho juego a las parejas y además de la excelente interpretación de la orquesta de Juan D'Arienzo y el brillante cantor Héctor Mauré, aúna calidades en la música y los versos. Estos últimos le pertenecen a Venancio Clauso y la hermosa melodía al violinista Hugo Gutiérrez.

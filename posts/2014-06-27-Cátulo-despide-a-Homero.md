@@ -3,6 +3,7 @@ title: "Cátulo despide a Homero"
 date: "2014-06-27"
 original_url: https://tangosalbardo.blogspot.com/2014/06/catulo-despide-homero.html
 labels: ""
+tags: ["Francisco García Jiménez", "Osvaldo Fresedo", "Cátulo Castillo", "Sebastián Piana", "Pedro Maffia", "Homero Manzi", "Lucio Demare", "Raúl Berón"]
 ---
 
 Homero Manzi abandonó este mundo con apenas 44 años, pero dejó un legado impresionante en forma de poesías de tango, canciones , valsecitos, milongas, guiones de cine, charlista de radio, periodista, director de películas, profesor de castellano y literatura, político, presidente de SADAIC, fundador de Artistas Argentinos Asociados. Esta última sociedad produjo las más importantes películas del cine argentino de los cuarenta y cincuenta, y participó en los argumentos de las mismas.

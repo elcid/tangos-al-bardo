@@ -3,6 +3,7 @@ title: "La \"mugre\" del tango"
 date: "2019-04-04"
 original_url: https://tangosalbardo.blogspot.com/2019/04/la-mugre-del-tango.html
 labels: ""
+tags: ["Juan Carlos Copes", "Edgardo Donato", "Aníbal Troilo", "María Nieves"]
 ---
 
 El término puede llevar a confusiones por todo lo que la palabra encierra. Según el diccionario castellano, mugre es "*una suciedad, especialmente grasienta, que se acumula en una cosa o un lugar*.

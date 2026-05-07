@@ -3,6 +3,7 @@ title: "Tiempo de Fiore"
 date: "2014-09-18"
 original_url: https://tangosalbardo.blogspot.com/2014/09/tiempo-de-fiore.html
 labels: ""
+tags: ["Francisco Fiorentino", "José María Contursi", "Francisco Canaro", "Aníbal Troilo", "Alberto Morán", "Pedro Laurenz", "Julio Pollero", "Raúl Garello"]
 ---
 
 Su nombre siempre permanecerá unido al de Pichuco. Esos seis maravillosos años en la orquesta de Troilo sirvieron no sólo para edificar una idolatría, sino también, para que setenta y pico de años más tarde, esas obras que fermentaron juntos, iluminen las pistas de baile de todo el mundo, y el corazón emocionado de los tangueros. .

@@ -3,6 +3,7 @@ title: "Pugliese en gotas"
 date: "2012-05-23"
 original_url: https://tangosalbardo.blogspot.com/2012/05/pugliese-en-gotas.html
 labels: ""
+tags: ["Juan Carlos Cobián", "Osvaldo Pugliese", "Víctor Lavallén", "Daniel Binelli", "Julián Plaza"]
 ---
 
 En algunas de esas mareas bajas que atrapaban al tango, los artistas, para pucherear, recurrían a acatuaciones con pocos músicos, o grababan temas que les permitieran ir subiendo la cuesta.

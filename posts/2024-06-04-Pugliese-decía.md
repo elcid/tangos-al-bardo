@@ -3,6 +3,7 @@ title: "Pugliese decía:"
 date: "2024-06-04"
 original_url: https://tangosalbardo.blogspot.com/2024/06/pugliese-decia.html
 labels: ""
+tags: ["Horacio Salgán"]
 ---
 
 **¿Los cambios de ritmo, de ámbito, la ausencia del baile, han perjudicado al tango?**

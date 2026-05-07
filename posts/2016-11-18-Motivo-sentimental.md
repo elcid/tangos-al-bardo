@@ -3,6 +3,7 @@ title: "Motivo sentimental"
 date: "2016-11-18"
 original_url: https://tangosalbardo.blogspot.com/2016/11/motivo-sentimental.html
 labels: ""
+tags: ["Enrique Rodríguez", "Carlos Di Sarli", "Alberto Podestá", "Mercedes Simone", "Carlos Bahr"]
 ---
 
 Las letras que escribió Carlos Bahr para el tango han dejado una huella profunda en los seguidores de este género tan especial, e incluso de los milongueros, que siguen disfrutando temas suyos en la pista, como:* Después, Mañana iré temprano, Cada día te extraño más, De vuelta, Eterna, Sosiego en la noche, No te apures Cara blanca, Amor y tango, Corazón no le hagas caso, Humillación, Tango y copas,* *Me están sobrando las penas*,* Nada más que un corazón* (dedicado a Lina Ferro, su esposa) y tantos otros de su extensísima producción.

@@ -3,6 +3,7 @@ title: "Enrique Dumas"
 date: "2017-05-22"
 original_url: https://tangosalbardo.blogspot.com/2017/05/enrique-dumas.html
 labels: ""
+tags: ["Libertad Lamarque", "Enrique Rodríguez", "Osvaldo Pugliese", "Roberto Pansera", "Horacio Salgán", "Edmundo Rivero", "Aníbal Troilo", "Ubaldo De Lío"]
 ---
 
 Tenía 73 años, estaba en plena forma y acababa de actuar en el Festival de Doma y Folklore de Jesús María, a unos 700 kilómetros de Buenos Aires. El cantante argentino Enrique Dumas falleció en 2009 a causa de un ataque cardiaco. Aún mantenía el tono recio de su gola tanguera y la pinta de galán maduro que le había caracterizado y que le permitió triunfar en escenarios tangueros, televisión, teatro y cine.

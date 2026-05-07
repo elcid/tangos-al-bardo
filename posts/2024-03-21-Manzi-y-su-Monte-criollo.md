@@ -3,6 +3,7 @@ title: "Manzi y su Monte criollo"
 date: "2024-03-21"
 original_url: https://tangosalbardo.blogspot.com/2024/03/manzi-y-su-monte-criollo.html
 labels: ""
+tags: ["Francisco Pracánico", "Francisco Lomuto", "Azucena Maizani", "Sebastián Piana", "Homero Manzi"]
 ---
 
 Cada tema de Homero Manzi nos sumerge en realidades vividas por él y trasladadas a historias musicadas en tango que traspasan su época. Las que nos siguen atrapando por el fuego interior que consumen en ese espacio mítico de tres minutos. Han pasado muchos años y su poesía está viva, almacenada en versos musicalizados que no alcanzan la pompa literaria de los Borges y compañía, pero nos llega hondo.

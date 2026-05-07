@@ -3,6 +3,7 @@ title: "El Fiorentino de Troilo"
 date: "2020-10-21"
 original_url: https://tangosalbardo.blogspot.com/2020/10/el-fiorentino-de-troilo.html
 labels: ""
+tags: ["Francisco Fiorentino", "José María Contursi", "Juan Carlos Cobián", "Francisco Canaro", "Cátulo Castillo", "Homero Expósito", "Aníbal Troilo", "Roberto Firpo"]
 ---
 
 El título tiene como objeto reivindicar una vez más, no sólo el ojo y la oreja que tuvo siempre Pichuco para escoger y guiar a sus cantores, sino incluso la maestría que desarrolló en este aspecto. Son muy conocidos los problemas que atravesó un grande como Floreal Ruiz para enganchar los versos del tango **Naranjo en flor** con la música, por ejemplo. En largas y pacientes sesiones, Troilo le iba cantando a Floreal los párrafos del temas de los hermanos Expósito, que era realmente innovador, hasta que Floreal lo comprendió e hizo toda una creación.

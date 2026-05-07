@@ -3,6 +3,7 @@ title: "Roberto Guisado"
 date: "2018-05-24"
 original_url: https://tangosalbardo.blogspot.com/2018/05/roberto-guisado.html
 labels: ""
+tags: ["Florindo Sassone", "Osvaldo Fresedo", "Carlos Di Sarli", "Alberto Podestá", "Roberto Rufino", "Agustín Bardi", "Mario Pomar"]
 ---
 
 Genial integrante de una orquesta excepcional, su nombre fue siempre destacado por colegas y cronistas del tango, aunque su nombre no titile con la fuerza debida entre los tangueros aficonados y los milongueros. Carlos Di Sarli abarcó las facetas recomendables: las raíces inmersas en la tradición, pero se lanzó en busca del nuevo matiz. ¡Y vaya si lo consiguió! Creó la atmósfera exacta, sin grandes relumbrones, que asombró a todos y sigue brillando en el firmamento del tango por el mundo.

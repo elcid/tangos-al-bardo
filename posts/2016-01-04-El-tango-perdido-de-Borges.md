@@ -3,6 +3,7 @@ title: "El tango perdido de Borges"
 date: "2016-01-04"
 original_url: https://tangosalbardo.blogspot.com/2016/01/el-tango-perdido-de-borges.html
 labels: ""
+tags: ["Edmundo Rivero"]
 ---
 
 En octubre de 1965 Jorge Luis Borges (Buenos Aires, 1899 - Ginebra, 1986) acudió durante cuatro tardes a un lugar no identificado de Buenos Aires, no demasiado grande, para hablar sobre el tango. Ya era admirado en todo el mundo; ya había renunciado a los ojos y aprendido a componer textos de memoria. Pero todavía no se había casado y divorciado de Elsa Astete, cosas que ocurrieron en el lapso de tres años, ni las universidades (Oxford y Sorbona, entre otras) rivalizaban por hacerle doctor *honoris causa*. Las conferencias se habían perdido en la nebulosa del pasado. Casi nadie sabía de ellas, así que lo más probable es que nadie las echara de menos. Hasta que en 2002, el escritor Bernardo Atxaga recibió unas cintas (aquellos casetes que podrán recordar los nacidos antes de los ochenta) de un amigo que a su vez las había recibido de otro con el mensaje de que pertenecían al autor de *El Aleph*.

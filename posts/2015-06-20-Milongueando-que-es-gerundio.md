@@ -3,6 +3,7 @@ title: "Milongueando que es gerundio"
 date: "2015-06-20"
 original_url: https://tangosalbardo.blogspot.com/2015/06/milongueando-que-es-gerundio.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Osvaldo Zotto"]
 ---
 
 Sábado a la noche y de veranito. Lindo programa que comienzo a despuntar de matina, con unos matecitos y medialunas de las flaquitas. Y por supuesto, escuchando tangos a troche y moche. De paso cañazo me dibujo unos pasos en el parqué casero para desentumecer los remos, después de un viernes agitado y trasnochador.

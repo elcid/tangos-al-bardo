@@ -3,6 +3,7 @@ title: "Aldo Calderón"
 date: "2013-02-02"
 original_url: https://tangosalbardo.blogspot.com/2013/02/aldo-calderon.html
 labels: ""
+tags: ["Leopoldo Federico", "Francisco Rotundo", "Ismael Spitalnik", "Ignacio Corsini", "Edmundo Rivero", "Aníbal Troilo", "Pedro Maffia", "Floreal Ruiz"]
 ---
 
 Fue un cantor muy bueno, correcto en la dicción y la entonación y realmente mereció mejor fortuna en cuanto a arrastre popular.

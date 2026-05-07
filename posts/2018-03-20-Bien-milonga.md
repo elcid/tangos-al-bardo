@@ -3,6 +3,7 @@ title: "Bien milonga"
 date: "2018-03-20"
 original_url: https://tangosalbardo.blogspot.com/2018/03/bien-milonga_20.html
 labels: ""
+tags: ["Francisco Canaro", "Carlos Di Sarli", "Héctor Marcó"]
 ---
 
 [](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi40L2m2wXSk3C08x6li0pXEJ6tOUnmviN66bKDdR-nmsCv-NPYvyJ3ch-cOEMcaSu1jtIGaeYEhTjQym7hLCC9i9V-MYHeZ3aiNd2VW9_3uNM0VWUHSciF9aEKiHJ-ZTNYChka2bc_cvZ8/s1600/jovato.jpg)** Yo soy milonguero viejo **  * de los del tiempo del jopo,*

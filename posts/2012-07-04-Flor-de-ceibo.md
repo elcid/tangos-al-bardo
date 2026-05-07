@@ -3,6 +3,7 @@ title: "Flor de ceibo"
 date: "2012-07-04"
 original_url: https://tangosalbardo.blogspot.com/2012/07/flor-de-ceibo.html
 labels: ""
+tags: ["Francisco Canaro", "Charlo"]
 ---
 
 El ceibo y la flor del ceibo, son el árbol y la flor nacional de Argentina desde 1942, por decreto gubernamental. Se trata de un árbol bellísimo cuando está en floración, provisto de aguijones. Llega a alcanzar unos 20 metros de altura y uno de diámetro en el tronco.

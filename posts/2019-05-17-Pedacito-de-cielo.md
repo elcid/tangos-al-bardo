@@ -3,6 +3,7 @@ title: "Pedacito de cielo"
 date: "2019-05-17"
 original_url: https://tangosalbardo.blogspot.com/2019/05/pedacito-de-cielo.html
 labels: ""
+tags: ["Atilio Stampone", "Homero Expósito", "Aníbal Troilo"]
 ---
 
 Esta belleza de valsecito me trae tantos recuerdos, tanta nostalgia de mi infancia. Vivíamos en una de aquellas casas abiertas, con vistas al cielo y el toldo para mitigar el sol del estío. La vecina de al lado cantaba cuando estaba en la pileta lavando ropa o cubertería y tenía una voz hermosa, para mi oreja de chiquilín. Los tangos estaban flotando en el aire a través de la radio, pero ella me acariciaba el cuore cuando cantaba Yuyo verde o este valsecito..

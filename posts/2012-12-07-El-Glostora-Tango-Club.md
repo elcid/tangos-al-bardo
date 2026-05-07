@@ -3,6 +3,7 @@ title: "El Glostora Tango Club"
 date: "2012-12-07"
 original_url: https://tangosalbardo.blogspot.com/2012/12/el-glostora-tango-club.html
 labels: ""
+tags: ["Alfredo De Angelis", "Carlos Dante", "Julio Martel", "Floreal Ruiz"]
 ---
 
 Alguna vez lo he comentado en este espacio. Este programa fue uno de los que más éxito ha tenido en la historia de la Radio argentina. Estuvo nada menos que 22 años en el aire, y pese a que duraba apenas 15 minutos, Buenos Aires se volcaba en la escucha de ese espacio en que, durante mucha parte de esos años, la orquesta de Alfredo De Angelis estrenaba nuevos temas o repetía los que estaban en el canto y el silbo de los porteños, y en las pistas de baile.

@@ -3,6 +3,7 @@ title: "Florindo Sassone"
 date: "2017-05-29"
 original_url: https://tangosalbardo.blogspot.com/2017/05/florindo-sassone.html
 labels: ""
+tags: ["Leopoldo Federico", "Florindo Sassone", "Osvaldo Fresedo", "Carlos Di Sarli", "Edgardo Donato", "Aníbal Troilo", "Roberto Firpo", "Julián Plaza"]
 ---
 
 Cuando intervino al frente de su orquesta, en el Festival de Tango que se celebró en el Teatro Colón, en 1972, me decía luego en los camarines: "*Ha sido una de las mayores satisfacciones de mi vida como músico. Tocar en el teatro más importante de Argentina, aportar mi granito de arena a la fiesta del Tango en este Coliseo maravilloso y compartir con otros grandes del tango esta noche única y tan esperada".*

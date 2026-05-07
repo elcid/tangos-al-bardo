@@ -3,6 +3,7 @@ title: "Cartón junao"
 date: "2024-03-07"
 original_url: https://tangosalbardo.blogspot.com/2024/03/carton-junao.html
 labels: ""
+tags: ["Celedonio Flores", "Alberto Echagüe", "Juan D'Arienzo", "Julián Centeya", "Dante Linyera", "Héctor Varela", "Carlos Waiss"]
 ---
 
 Ya me he referido a ese notable creador de piezas tangueras que fue Carlos Waiss. El hijo de inmigrantes rusos que también lució como presentador de orquestas, buen manejo de la oratoria y hombre de la noche en las cuales irían luciendo sus creaciones. Algunas muy lucidas como **Soy del noventa, Si supiera que la extraño, Lenguas de fuego, A suerte y verdad, Un tango y nada más, Cosas viejas, Yuyo brujo**, etc.

@@ -3,6 +3,7 @@ title: "Alberto Tagle"
 date: "2013-01-14"
 original_url: https://tangosalbardo.blogspot.com/2013/01/alberto-tagle.html
 labels: ""
+tags: ["Roberto Firpo", "Carlos Gardel"]
 ---
 
 Fue un buen cantor con registro de tenor, que anduvo entreverado en las filas del tango, con orquestas de postín, como la de Roberto Firpo, el Trío de Antonio Sureda, los hermanos Juan y Rafael Canaro, en una época que el tango se estaba preparando para entrar en ebullición.

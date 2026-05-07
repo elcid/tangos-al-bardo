@@ -3,6 +3,7 @@ title: "Dalva de Oliveira"
 date: "2014-04-01"
 original_url: https://tangosalbardo.blogspot.com/2014/04/dalva-de-oliveira.html
 labels: ""
+tags: ["Enrique Santos Discépolo", "Enrique Delfino"]
 ---
 
 Fue una gran cantante brasileña, en una tierra fecunda en el surgimiento de mujeres dedicadas al canto. Para muchos críticos musicales de ese país, fue la más grande de todas, y hoy la traigo con mucho gusto al Blog porque también supo expresar e iluminar el tango con su voz. *A rainha da voz* (La reina de la voz), como la apodaron en su tierra.

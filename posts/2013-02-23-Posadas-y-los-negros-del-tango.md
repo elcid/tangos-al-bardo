@@ -3,6 +3,7 @@ title: "Posadas y los negros del tango"
 date: "2013-02-23"
 original_url: https://tangosalbardo.blogspot.com/2013/02/posadas-y-los-negros-del-tango.html
 labels: ""
+tags: ["Carlos Di Sarli", "Aníbal Troilo", "Orlando Goñi"]
 ---
 
 Una prueba irrefutable de la negritud fundacional del tango está en la cantidad de músicos de origen afro que salpican las partituras de los primeros temas y la participación de estos intérpretes en distintos dúos, tríos, cuartetos y demás formaciones de la primera etapa. Incluso los que tocaban en las casas de baile, eran en su mayoría de ese origen.

@@ -3,6 +3,7 @@ title: "Orchestre Lucchesi"
 date: "2015-04-29"
 original_url: https://tangosalbardo.blogspot.com/2015/04/orchestre-lucchesi.html
 labels: ""
+tags: ["Enrique Rodríguez", "Mariano Mores"]
 ---
 
 Este brasileño llegó a Francia en aquellos momentos en que el tango comenzó a mostrar su polenta y arrastre, y aprovechando que las orquestas argentinas que se iban formando necesitaban músicos para completar sus respectivos conjuntos, se anotó en algunos de ellos. Pasó por formaciones como las de Bianco-Bachicha, el Tano Genaro (Genaro Espósito), Manuel Pizarro o en la de Rafael Canaro.

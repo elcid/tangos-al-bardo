@@ -3,6 +3,7 @@ title: "El Paya Díaz"
 date: "2012-11-15"
 original_url: https://tangosalbardo.blogspot.com/2012/11/el-paya-diaz.html
 labels: ""
+tags: ["Roberto Goyeneche", "Florindo Sassone", "Edmundo Rivero", "Horacio Salgán", "Alfredo Gobbi", "Jorge Casal", "Carlos Bahr"]
 ---
 
 Fue un gran cantor que, curiosamente, tuvo su principal hinchada entre los propios colegas. Un poco lo que le pasaba a Salgán, con quien estuvo desde fines de 1950 hasta 1956. Las discográficas no creían en esta formación, la tildaban de antipopular y poco atractiva para los bailarines, y por eso se perdieron de grabar con ella, cantores como Edmundo Rivero y Carlos Bermúdez.

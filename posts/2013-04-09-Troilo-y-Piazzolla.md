@@ -3,6 +3,7 @@ title: "Troilo y Piazzolla"
 date: "2013-04-09"
 original_url: https://tangosalbardo.blogspot.com/2013/04/troilo-y-piazzolla.html
 labels: ""
+tags: ["Aníbal Troilo", "Orlando Goñi"]
 ---
 
 Eran de generaciones muy distintas y también de peripecias de origen, muy distantes entre sí. Mientras que Pichuco se crió en el Abasto, Ástor prácticamente vivió su infancia en los barrios duros de Manhattan, en Nueva York, repartida con Mar del Plata. Troilo nació en 1914 y Piazzolla en 1921.

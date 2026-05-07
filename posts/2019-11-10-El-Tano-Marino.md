@@ -3,6 +3,7 @@ title: "El Tano Marino"
 date: "2019-11-10"
 original_url: https://tangosalbardo.blogspot.com/2019/11/alberto-marino.html
 labels: ""
+tags: ["Horacio Ferrer", "Alberto Marino", "Alfredo Gobbi", "Charlo"]
 ---
 
 -*¡Pero este pibe tiene la voz hecha para los tangos!*

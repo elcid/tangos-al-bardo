@@ -3,6 +3,7 @@ title: "LOS INMORTALES:"
 date: "2025-03-23"
 original_url: https://tangosalbardo.blogspot.com/2025/03/los-inmortales.html
 labels: ""
+tags: ["Juan D'Arienzo", "Edmundo Rivero", "Julián Centeya", "Aníbal Troilo"]
 ---
 
 Un goce de porteñidad

@@ -3,6 +3,7 @@ title: "BIEN MILONGA"
 date: "2018-06-12"
 original_url: https://tangosalbardo.blogspot.com/2018/06/bien-milonga_12.html
 labels: ""
+tags: ["Alberto Echagüe", "Juan D'Arienzo"]
 ---
 
 * Si vieras que linda te pones bailando*

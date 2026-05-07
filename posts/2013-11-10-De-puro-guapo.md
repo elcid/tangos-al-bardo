@@ -3,6 +3,7 @@ title: "De puro guapo"
 date: "2013-11-10"
 original_url: https://tangosalbardo.blogspot.com/2013/11/de-puro-guapo.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Edgardo Donato", "Pedro Laurenz", "Hugo Díaz"]
 ---
 
 Este es uno de esos tangos maravillosos que uno desea escuchar o bailar, da lo mismo, aunque cuando lo bailo, sobre todo interpretado por la orquesta de Pedro Laurenz, mi cuerpo experimenta una sensación especial, como una revolución interior. Y si además, al bailarlo me toca una compañera de primera, el goce es mucho mayor todavía.

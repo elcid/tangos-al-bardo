@@ -3,6 +3,7 @@ title: "Tangos en dixieland"
 date: "2012-10-13"
 original_url: https://tangosalbardo.blogspot.com/2012/10/tangos-en-dixieland.html
 labels: ""
+tags: ["Eugenio Nóbile", "Oscar Alemán", "Raúl Lavié"]
 ---
 
 Entre los años 30 y 60, aproximadamente, el jazz inventado por los negros norteamericanos, tuvo un desarrollo muy potente en Argentina. Llegó a través de las grandes películas creadas por los estudios yanquis donde brillaban grandes bandas como las de Glenn Miller, Tommy Dorsey, Harry James y otras por el estilo y esa música creó grandes adeptos y en Buenos Aires se hizo un jazz de muy buena calidad.

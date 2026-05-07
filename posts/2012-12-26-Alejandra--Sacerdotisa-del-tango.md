@@ -3,6 +3,7 @@ title: "Alejandra: Sacerdotisa del tango"
 date: "2012-12-26"
 original_url: https://tangosalbardo.blogspot.com/2012/12/alejandra-sacerdotisa-del-tango.html
 labels: ""
+tags: ["Juan Carlos Copes"]
 ---
 
 Hace unos días traje al Blog una exhibición de Aoniken Quiroga y Alejandra Mantiñán, y les dije que él, una especie de Mickey Rooney tanguero, tenía mucho gancho, pero ella era la que brillaba como diosa y lo hacía incluso lucir más a él.

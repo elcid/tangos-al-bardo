@@ -3,6 +3,7 @@ title: "Lito Bayardo"
 date: "2017-08-21"
 original_url: https://tangosalbardo.blogspot.com/2017/08/lito-bayardo.html
 labels: ""
+tags: ["Alfredo De Angelis", "Roberto Goyeneche", "Cátulo Castillo", "Carlos Gardel", "Julio De Caro", "Pedro Laurenz", "Julio Martel", "Lito Bayardo"]
 ---
 
 Se llamaba Manuel Juan García Ferrari y fue uno de los tantos artistas rosarinos-santafesinos que bajaron a la capital porteña con su pinta y su talento, para dejarnos sus registros discográficos y un reguero tremendo de obras que enriquecen el vedemécum tanguero y folklórico. Porque fue cantor, autor teatral, periodista, hizo radioteatro, intevino en películas como actor y cantor, publicó varios libros de poesía y la citada obra autoral, en tangos y música nativa, lo consagraría definitivamente.

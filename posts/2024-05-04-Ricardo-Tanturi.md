@@ -3,6 +3,7 @@ title: "Ricardo Tanturi"
 date: "2024-05-04"
 original_url: https://tangosalbardo.blogspot.com/2024/05/ricardo-tanturi.html
 labels: ""
+tags: ["Alfredo De Angelis", "Enrique Rodríguez", "Enrique Cadícamo", "Francisco Canaro", "Alberto Castillo", "Osvaldo Fresedo", "Ricardo Tanturi", "Enrique Campos"]
 ---
 
 ** ... y su orquesta**

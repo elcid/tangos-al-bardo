@@ -3,6 +3,7 @@ title: "Alberto Gómez"
 date: "2014-05-06"
 original_url: https://tangosalbardo.blogspot.com/2014/05/alberto-gomez.html
 labels: ""
+tags: ["Enrique Santos Discépolo", "Adolfo Carabelli", "Edgardo Donato", "Alberto Gómez", "Carlos Gardel", "Pedro Maffia", "Ricardo Ruiz", "Floreal Ruiz"]
 ---
 
 Fue un cantor de larga permanencia en las carteleras no sólo de Argentina, sino de toda América incluyendo México y Cuba. Ídolo en muchos de dichos países grabó en varios de ellos dejando el recuerdo de su voz melodiosa que le venía de* nascita* pero que supo formar con el maestro Antonio Codegoni, un tenor que había destacado en la Scala de Milán. Más tarde estudiaría con Eduardo Bonessi.

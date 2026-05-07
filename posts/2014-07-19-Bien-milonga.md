@@ -3,6 +3,7 @@ title: "Bien milonga"
 date: "2014-07-19"
 original_url: https://tangosalbardo.blogspot.com/2014/07/bien-milonga.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Ismael Spitalnik", "Eladia Blázquez", "Alberto Echagüe", "Juan D'Arienzo"]
 ---
 
 Como el nombre del tangazo de Ismael Spitalnik. Se trata de la Milonga de los sábados que llevo en Madrid. Nos quedan dos funciones del mes de julio. La de esta noche y la del sábado 27. Después descansaremos en Agosto porque la Casa de Aragón, escenario de nuestras peripecias milongueras, cierra por reformas. Y en Septiembre, luego de unos variados chapuzones en el Mediterráneo, y varios libros devorados, arrancamos de nuevo con *tutti*, clases incluidas.

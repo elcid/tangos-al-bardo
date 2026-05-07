@@ -3,6 +3,7 @@ title: "El gordo triste"
 date: "2024-11-12"
 original_url: https://tangosalbardo.blogspot.com/2024/11/el-gordo-triste.html
 labels: ""
+tags: ["Roberto Goyeneche", "Astor Piazzolla", "Horacio Ferrer"]
 ---
 
 *Para el gordo Pichuco, **mi viejo maestro y amigo *

@@ -3,6 +3,7 @@ title: "Todo corazón"
 date: "2015-01-23"
 original_url: https://tangosalbardo.blogspot.com/2015/01/todo-corazon.html
 labels: ""
+tags: ["José María Contursi", "Leopoldo Federico", "Aníbal Troilo"]
 ---
 
 En la nota que realicé en el Blog sobre el destacadísimo médico, investigador, docente y violinista -de tango- Pablo Chiale, comenté que el mismo Chiale en un encuentro con el músico Juan de la Cruz Bringas, decidieron grabar un elepé en el año 2006, para lo cual formaron una orquesta, que llamaron **Todo corazón**. El producido económico de estos dos discos irían a parar a dos entidades de Bien público: La Fundación de Ayuda al Enfermo Cardiovascular y la Fundación de Investigaciones Cardiológicas Einthoven. El mismo Pablo Chiale compró muchos de esos discos que luego vendería entre sus colegas. Este compacto contiene 15 temas. En los primeros ocho la orquesta está dirigida por Carlos Pazo. En los siete restante, la dirige Mauricio Marcelli que además es el violín solista.

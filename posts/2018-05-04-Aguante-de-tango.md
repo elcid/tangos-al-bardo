@@ -3,6 +3,7 @@ title: "Aguante de tango"
 date: "2018-05-04"
 original_url: https://tangosalbardo.blogspot.com/2018/05/aguante-de-tango.html
 labels: ""
+tags: ["Eladia Blázquez", "Héctor Varela"]
 ---
 
 Siento ganas de hablar largo y tendido del autor de estos versos y de tantos otros que hicieron camino en la ruta del tango. Héctor Negro supo trajinar las palabras, con una pluma fértil, profunda y cargada de emociones. Poeta que se deslizó con sutileza e inteligencia en los meandros de la cotidianeidad del porteño de su época, penetrando con su pluma en la intimidad o en la rutinaria vida de sus semejantes.

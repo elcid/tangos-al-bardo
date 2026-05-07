@@ -3,6 +3,7 @@ title: "Un retrato de Ciriaco"
 date: "2016-02-26"
 original_url: https://tangosalbardo.blogspot.com/2016/02/ciriaco.html
 labels: ""
+tags: ["Francisco Canaro", "Eduardo Arolas", "Pedro Laurenz", "Anselmo Aieta", "Pedro Maffia"]
 ---
 
 Fue una persona del tango, irrepetible. Por su arte y su jocundia perpetua. Por sus dedos mágicos ansiosos de chamuyo, de gracia, silabeando las letras de los tangos o su melodía, como si quisiera darle voz humana, cordobesa, a su fueye travieso, inigualable. Alguien dijo que tenía algo así como un punteo guitarrístico en la ejecución del bandoneón.

@@ -3,6 +3,7 @@ title: "Mi noche triste"
 date: "2013-12-16"
 original_url: https://tangosalbardo.blogspot.com/2013/12/mi-noche-triste.html
 labels: ""
+tags: ["Francisco García Jiménez", "José González Castillo", "Pascual Contursi", "Carlos Gardel", "Roberto Firpo"]
 ---
 
 Como es harto sabido, fue el primer tango-canción, o sea, en el que se conjuraron música y letra para mayor gloria de compositores y cantantes. Hoy quiero rememorarlo, a través de la cálida pluma de Francisco García Jiménez, el autor, a su vez, de tantas páginas hermosas del cancionero popular, que escribió estas historias en 1967.

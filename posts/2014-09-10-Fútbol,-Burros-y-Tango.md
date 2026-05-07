@@ -3,6 +3,7 @@ title: "Fútbol, Burros y Tango"
 date: "2014-09-10"
 original_url: https://tangosalbardo.blogspot.com/2014/09/futbol-burros-y-tango.html
 labels: ""
+tags: ["Ernesto Baffa", "Héctor Varela", "Juan Maglio"]
 ---
 
 Los porteños somos futboleros y tangueros. Y muchos de nosotros: *burreros*, o sea nos gusta merodear los hipódromos. Por ejemplo, yo, en mi época lejana de aficionado a las carreras de caballos, esos hermosos cuadrúpedos, recorrí todos los hipódromos por el Pacífico, desde el de Chile, Monterrico en Lima, Hipotecho en Bogotá, hasta el Santa Anita de Los Ángeles, California.

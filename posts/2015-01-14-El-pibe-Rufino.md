@@ -3,6 +3,7 @@ title: "El pibe Rufino"
 date: "2015-01-14"
 original_url: https://tangosalbardo.blogspot.com/2015/01/el-pibe-rufino.html
 labels: ""
+tags: ["Francisco García Jiménez", "José María Contursi", "Juan Andrés Caruso", "Antonio Bonavena", "Enrique Cadícamo", "Carlos Di Sarli", "Osvaldo Fresedo", "Roberto Rufino"]
 ---
 
 Siempre vuelvo a este cantorazo, porque lo pongo en las milongas y me sigue acariciando el cuore, cuando canta con Carlos Di Sarli, siendo un pibe. Y anoche precisamente hablábamos con un amigo milonguero, sobre esa clase de *nascita *que trae y mostrándolo totalmente desenvuelto con la gran orquesta del pianista de Bahía Blanca, asombrándonos con esa madurez interpretativa que tenía, esas entrada a ritmo y la transmisión que hacía de los versos. Incluso te emociona bailando.

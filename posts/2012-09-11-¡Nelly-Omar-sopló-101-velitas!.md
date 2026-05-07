@@ -3,6 +3,7 @@ title: "¡Nelly Omar sopló 101 velitas!"
 date: "2012-09-11"
 original_url: https://tangosalbardo.blogspot.com/2012/09/nelly-omar-soplo-101-velitas.html
 labels: ""
+tags: ["Alberto Di Paulo", "Francisco Canaro", "Homero Manzi", "Nelly Omar"]
 ---
 
 Fue ayer, 10 de setiembre. La gran artista que nació en Guaminí (Provincia de Buenos Aires) ese día de 1911, sigue increíblemente dándole cuerda a su gola que se mantiene firme pese al paso de los años.

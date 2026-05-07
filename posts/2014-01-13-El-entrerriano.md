@@ -3,6 +3,7 @@ title: "El entrerriano"
 date: "2014-01-13"
 original_url: https://tangosalbardo.blogspot.com/2014/01/el-entrerriano.html
 labels: ""
+tags: ["Carlos Di Sarli"]
 ---
 
 Siempre estará en las enciclopedias del género como el primer tango que fue trasladado a las partituras, antes que terminara el siglo XIX, en una época en que los músicos eran intuitivos y las melodías fluian por todos lados y se convertían en canciones anónimas o alguien se aprovechaba y les estampaba su firma.

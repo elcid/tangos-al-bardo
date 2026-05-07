@@ -3,6 +3,7 @@ title: "Fresedo-Ray"
 date: "2012-12-17"
 original_url: https://tangosalbardo.blogspot.com/2012/12/fresedo-ray.html
 labels: ""
+tags: ["Roberto Pansera", "Ricardo Ruiz"]
 ---
 
 Roberto Ray (Raimondo) fue el cantor representativo del estilo de Fresedo. Una especie de *chansonnier* y estribillista, dando que por entonces lo normal era que los primitivos cantores de orquesta sólo entonasen la segunda parte del poema.

@@ -3,6 +3,7 @@ title: "Di Sarli y sus orquestas"
 date: "2015-04-10"
 original_url: https://tangosalbardo.blogspot.com/2015/04/di-sarli-y-sus-orquestas.html
 labels: ""
+tags: ["Enrique Santos Discépolo", "Carlos Di Sarli", "José Libertella", "Mercedes Simone", "Aníbal Troilo", "Héctor Varela", "Julián Plaza", "Héctor Marcó"]
 ---
 
 Aunque cambiase de músicos en su orquesta, la formación de Carlos Di Sarli continuó siendo un ejemplo de fidelidad al estilo que lo llevó a los primeros planos. Le había sucedido con el Sexteto y volvería a sucederle cuando en un momento brillante de su carrera profesional, con la orquesta instalada en el buen paladar o buena oreja del público tanguero, recibió la noticia de que desharía su formación a mediados de 1948, para tomarse una larga temporada de descanso que duraría dos años y medio nada menos.

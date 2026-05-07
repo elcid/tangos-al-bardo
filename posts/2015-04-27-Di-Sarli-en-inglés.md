@@ -3,6 +3,7 @@ title: "Di Sarli en inglés"
 date: "2015-04-27"
 original_url: https://tangosalbardo.blogspot.com/2015/04/di-sarli-en-ingles.html
 labels: ""
+tags: ["José María Contursi", "Carlos Di Sarli", "Alberto Podestá", "Azucena Maizani", "Mercedes Simone", "Roberto Rufino", "Aníbal Troilo", "Alberto Gómez"]
 ---
 
 Ésta es otra muestra de la calidad , receptividad y profesionalidad del gran maestro de Bahía Blanca. Sucedió en el año 1945, durante la emisión del programa radial: "Ronda musical de las Américas". Dicho programa había sido ideado por la empresa Coca Cola al radicarse en Argentina y lo conducía el Locutor-presentador Iván Casadó por Radio El Mundo. En el mismo participaron varias figuras de la música popular, como Miguel Caló, Aníbal Troilo, Sabina Olmos, Azucena Maizani, Carmen Duval, Mercedes Simone y Alberto Gómez que estaban actuando en Cuba, e incluso la orquesta titular se llamaba como el producto que auspiciaba el programa y lo dirigía el pianista Carlos Demaría.

@@ -3,6 +3,7 @@ title: "Un corto tanguero"
 date: "2013-10-26"
 original_url: https://tangosalbardo.blogspot.com/2013/10/un-corto-tanguero.html
 labels: ""
+tags: ["Juan D'Arienzo"]
 ---
 
 Cortita y al pie, diría un muchacho futbolero, y el símil lo usamos para todas esas cosas que vienen en frasquitos pequeños, pero guardan dentro algún tesorito. Como esas botellitas de whisky o de tinto que te dan en el avión para acortar el viaje.

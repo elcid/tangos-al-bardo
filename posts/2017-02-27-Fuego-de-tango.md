@@ -3,6 +3,7 @@ title: "Fuego de tango"
 date: "2017-02-27"
 original_url: https://tangosalbardo.blogspot.com/2017/02/fuego-de-tango.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Alberto Morán"]
 ---
 
 En la década del cincuenta, la de Osvaldo Pugliese fue la orquesta con la cual hemos bailado, los miembros de nuestra barra, más veces en vivo y en directo. Porque vino muchas veces al Club Atlético Huracán, frente al Parque Patricios, cuya sede social era de las más modernas y estaba provisto de varias pistas, dos de ellas de madera lustrosa. Era un lujo milonguear en semejantes instalaciones, que formaban parte de nuestro barrio.

@@ -3,6 +3,7 @@ title: "Enrique Delfino"
 date: "2016-07-08"
 original_url: https://tangosalbardo.blogspot.com/2016/07/enrique-delfino.html
 labels: ""
+tags: ["Juan Carlos Cobián", "Osvaldo Fresedo", "Carlos Di Sarli", "Enrique Delfino", "Alberto Podestá", "Cátulo Castillo", "Azucena Maizani", "Edgardo Donato"]
 ---
 
 Mezcla rara de malabarista del piano, maravillosa técnica y genio creador, Delfy es uno de los próceres del tango que ha dejado una herencia maravillosa en forma de composiciones que siguen vivitas y coleando en los atriles de los conjuntos típicos. Se hizo muy popular en Estados Unidos y en ciudades europeas por su condición, precisamente, de *repentista* del piano. Podía pedirle a la platea tres notas e improvisar de inmediato una pieza, como asumismo imitar todos los ruidos imaginables con el teclado.

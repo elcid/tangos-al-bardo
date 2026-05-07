@@ -3,6 +3,7 @@ title: "Francisco Canaro opina "
 date: "2023-11-26"
 original_url: https://tangosalbardo.blogspot.com/2023/11/francisco-canaro-opina.html
 labels: ""
+tags: ["Francisco Canaro", "Juan D'Arienzo"]
 ---
 
 **Sobre Juan D'Arienzo y su orquesta:**

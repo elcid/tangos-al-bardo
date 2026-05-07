@@ -3,6 +3,7 @@ title: "Aquellos valsecitos"
 date: "2014-01-09"
 original_url: https://tangosalbardo.blogspot.com/2014/01/aquellos-valsecitos.html
 labels: ""
+tags: ["José González Castillo", "Roberto Firpo", "Charlo"]
 ---
 
 Cómo alborotaban en los bares, los casamientos (¡*Que bailen los novios*!), los conventillos, las noches serenateras, en el silbo de los porteños rumbo al trabajo...

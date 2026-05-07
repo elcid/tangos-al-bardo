@@ -3,6 +3,7 @@ title: "EL HOMBRE DEL TANGO"
 date: "2025-10-16"
 original_url: https://tangosalbardo.blogspot.com/2025/10/el-hombre-del-tango.html
 labels: ""
+tags: ["Anselmo Aieta"]
 ---
 
 De pronto, caminando por cualquier calle, le llega nítido el sonido de un tango propalado desde el parlante de de una disquería. "Pará... pará". se dice a sí mismo. Y se detiene. Entrecierra los ojos, se aísla en su mundo interior y ya nada existe para él, como no sea la melodía que baña dulcemente su alma. -Ésta es la jaula del japonés Pichuco -monologa para sus adentros- . Fraseo limpito, como si la bandola, en lugar de tocar, estuviese hablando... Moviendo apenas los labios, canturrea el poema al compás de la música: "La esquina del herrero, barro y pampa...". Cuando concluye el disco, reemprende la marcha. Pero ya es otro tipo, algo así como la reencarnación del muchacho que fue en el 40.

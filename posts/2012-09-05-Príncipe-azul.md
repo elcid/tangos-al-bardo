@@ -3,6 +3,7 @@ title: "Príncipe azul"
 date: "2012-09-05"
 original_url: https://tangosalbardo.blogspot.com/2012/09/principe-azul.html
 labels: ""
+tags: ["Francisco Lomuto", "Roberto Firpo", "Carlos Gardel"]
 ---
 
 Su nombre artístico representaba toda una invocación a los sueños y le confería una especie de atracción extra porque se trataba de un cantor que cargaba consigo estudios de medicina y filosofía y letras, aunque no hubiese terminado ninguna carrera, pero para la época era extraño.

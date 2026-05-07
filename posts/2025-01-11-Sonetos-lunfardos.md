@@ -3,6 +3,7 @@ title: "Sonetos lunfardos"
 date: "2025-01-11"
 original_url: https://tangosalbardo.blogspot.com/2025/01/sonetos-lunfardos.html
 labels: ""
+tags: ["Julián Centeya"]
 ---
 
 ** LA RECHIFLADA**

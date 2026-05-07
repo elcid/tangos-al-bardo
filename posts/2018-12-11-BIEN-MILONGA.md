@@ -3,6 +3,7 @@ title: "BIEN MILONGA"
 date: "2018-12-11"
 original_url: https://tangosalbardo.blogspot.com/2018/12/bien-milonga_11.html
 labels: ""
+tags: ["Alfredo De Angelis", "Juan D'Arienzo", "Julio Martel", "Carlos Dante"]
 ---
 
 * Era tan suave la armonía*

@@ -3,6 +3,7 @@ title: "Cuarteto Los Porteñitos"
 date: "2014-12-09"
 original_url: https://tangosalbardo.blogspot.com/2014/12/cuarteto-los-portenitos.html
 labels: ""
+tags: ["Horacio Salgán", "Ubaldo De Lío", "Pedro Maffia", "Homero Manzi"]
 ---
 
 Después de un fin de semana con días festivos y "puente" para tomarse el olivo hacia cualquier parte, es difícil volver a poner la máquina en ritmo y darle al cuerpo lo que el cuerpo pide. O sea: unos tanguitos movidos para retomar la actividad, porque esta noche tenemos una milonga y de las buenas, ya que BIEN MILONGA crece y no podemos fallar.

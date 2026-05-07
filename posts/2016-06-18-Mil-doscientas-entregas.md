@@ -3,6 +3,7 @@ title: "Mil doscientas entregas"
 date: "2016-06-18"
 original_url: https://tangosalbardo.blogspot.com/2016/06/mil-doscienta-entradas.html
 labels: ""
+tags: ["Carlos Di Sarli", "Héctor Varela"]
 ---
 
 Efectivamente, con esta entrega de hoy, culmino las 1200 páginas de **Tangos al bardo**. Mis *tango papers* no quiero compararlos ni de casualidad con los "*Panamá papers*", por ejemplo, porque esos son papeles más relevantes y unos buenos paquetes de ellos pueden servir incluso para consagrar a grandes empresarios, financistas e incluso ministros, diputados, senadores o Presidentes de países del *Mondo cane* actual. Qué vachaché!

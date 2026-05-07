@@ -3,6 +3,7 @@ title: "Canaro en París"
 date: "2012-03-31"
 original_url: https://tangosalbardo.blogspot.com/2012/03/canaro-en-paris.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Juan D'Arienzo"]
 ---
 
 El tango encierra historias maravillosas y anécdotas imprescindibles.

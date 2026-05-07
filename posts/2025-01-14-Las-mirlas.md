@@ -3,6 +3,7 @@ title: "Las mirlas"
 date: "2025-01-14"
 original_url: https://tangosalbardo.blogspot.com/2025/01/las-mirlas.html
 labels: ""
+tags: ["Horacio Salgán"]
 ---
 
 Hoy tengo ganas de traer a la página este bambuco colombiano que dio muchas vueltas por el mundo y se fue transformando y adaptándose a otros géneros. El abogado Jesús María Trespalacios Madrid fue el autor de los versos y el cantor Climaco Vergara la puso la música que permitió a la canción tomar vuelo y ser interpretado por numerosos intérpretes.

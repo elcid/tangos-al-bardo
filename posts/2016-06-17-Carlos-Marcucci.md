@@ -3,6 +3,7 @@ title: "Carlos Marcucci"
 date: "2016-06-17"
 original_url: https://tangosalbardo.blogspot.com/2016/06/carlos-marcucci.html
 labels: ""
+tags: ["Francisco Canaro", "Sebastián Piana", "Carlos Gardel", "Julio De Caro", "Pedro Laurenz", "Manuel Meaños", "Enrique Dizeo", "Pedro Maffia"]
 ---
 
 El hecho de que su obra cumbre -el tango **Mi dolor**- siga latiendo en los corazones de los bailarines de todos los ruedos, y continúe escuchándose como si fuera de hoy -con gotas de su bandoneón cargado de ese líquido sentimental que fluye del mismo-, lo coloca en la memoria musical de los tangueros sin época. Y de la historia en que está envuelto, gracias también a los versos del *gallego* Manuel A. Meaños, aquel hombre de Avellaneda que fuera creador de tantos programas radiales de éxito, merced a sus libretos eficazmente llegadores.

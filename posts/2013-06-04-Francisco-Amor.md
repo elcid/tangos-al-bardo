@@ -3,6 +3,7 @@ title: "Francisco Amor"
 date: "2013-06-04"
 original_url: https://tangosalbardo.blogspot.com/2013/06/francisco-amor.html
 labels: ""
+tags: ["Alfredo De Angelis", "Mario Battistella", "Enrique Cadícamo", "Francisco Canaro", "Hugo del Carril", "Sebastián Piana", "Edmundo Rivero", "Mariano Mores"]
 ---
 
 Cantor de tango con arrestos criollazos, este artista de Bahía Blanca, llegó a la Capital con su bagaje de folklorista, actor y despuntando en algunos tangos, a los que dotaba de una esencia sutil y distinta, con aquel aroma campesino y romántico de los Magaldi, Corsini o Héctor Palacios.

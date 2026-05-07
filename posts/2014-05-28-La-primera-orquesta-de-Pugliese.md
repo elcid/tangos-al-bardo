@@ -3,6 +3,7 @@ title: "La primera orquesta de Pugliese"
 date: "2014-05-28"
 original_url: https://tangosalbardo.blogspot.com/2014/05/la-primera-orquesta-de-pugliese.html
 labels: ""
+tags: ["Virgilio Expósito", "Osvaldo Pugliese", "Aníbal Troilo", "Agustín Bardi", "Pedro Laurenz", "Alfredo Gobbi", "Pedro Maffia", "Homero Manzi"]
 ---
 
 La etapa de formación inevitable la fue cumpliendo Osvaldo Pugliese en los palcos de cafés, como se estilaba y luego, a medida que avanzaba en sus conocimientos musicales, integrándose en conjuntos como el de Paquita Bernardo, aquella mujer bandoneonista; con Enrique Pollet ("*El francesito*"); y contratado por Pedro Maffia debutó en el Sexteto de éste en noviembre de 1926, que completaban Alfredo De Franco como segundo bandoneón, Elvino Vardaro, primer violín, Cayetano Puglisi, segundo violín y Francisco De Lorenzo en contrabajo.

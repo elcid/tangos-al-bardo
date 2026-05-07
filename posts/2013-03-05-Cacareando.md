@@ -3,6 +3,7 @@ title: "Cacareando"
 date: "2013-03-05"
 original_url: https://tangosalbardo.blogspot.com/2013/03/cacareando.html
 labels: ""
+tags: ["Celedonio Flores", "Mercedes Simone", "Carlos Figari", "Homero Manzi", "Charlo"]
 ---
 
 Los hermanos Sureda llenaron toda una época con sus creaciones, sobre todo esos valsecitos que eran el plato fuerte de los guitarreros, fueyes y cantores de barrio.

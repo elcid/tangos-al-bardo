@@ -3,6 +3,7 @@ title: "Bien milonga"
 date: "2018-01-30"
 original_url: https://tangosalbardo.blogspot.com/2018/01/bien-milonga_30.html
 labels: ""
+tags: ["Carlos Di Sarli"]
 ---
 
 [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgqH54g1XKnW9yq5XWyj2awzvn6brknEOjk-sPcZkuWRa6RNyGd9tk0bv-t4w356rqPuO-wvUpyYCdzbWOhnbP2divMixXt5qwZPLFvsuZZmobUU4Ifp-rU9TutW95TUIpbgYPLxHKmwVru/s200/dopia.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgqH54g1XKnW9yq5XWyj2awzvn6brknEOjk-sPcZkuWRa6RNyGd9tk0bv-t4w356rqPuO-wvUpyYCdzbWOhnbP2divMixXt5qwZPLFvsuZZmobUU4Ifp-rU9TutW95TUIpbgYPLxHKmwVru/s1600/dopia.jpg) *Bailar el tango con vos, firuleteado,*

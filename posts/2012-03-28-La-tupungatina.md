@@ -3,6 +3,7 @@ title: "La tupungatina"
 date: "2012-03-28"
 original_url: https://tangosalbardo.blogspot.com/2012/03/la-tupungatina.html
 labels: ""
+tags: ["Osvaldo Pugliese"]
 ---
 
 Voy a recrearme en una de las joyas del folklore y el tango. Se trata de **La tupungatina**.

@@ -3,6 +3,7 @@ title: "Osvaldo Cordó"
 date: "2015-04-06"
 original_url: https://tangosalbardo.blogspot.com/2015/04/osvaldo-cordo.html
 labels: ""
+tags: ["José María Contursi", "Mario Battistella", "Osvaldo Fresedo", "Carlos Di Sarli", "Alberto Marino", "Horacio Salgán", "Aníbal Troilo", "Roberto Grela"]
 ---
 
 Pudo ser un cantor de largo recorrido en las grandes orquestas del 40 y 50, pero por motivos personales, sólo irradió su luz en escasas placas discográficas que revelan a un vocalista de hermosa voz, buen fraseo y estirpe gardeliana que le contagiara su padre, fanático del Zorzal criollo y guitarrero. En ambas facetas le vió condiciones al chico y lo mandará a estudiar tempranamente con el maestro de cantores: Eduardo Bonessi.

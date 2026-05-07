@@ -3,6 +3,7 @@ title: "Tangos con olor a pampa"
 date: "2013-01-20"
 original_url: https://tangosalbardo.blogspot.com/2013/01/tangos-con-olor-pampa.html
 labels: ""
+tags: ["José González Castillo", "Osvaldo Pugliese", "Carlos Di Sarli", "Rodolfo Mederos", "Eduardo Arolas", "Horacio Salgán", "Aníbal Troilo", "Carlos García"]
 ---
 
 Eduardo Arolas y Agustín Bardi, no sólo fueron los compositores que crearon un arsenal tanguero maravilloso de cara al futuro, ejemplo de calidad musical, sino que supieron mezclar su porteña tanguidad con aquella pampa agreste tan cercana al *sub urbis*. El barrio de Barracas, donde se criaron -aunque Bardi nació en Las Flores, como Roberto Firpo- que marcaba la linde con los pastos sureños, les permitieron vislumbrar la fuerza de esa pampa brava reflejada en muchos de sus temas.

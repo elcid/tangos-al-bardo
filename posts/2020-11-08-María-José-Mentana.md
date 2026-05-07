@@ -3,6 +3,7 @@ title: "María José Mentana"
 date: "2020-11-08"
 original_url: https://tangosalbardo.blogspot.com/2020/11/maria-jose-mentana.html
 labels: ""
+tags: ["Cátulo Castillo", "Atilio Stampone", "Néstor Marconi", "Aníbal Troilo", "Mariano Mores", "Homero Manzi"]
 ---
 
 Hoy me toca rendir tributo a esta cantante que ha desarrollado una gran trayectoria en el tango. Una vida consagrada al género porque empezó de niña, con 9 años, asombrándonos a todos con su desparpajo, sus dotes artísticas y las conexiones emocionales con el mismo. Lo que sería para siempre el cordón umbilical que la consagraría no sólo en Argentina sino en también en numerosos países de varios continentes, en los cuales dejaría profunda huella..

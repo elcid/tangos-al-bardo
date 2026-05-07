@@ -3,6 +3,7 @@ title: "La viajera perdida"
 date: "2021-12-17"
 original_url: https://tangosalbardo.blogspot.com/2021/12/la-viajera-perdida.html
 labels: ""
+tags: ["Ignacio Corsini", "Edmundo Rivero", "Aníbal Troilo"]
 ---
 
 Los tenemos un poco olvidados a esa yunta de creadores de canciones, tangos, valsecitos y milongas que retratan toda una época histórica de Buenos Aires, de la Argentina, de los mazorqueros, los años de Juan Manuel de Rosas. Y lo más importante: el estilo. Porque todos esos temas llevan la firma de una persona que enriqueció notablemente la poesía tanguera y dejó junto a Maciel un legado muy valioso.

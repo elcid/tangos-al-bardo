@@ -3,6 +3,7 @@ title: "Dos fracasos"
 date: "2016-06-22"
 original_url: https://tangosalbardo.blogspot.com/2016/06/dos-fracasos.html
 labels: ""
+tags: ["Domingo Federico", "Armando Pontier", "Alberto Podestá", "Homero Expósito", "Osmar Maderna", "Miguel Caló", "Ariel Ardit", "Raúl Berón"]
 ---
 
 La década del cuarenta resultó prodigiosa para el devenir del tango, por las constantes creaciones de músicos, poetas, orquestas y cantores. Todas las semanas inundaban el mercado con nuevos y hermosos temas que de inmediato los cantaban hombres y mujeres, los silbaban, tarareaban y los bailaban con el fervor propio de un ambiente iluminado de música y de voces maravillosas. Y hoy seguimos dándole cuerda a esos temas en la milonga porque representan la espina dorsal del tango y el linimento mágico que nos transporta en la pista.

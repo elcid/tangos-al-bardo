@@ -3,6 +3,7 @@ title: "Lejos de Buenos Aires"
 date: "2025-09-22"
 original_url: https://tangosalbardo.blogspot.com/2025/09/lejos-de-buenos-aires.html
 labels: ""
+tags: ["Carlos Gardel", "Aníbal Troilo", "Miguel Caló", "Raúl Berón"]
 ---
 
 Cuántas veces nos pasa por la cabeza y por el cuore, a los porteños que vivimos lejos de nuestro querido Buenos Aires, esa lejanía. La que que nos impide caminar por nuestros barrios, pisotear la calle Corrientes de aquellos sueños juveniles, las casas familiares, el café de la barra, las milongas inolvidables donde trazamos esos pasos que brotaban del alma tanguera...

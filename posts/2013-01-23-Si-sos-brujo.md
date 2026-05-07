@@ -3,6 +3,7 @@ title: "Si sos brujo"
 date: "2013-01-23"
 original_url: https://tangosalbardo.blogspot.com/2013/01/si-sos-brujo.html
 labels: ""
+tags: ["Leopoldo Federico", "Osvaldo Pugliese", "Víctor Lavallén", "Atilio Stampone", "Néstor Marconi", "Julián Plaza", "Raúl Garello"]
 ---
 
 Hace un par de días estuve viendo nuevamente el Documental que hizo Caroline Neal, para el cual convocaron a los sobrevivientes de las antiguas orquestas típicas. Se basaba en el proyecto de la *Orquesta Escuela de Tango*, y para tal fin, no bastaba con las partituras y los arreglos, sino que era necesario también descubrir los *yeites* que inventaron para darle tamaña personalidad a cada una de las orquestas, tan diferentes entre sí.

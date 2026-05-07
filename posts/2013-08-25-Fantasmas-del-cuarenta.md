@@ -3,6 +3,7 @@ title: "Fantasmas del cuarenta"
 date: "2013-08-25"
 original_url: https://tangosalbardo.blogspot.com/2013/08/fantasmas-del-cuarenta.html
 labels: ""
+tags: ["José María Otero"]
 ---
 
 A mí también me caben las generales de la ley y el calor me impulsa a pasar una semanita en la playa para zambullirme en las aguas del *Mare Nostrum*, como se llamaba en la época bizantina o romana, el Mar Mediterráneo.

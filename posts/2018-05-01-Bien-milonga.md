@@ -3,6 +3,7 @@ title: "Bien milonga"
 date: "2018-05-01"
 original_url: https://tangosalbardo.blogspot.com/2018/05/bien-milonga.html
 labels: ""
+tags: ["Juan D'Arienzo", "Héctor Varela"]
 ---
 
 *El tango que nos dio *

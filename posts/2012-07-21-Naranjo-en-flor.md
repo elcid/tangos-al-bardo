@@ -3,6 +3,7 @@ title: "Naranjo en flor"
 date: "2012-07-21"
 original_url: https://tangosalbardo.blogspot.com/2012/07/naranjo-en-flor.html
 labels: ""
+tags: ["Homero Expósito", "Néstor Marconi", "Floreal Ruiz", "Homero Manzi"]
 ---
 
 Homero Expósito, poeta perteneciente a la generación dorada del cuarenta, fue el más original y genuino de todos ellos.

@@ -3,6 +3,7 @@ title: "Ismael Spitalnik"
 date: "2012-03-18"
 original_url: https://tangosalbardo.blogspot.com/2012/03/ismael-spitalnik.html
 labels: ""
+tags: ["Juan Carlos Cobián", "Ismael Spitalnik", "Hugo del Carril", "Edmundo Rivero", "Horacio Salgán", "Alfredo Gobbi"]
 ---
 
 Hoy me embarco en esta sección con un bandoneonista de primer nivel y de perfil bajo, como coinciden los que le conocieron bien.

@@ -3,6 +3,7 @@ title: "Aguja brava"
 date: "2023-02-01"
 original_url: https://tangosalbardo.blogspot.com/2023/02/aguja-brava.html
 labels: ""
+tags: ["Edmundo Rivero"]
 ---
 
 Estos versos lunfas del poeta Eduardo Giorlandini muestran su gran capacidad creativa. Un señor abogado, autor de numerosos libros sobre Derecho y cuestiones sociales, incluso sobre Política, además de artículos periodísticos, y de la poesía lunfardesca que curtió como pocos, y que lucen en su libro **Runfla lunfarda** publicado en 1971 en su Bahía Blanca natal, la cual fue siempre morada protectora. En total se cuentan 46 libros escritos por él y editados.

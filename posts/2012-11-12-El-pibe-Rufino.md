@@ -3,6 +3,7 @@ title: "El pibe Rufino"
 date: "2012-11-12"
 original_url: https://tangosalbardo.blogspot.com/2012/11/el-pibe-rufino.html
 labels: ""
+tags: ["Carlos Di Sarli", "Manuel Romero", "Aníbal Troilo", "Miguel Caló"]
 ---
 
 Iba en camino de los 18 años, cuando graba su primer tema con la orquesta del maestro Carlos Di Sarli en la cual militaba desde hacía varios meses, gracias a que el representante del pianista de Bahía Blanca entonces, Carlos Garay, lo recomendó a éste. Lo hizo tras haberlo escuchado asombrado en un palco tanguero interpretando el tango del propio Di Sarli y Carrera Sotelo: *Milonguero viejo*.

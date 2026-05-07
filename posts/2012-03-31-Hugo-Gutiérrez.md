@@ -3,6 +3,7 @@ title: "Hugo Gutiérrez"
 date: "2012-03-31"
 original_url: https://tangosalbardo.blogspot.com/2012/03/quiero-presentar-quienes-no-lo-conocen.html
 labels: ""
+tags: ["Francisco Lomuto", "Homero Expósito", "Cátulo Castillo", "Alberto Podestá", "Pedro Laurenz", "Homero Manzi", "Miguel Caló", "Carlos Bahr"]
 ---
 
 Quiero presentar a quienes no lo conocen a todo un personaje del tango: **Hugo Gutiérrez**, violinista, compositor, letrista y cantor. La completa.

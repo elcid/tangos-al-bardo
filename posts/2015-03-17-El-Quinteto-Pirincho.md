@@ -3,6 +3,7 @@ title: "El Quinteto Pirincho"
 date: "2015-03-17"
 original_url: https://tangosalbardo.blogspot.com/2015/03/el-quinteto-pirincho.html
 labels: ""
+tags: ["Francisco Canaro", "Jorge Dragone"]
 ---
 
 Francisco Canaro, pese a todas las invectivas y pullas creadas sobre su persona y sus actos, fue no sólo director y compositor de éxito, sino un hombre imaginativo, ambicioso y constante ideólogo y creador de oportunidades para él, sus hermanos, y los músicos que lo acompañaron en todas sus aventuras. Si bien su trayectoria como ejecutante es muy poca cosa, en el resto de sus emprendimientos musicales, acertó casi siempre.

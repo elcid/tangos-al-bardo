@@ -3,6 +3,7 @@ title: "Amor y tango"
 date: "2021-05-30"
 original_url: https://tangosalbardo.blogspot.com/2021/05/amor-y-tango.html
 labels: ""
+tags: ["Floreal Ruiz", "Carlos Bahr", "José Basso"]
 ---
 
 ¿Será la nostalgia y la impotencia por las noches de milonga que llevamos sin poder vivirlas? Ya son quince meses alejados de las pistas. Para todo aquel que no frecuenta las salas de baile, y me refiero a aquellas donde bailamos los milongueros, se hace difícil entender lo que el cuore, la mente y el cuerpo nos piden, sin que podamos satisfacer esa necesidad psicofísica. También pueden añorar sus veladas bailables los que frecuentan otras modalidades musicales, pero la milonga tiene algo que es dificíl, quizás, explicarlo con palabras.

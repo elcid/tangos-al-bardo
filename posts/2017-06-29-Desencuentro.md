@@ -3,6 +3,7 @@ title: "Desencuentro"
 date: "2017-06-29"
 original_url: https://tangosalbardo.blogspot.com/2017/06/desencuentro.html
 labels: ""
+tags: ["Roberto Goyeneche", "Cátulo Castillo", "Roberto Rufino", "Néstor Marconi", "Aníbal Troilo", "Elba Berón"]
 ---
 
 Esta hermosura de tango llegó en 1962, cuando el género estaba de capa caída y sólo lo sostenían temas como Desencuentro, para mayor gloria del *Polaco* Goyeneche y Roberto Rufino, en sendas grabaciones de estos dos jilgueros criollos con la orquesta de Baffa-Berlingieri y Pichuco, autor de la música, respectivamente. Se aliaron precisamente Troilo y Cátulo Castillo en la composición del tema que sigue dando dividendos por ese heroísmo de cotidianeidad que tienen tantas letras de tango, acompañadas por la música precisa que las realza aún más.

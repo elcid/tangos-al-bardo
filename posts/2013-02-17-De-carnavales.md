@@ -3,6 +3,7 @@ title: "De carnavales"
 date: "2013-02-17"
 original_url: https://tangosalbardo.blogspot.com/2013/02/de-carnavales.html
 labels: ""
+tags: ["Roberto Goyeneche", "Francisco Canaro", "Cátulo Castillo", "Aníbal Troilo", "Charlo"]
 ---
 
 Acaba de terminar la Fiesta de Carnaval *mais grande do mundo*, que es sin duda la de Río de Janeiro, con toda su reminiscencia afro-pagana, que tuve la inmensa suerte de vivirla *in person* hace años.

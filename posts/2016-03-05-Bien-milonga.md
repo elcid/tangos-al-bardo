@@ -3,6 +3,7 @@ title: "Bien milonga"
 date: "2016-03-05"
 original_url: https://tangosalbardo.blogspot.com/2016/03/bien-milonga.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Osvaldo Zotto", "Mariano Mores"]
 ---
 
 Sábado milonguero. Fresquito. Las tabas piden movimiento y la vitrola las empuja que da gusto. Cuando nos aprestamos para la milonga de esta noche, como todos los sábados y martes del año, en la Casa de Aragón, de Madrid (Pza. República Argentina nº 6), uno se afana en la elección, entre mates y bizcochitos, para no perder la costumbre, Es fácil sentir esa picazón por dentro. Entonces podemos carburar con los temas que arrean con todo, rumbo a la pista.

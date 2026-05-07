@@ -3,6 +3,7 @@ title: "Desde el alma"
 date: "2014-02-26"
 original_url: https://tangosalbardo.blogspot.com/2014/02/desde-el-alma.html
 labels: ""
+tags: ["Francisco Canaro", "Osvaldo Pugliese", "Hugo del Carril", "Roberto Firpo", "Homero Manzi", "Nelly Omar"]
 ---
 
 Este valse Boston, lo compuso Rosita Melo (Rosa Clotilde Mele) cuando apenas tenía 14 años. Había nacido en Montevideo, pero sus padres italianos se trasladaron a vivir en Buenos Aires, con toda la familia cuando ella tenía apenas dos años. A los cuatro años ya chapurreaba en el piano, que luego estudiaría y se recibiría como profesora del mismo con matrícula de honor.

@@ -3,6 +3,7 @@ title: "Calle Corrientes, la contradictoria"
 date: "2022-09-15"
 original_url: https://tangosalbardo.blogspot.com/2022/09/calle-corrientes-la-contradictoria.html
 labels: ""
+tags: ["Libertad Lamarque", "Osvaldo Pugliese"]
 ---
 
 *"Y en la última pelea de la noche ..." *Un espeso ciclón de gritos, aplausos y silbidos recorre las graderías del Luna Park mientras el impecable Fiorentino anuncia sucesivamente al challenger y al hombre del pantaloncito blanco. Hora, hora y pico más tarde, a lo sumo (salvo que medie un prematuro nocaut), la multitud inaugurará la primera de las 69 cuadras de "*la calle más vital, auténtica y porteña de Buenos Aires*", al decir de los que la conocieron angosta y de los que la heredaron ancha: Corrientes. Sesenta y nueve cuadras en que se dan la mano el mito con la realidad, la nostalgia con la juventud, el ocio con el trabajo.

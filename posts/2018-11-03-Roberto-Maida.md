@@ -3,6 +3,7 @@ title: "Roberto Maida"
 date: "2018-11-03"
 original_url: https://tangosalbardo.blogspot.com/2018/11/roberto-maida.html
 labels: ""
+tags: ["Francisco Canaro", "Cátulo Castillo", "Azucena Maizani", "Carlos Gardel", "Aníbal Troilo", "Manuel Romero", "Roberto Firpo", "Pedro Maffia"]
 ---
 
 Fue un destacado cantor en la etapa del 20 al 40, con un estilo basado fundamentalmente en Carlos Gardel, de quien se hizo muy amigo en Europa. Allí nació Roberto Maida, en un pueblito de Catanzaro y sus padres emigraron con él a Argentina, cuando tenía un año de edad, instalándose en el porteño barrio de Balvanera, donde 4 años más tarde nacería su hermano Antonio que también destacó como cantor.

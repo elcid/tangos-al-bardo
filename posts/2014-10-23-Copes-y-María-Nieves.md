@@ -3,6 +3,7 @@ title: "Copes y María Nieves"
 date: "2014-10-23"
 original_url: https://tangosalbardo.blogspot.com/2014/10/copes-y-maria-nieves.html
 labels: ""
+tags: ["Juan Carlos Copes", "María Nieves"]
 ---
 
 En varias oportunidad he hablado de esta genial pareja que desafió a todos los prejuicios, los comentarios y la historia. Porque Copes fue el visionario que divisó la espectacularidad del tango como danza coreográfica en el escenario, más allá de la repetida exhibición del hombre y la mujer floreándose al compás de un tango o una milonga.

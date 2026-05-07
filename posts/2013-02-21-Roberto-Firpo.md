@@ -3,6 +3,7 @@ title: "Roberto Firpo"
 date: "2013-02-21"
 original_url: https://tangosalbardo.blogspot.com/2013/02/roberto-firpo.html
 labels: ""
+tags: ["Francisco Canaro", "Osvaldo Fresedo", "Carlos Di Sarli", "Eduardo Arolas", "Carlos García", "José Martínez", "Roberto Firpo"]
 ---
 
 Cualquier tanguero sabe de la importancia tremenda que ha tenido este músico en la historia, desarrollo y consolidación de la música ciudadana porteña. Fue un adelantado en muchos aspectos importantes de la misma: Especialmente en la introducción del piano en los tríos típicos que hasta entonces constaban de flauta, violín y guitarra o arpa.

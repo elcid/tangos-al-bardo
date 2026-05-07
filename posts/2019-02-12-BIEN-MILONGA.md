@@ -3,6 +3,7 @@ title: "BIEN MILONGA"
 date: "2019-02-12"
 original_url: https://tangosalbardo.blogspot.com/2019/02/bien-milonga_12.html
 labels: ""
+tags: ["Francisco Rotundo", "Carlos Di Sarli", "Alberto Echagüe", "Enrique Campos", "Juan D'Arienzo", "Floreal Ruiz"]
 ---
 
 *Vamos, morocha a bailar*

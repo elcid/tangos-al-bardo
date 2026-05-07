@@ -3,6 +3,7 @@ title: "Los 14 con el Tango"
 date: "2024-10-16"
 original_url: https://tangosalbardo.blogspot.com/2024/10/los-14-con-el-tango.html
 labels: ""
+tags: ["Alfredo De Angelis", "Libertad Lamarque", "Enrique Cadícamo", "Enrique Delfino", "Astor Piazzolla", "Armando Pontier", "Sebastián Piana", "Juan D'Arienzo"]
 ---
 
 Este luchador infatigable de la música popular, nacido en 1915, vive en Montevideo y Corrientes, una zona hasta hace no tanto tiempo de cafés y encuentros tangueros. Fue el creador del 'Día Nacional del Tango'.

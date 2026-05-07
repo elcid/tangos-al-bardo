@@ -3,6 +3,7 @@ title: "Ángel Cárdenas"
 date: "2012-05-03"
 original_url: https://tangosalbardo.blogspot.com/2012/05/angel-cardenas.html
 labels: ""
+tags: ["Roberto Goyeneche", "Aníbal Troilo", "Roberto Grela", "Raúl Garello"]
 ---
 
 Aníbal Troilo sostenía que el cantor de su orquesta debía, por lo menos saber cantar un estilo y una milonga campera, “*si no, no es un buen cantor de tangos*”, remataba.

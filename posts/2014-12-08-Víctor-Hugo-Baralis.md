@@ -3,6 +3,7 @@ title: "Víctor Hugo Baralis"
 date: "2014-12-08"
 original_url: https://tangosalbardo.blogspot.com/2014/12/victor-hugo-baralis.html
 labels: ""
+tags: ["Juan Carlos Cobián", "Francisco Canaro", "Francisco Lomuto", "Osvaldo Fresedo", "Eduardo Arolas", "Daniel Binelli", "Aníbal Troilo", "Julio De Caro"]
 ---
 
 El dicho guachesco: "*Hijo'e tigre tiene que salir overo"*, extraído de la la filosofía del hombre de campo, encaja en este gran violinista que tuvo el tango. Porque su padre, Hugo Ricardo Baralis, contrabajista de mucho predicamento en su época, nacido en Cúneo, Italia, llegado de chico a Argentina, militó en orquestas como las de Eduardo Arolas, Osvaldo Fresedo, Francisco Canaro, José Tinelli, Francisco Lomuto o Julio De Caro, en aquellos momentos en el que el contrabajo comenzó a tener peso decisivo en las orquestas típicas.

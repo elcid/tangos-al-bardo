@@ -3,6 +3,7 @@ title: "\"El tango es una danza distinta, interminable\""
 date: "2022-02-25"
 original_url: https://tangosalbardo.blogspot.com/2022/02/el-tango-es-una-danza-distinta.html
 labels: ""
+tags: ["Osvaldo Pugliese"]
 ---
 
 **Así describía el bailarín Orlando Paiva, en un reportaje concedido a Rosario/12 en 2002, su pasión que lo llevó a lo más alto del género. Falleció en Rosario la noche del martes.**

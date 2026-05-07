@@ -3,6 +3,7 @@ title: "Enrique Mario Francini"
 date: "2015-01-22"
 original_url: https://tangosalbardo.blogspot.com/2015/01/enrique-mario-francini.html
 labels: ""
+tags: ["Enrique Cadícamo", "Armando Pontier", "Alberto Podestá", "Roberto Rufino", "Miguel Caló"]
 ---
 
 En aquella camada de músicos que vinieron de Zárate, Campana, Rosario, Guaminí, para apuntarse en la familia que sostenía la enorme popularidad del tango, estuvieron algunos como Armando Pontier, Héctor Stamponi, Enrique Mario Francini, Julio Ahumada, Alberto Suárez Villanueva, Emilio Barbato, Antonio Ríos, que descollarían en la gran década del cuarenta, aunque llegaran con muchas ilusiones y pocos recursos económicos.

@@ -3,6 +3,7 @@ title: "Francisco Canaro opina"
 date: "2023-11-28"
 original_url: https://tangosalbardo.blogspot.com/2023/11/francisco-canaro-opina_28.html
 labels: ""
+tags: ["Enrique Santos Discépolo", "Juan Carlos Cobián", "Francisco Canaro", "Cátulo Castillo", "Aníbal Troilo"]
 ---
 
 **sobre Aníbal Troilo y su orquesta**

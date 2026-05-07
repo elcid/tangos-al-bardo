@@ -3,6 +3,7 @@ title: "Barrio de tango"
 date: "2021-09-16"
 original_url: https://tangosalbardo.blogspot.com/2021/09/barrio-de-tango.html
 labels: ""
+tags: ["Julián Centeya", "Edmundo Rivero", "Aníbal Troilo", "Homero Manzi"]
 ---
 
 Esto decía Homero Manzi allá por el año 1942, explicando su fórmula para escribir esos tangos y milongas que nunca se apagarán, por todo lo que encierran en ellos. Y apunta sobre el primer tango que firmó con Aníbal Troilo, como preámbulo del luego maravilloso **Sur**:

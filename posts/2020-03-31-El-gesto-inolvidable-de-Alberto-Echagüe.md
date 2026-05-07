@@ -3,6 +3,7 @@ title: "El gesto inolvidable de Alberto Echagüe"
 date: "2020-03-31"
 original_url: https://tangosalbardo.blogspot.com/2020/03/el-gesto-inolvidable-de-alberto-echague.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Alberto Echagüe"]
 ---
 
 BEBA PUGLIESE

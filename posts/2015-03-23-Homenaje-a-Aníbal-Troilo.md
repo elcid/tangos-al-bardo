@@ -3,6 +3,7 @@ title: "Homenaje a Aníbal Troilo"
 date: "2015-03-23"
 original_url: https://tangosalbardo.blogspot.com/2015/03/homenaje-anibal-troilo.html
 labels: ""
+tags: ["Aníbal Troilo"]
 ---
 
 Día lunes, ha comenzado la primavera, pero Madrid tiene el cielo encapotado, llueve intermitentemente desde hace unos días y me siento como Cadícamo en su tango *Cuando tallan los recuerdos*, con música de Rafael Rossi:

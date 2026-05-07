@@ -3,6 +3,7 @@ title: "Estela Raval"
 date: "2012-06-07"
 original_url: https://tangosalbardo.blogspot.com/2012/06/estela-raval.html
 labels: ""
+tags: ["Mariano Mores", "Raúl Lavié"]
 ---
 
 Fue la primera voz de **Los cinco latinos** y una de las más notables del cancionero argentino. Su garganta privilegiada se atrevía con todo porque a cada género lo trataba con el máximo respeto y era como si siempre lo hubiese transitado.

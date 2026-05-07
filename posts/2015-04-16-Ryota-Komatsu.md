@@ -3,6 +3,7 @@ title: "Ryota Komatsu"
 date: "2015-04-16"
 original_url: https://tangosalbardo.blogspot.com/2015/04/ryota-komatsu.html
 labels: ""
+tags: ["Guillermo Fernández", "Juan José Mosalini", "Alfredo Gobbi", "Julián Plaza"]
 ---
 
 Hoy me quiero ocupar de este bandoneonista japonés, que ha logrado meterse en el espíritu del tango y conseguido cosas realmente buenas. Es un admirador de Piazzolla porque su generación pertenece a la era de Ástor, dado que nació en Tokio en Octubre de 1973. Pero, a la vez, ha sabido escarbar en el andamiaje de este género y en autores que fatigaron el tango y le dieron grandeza permanente.

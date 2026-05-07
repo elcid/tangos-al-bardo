@@ -3,6 +3,7 @@ title: "¡Feliz Navidad!"
 date: "2014-12-25"
 original_url: https://tangosalbardo.blogspot.com/2014/12/feliz-navidad.html
 labels: ""
+tags: ["Alfredo De Angelis", "Romeo Gavioli", "Carlos Dante"]
 ---
 
 Lo bueno que tienen estas fechas es que uno se reencuentra epistolarmente con tantos amigos diseminados por el mundo, que eso, ya es de por sí, un motivo de felicidad para mí. Porque considero que la amistad es uno de los mejores valores que uno puede cosechar a lo largo de su vida.

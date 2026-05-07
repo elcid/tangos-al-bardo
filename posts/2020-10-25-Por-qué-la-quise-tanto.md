@@ -3,6 +3,7 @@ title: "Por qué la quise tanto"
 date: "2020-10-25"
 original_url: https://tangosalbardo.blogspot.com/2020/10/por-que-la-quise-tanto.html
 labels: ""
+tags: ["Hugo del Carril", "Néstor Fabián", "Mariano Mores", "Tita Merello", "Miguel Caló"]
 ---
 
 Este tango tuvo una repercusión enorme a fines del año 1961. Quizás no sea un tema especialmente destacado en el aspecto poético, pero la música de Mariano Mores, le dio el impulso y el vuelo necesario para que se convirtiera en todo un éxito. Los versos son de Rodolfo Manuel Taboada. Una persona muy reconocida como humorista, guionista de cine, autor de sainetes, e incluso periodista. Sus trabajos en radio y televisión fueron muy aplaudidos. Y de adolescentes nos deleitábamos con las páginas que firmaba en revistas como Patoruzú o Rico Tipo con el seudónimo de Tomás Elvino Blanco.

@@ -3,6 +3,7 @@ title: "Arreglos que hicieron historia"
 date: "2017-09-04"
 original_url: https://tangosalbardo.blogspot.com/2017/09/arreglos-que-hicieron-historia.html
 labels: ""
+tags: ["José María Contursi", "Luis César Amadori", "Feliciano Brunelli", "Libertad Lamarque", "Francisco Canaro", "Cátulo Castillo", "Juan D'Arienzo", "Aníbal Troilo"]
 ---
 
 En algunas oportunidades hablé de algunos arreglos que cambiaron el devenir de ciertas piezas y su formato, dándoles la oportunidad de llegar triunfalmente al público y mantener la envergadura a lo largo y ancho de la historia tanguera. Y no hablo de la intervención de Roberto Firpo en la marchita carnavalera de Matos Rodríguez que sería luego nada menos que *La cumparsita*.

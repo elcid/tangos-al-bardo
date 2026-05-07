@@ -3,6 +3,7 @@ title: "Carlos Figari"
 date: "2017-11-19"
 original_url: https://tangosalbardo.blogspot.com/2017/11/carlos-figari.html
 labels: ""
+tags: ["Francisco Canaro", "Vicente Demarco", "Edmundo Rivero", "Aníbal Troilo", "Mariano Mores", "Carlos Figari", "Anselmo Aieta", "Tita Merello"]
 ---
 
 Fue uno de los seis pianistas titulares que tuvo Aníbal Troilo a lo largo de los 38 años al frente de su orquesta, lo que denota la capacidad técnica y el peso de su temperamento y musicalidad dentro de la misma. Máxime si valoramos la influencia que tiene el piano en todos los conjuntos típicos. La permanencia en la formación de Pichuco durante siete exitosos años, confirma todo lo que hemos apreciado en este músico que no ha tenido la aureola de otros colegas y su presencia dentro del tango se ha ido esfumando en los tiempos, dejándolo en un injusto semi olvido.

@@ -3,6 +3,7 @@ title: "El Negro Ledesma"
 date: "2013-03-01"
 original_url: https://tangosalbardo.blogspot.com/2013/03/el-negro-ledesma.html
 labels: ""
+tags: ["Carlos García", "Julio De Caro", "Jorge Dragone", "Mario Demarco", "Héctor Varela", "Carlos Waiss", "Homero Manzi", "Charlo"]
 ---
 
 Este jilguero santiagueño, morocho y futbolero, que salió de su bucólica provincia para intentar ser militar en la vecina Tucumán, ni en sus sueños más locos podría imaginar que el daltonismo que le cerró las puertas del Colegio Militar, le permitiría un día ser gran figura del tango en Buenos Aires.

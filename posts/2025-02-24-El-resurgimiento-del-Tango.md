@@ -3,6 +3,7 @@ title: "El resurgimiento del Tango"
 date: "2025-02-24"
 original_url: https://tangosalbardo.blogspot.com/2025/02/el-resugirmiento-del-tango.html
 labels: ""
+tags: ["Alberto Castillo", "Carlos Di Sarli", "Rosita Quiroga", "Aníbal Troilo", "Julio De Caro", "Alfredo Gobbi", "Lucio Demare", "Raúl Kaplún"]
 ---
 
 El comienzo de la década de 1940 ocurrió, según como se mire, el 1º de enero de aquel año o el correlativo día de 1941. Pero el renacimiento tanguístico de 1940, ¿cuándo comenzó? ¿En 1940, cuando Miguel Caló organizó la que sería llamada "Orquesta de las Estrellas"? ¿Y por qué no, en 1937, cuando Raúl Kaplún ejecutó, en la misma orquesta, el primer arpegio lucubrado por Argentino Galván?

@@ -3,6 +3,7 @@ title: "Chau, Leopoldo"
 date: "2014-12-29"
 original_url: https://tangosalbardo.blogspot.com/2014/12/chau-leopoldo.html
 labels: ""
+tags: ["Juan Carlos Cobián", "Leopoldo Federico", "Florindo Sassone", "Carlos Di Sarli", "Horacio Ferrer", "Horacio Salgán", "Carlos García", "Osmar Maderna"]
 ---
 
 Sin darnos tiempo a asimilar la partida definitiva de Horacio Ferrer, la nueva mala noticia nos conmovió: Leopoldo federico se subió a la nube, como dicen en el argot tanguero y nos dejó sin el sonido impresionante de su fueye, a los 87 años de edad.

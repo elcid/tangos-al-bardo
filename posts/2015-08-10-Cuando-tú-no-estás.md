@@ -3,6 +3,7 @@ title: "Cuando tú no estás"
 date: "2015-08-10"
 original_url: https://tangosalbardo.blogspot.com/2015/08/cuando-tu-no-estas.html
 labels: ""
+tags: ["Mario Battistella", "Alfredo Le Pera", "Carlos Gardel", "Pedro Laurenz", "Manuel Romero", "Antonio Agri"]
 ---
 
 Estoy escuchando esta hermosa canción compuesta en Francia, en la cual Carlos Gardel hace gala de su hermosa voz y el manejo de los tempos musicales. La letra le pertenece a Alfredo Le Pera y Mario Battistella y la música es obra de Gardel y el reconocido músico francés, Marcel Lattès. que coincidió con el gran cantor en las primeras películas rodadas por éste en los estudios de Paramount en Joinville, un suburbio parisino.

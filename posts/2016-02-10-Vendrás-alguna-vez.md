@@ -3,6 +3,7 @@ title: "Vendrás alguna vez"
 date: "2016-02-10"
 original_url: https://tangosalbardo.blogspot.com/2016/02/vendras-alguna-vez.html
 labels: ""
+tags: ["Luis César Amadori", "Libertad Lamarque", "Francisco Lomuto", "Hugo del Carril", "Manuel Romero", "Floreal Ruiz", "Ivo Pelay", "Charlo"]
 ---
 
 Este tango de Luis César Amadori y el pianista Alfredo Malerba, lo compusieron en 1938 para incluirlo en una de las escenas de la película *Madreselva*, que fue consagratoria para Libertad Lamarque. Me tocó a mí convencerla que viajara de Miami a Madrid para un homenaje que le haríamos en el Bellas Artes de la capital de España y sobre todo a su representante de ese momento, una cubana bastante inflexible, pero al fin logré mi objetivo.

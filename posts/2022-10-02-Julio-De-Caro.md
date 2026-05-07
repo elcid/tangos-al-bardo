@@ -3,6 +3,7 @@ title: "Julio De Caro"
 date: "2022-10-02"
 original_url: https://tangosalbardo.blogspot.com/2022/10/julio-de-caro.html
 labels: ""
+tags: ["Libertad Lamarque", "Luis Petrucelli", "Eduardo Arolas", "Vicente Greco", "Julio De Caro", "Roberto Firpo", "Pedro Maffia", "Ada Falcón"]
 ---
 
 Cuando se habla de la historia y evolución del tango, el hombre de Julio De Caro marca un antes y un después. El movimiento de transformación más importante en cien años tangueros lo llevó a cabo el afamado violinista al frente del sexteto que debutaría en el Café Colón, en 1924 y que integraban: Pedro Maffia y Luis Petrucelli en bandoneones; Francisco De Caro al piano, Leopoldo Thompson en contrabajo y Julio y Emilio De Caro en violines. (Al principio, cuando grababan, Manlio Francia reemplazazaba a Emilio, luego estaría 30 años junto a Julio.).

@@ -3,6 +3,7 @@ title: "Carlos Posadas"
 date: "2020-01-24"
 original_url: https://tangosalbardo.blogspot.com/2020/01/carlos-posadas_24.html
 labels: ""
+tags: ["Arturo De Bassi", "Eduardo Arolas", "Julio De Caro"]
 ---
 
 Don Carlos Posadas (1875-1918) fue, en su época, sin duda alguna, un compositor "de avanzada" dentro del tango, desgraciadameante, pocos datos obran en mi poder, para así rendirle justo homenaje a su memoria, ya que me consta, es acreedor a ello.

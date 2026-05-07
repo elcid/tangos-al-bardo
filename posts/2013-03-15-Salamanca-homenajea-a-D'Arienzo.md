@@ -3,6 +3,7 @@ title: "Salamanca homenajea a D'Arienzo"
 date: "2013-03-15"
 original_url: https://tangosalbardo.blogspot.com/2013/03/salamanca-homenajea-darienzo.html
 labels: ""
+tags: ["Fulvio Salamanca", "Juan D'Arienzo"]
 ---
 
 Esta joyita se la tenemos que agradecer al bandoneonista Juan Carlos Niesi, de prolongada actuación en la fila de fueyes de Juan D'Arienzo y posteriormente en la orquesta de Fulvio Salamanca con quien ha elaborado este hermoso documento que es un homenaje al Rey del compás.

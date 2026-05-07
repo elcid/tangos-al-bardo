@@ -3,6 +3,7 @@ title: "Lidia Borda"
 date: "2014-05-13"
 original_url: https://tangosalbardo.blogspot.com/2014/05/lidia-borda.html
 labels: ""
+tags: ["Enrique Delfino", "Julián Centeya", "Juan D'Arienzo", "Lidia Borda"]
 ---
 
 Lleva la marca en el orillo porque creció en una familia de músicos y guitarreros. Y de esos árboles suelen salir brotes llamativos, hermosos. Su hermano Luis, ejecutante de guitarra y músico integral que dirige en Munich su propia Ensemble que estriba en el llamado *Tango Nuevo*, está muy bien considerado no sólo en Alemania sino en muchos países europeos.

@@ -3,6 +3,7 @@ title: "Juan Tango"
 date: "2020-10-10"
 original_url: https://tangosalbardo.blogspot.com/2020/10/juan-tango.html
 labels: ""
+tags: ["Alberto Castillo", "Cátulo Castillo", "Pedro Maffia", "Floreal Ruiz"]
 ---
 
 Estoy escuchando música en esta mañana de sábado en la que el confinamiento nos invita a concentrarnos en estas viejas grabaciones que cada día me parecen más modernas. O al menos las siento como si tuviera aquellos juveniles años en que la radio nos entretenía con diferentes audiciones de tango. Así, con la ayuda de mi hermano que era fanático de D'Arienzo y de Firpo, penetré tempranamente en las entrañas del género y fui descubriendo orquestas, cantores, autores, gracias a los locutores que nos daban todos los datos. Que se fueron quedando archivados en mi memoria.

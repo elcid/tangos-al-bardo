@@ -3,6 +3,7 @@ title: "En otros caminos"
 date: "2017-01-04"
 original_url: https://tangosalbardo.blogspot.com/2017/01/en-otros-caminos.html
 labels: ""
+tags: ["Osvaldo Pugliese"]
 ---
 
 Este tango de Guillermo López y Oscar Sergio Pariente, ha merecido, para mí, mayor repercusión y haber figurado en el repertorio de otras orquestas y cantantes. Es todo un canto a la melancolía por la pérdida del amor, está muy bien desarrollado y tanto la letra como la música, se combinan para dejarnos un poso de niebla sentimental debido al desarrollo del tango.

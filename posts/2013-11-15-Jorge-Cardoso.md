@@ -3,6 +3,7 @@ title: "Jorge Cardoso"
 date: "2013-11-15"
 original_url: https://tangosalbardo.blogspot.com/2013/11/jorge-cardoso.html
 labels: ""
+tags: ["Juan Carlos Cobián", "Carlos Bahr"]
 ---
 
 Fue uno de los que implantó el tango en España. Muy buen cantor, de hermosa voz, que llegó a este país con la orquesta de Rafael Canaro, a fines del año 1944, y obtuvo gran repercusión. Actuaban en un cabaret céntrico madrileño de la calle Peligros, y debido a la aceptación que tuvieron, debieron grabar varios temas en la capital española.

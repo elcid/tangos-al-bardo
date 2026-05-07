@@ -3,6 +3,7 @@ title: "Julio Pollero"
 date: "2012-11-10"
 original_url: https://tangosalbardo.blogspot.com/2012/11/julio-pollero.html
 labels: ""
+tags: ["Francisco Canaro", "Enrique Dizeo", "Julio Pollero"]
 ---
 
 Este pianista y compositor merece estar en una lista de músicos que dejaron páginas de mucha repercusión. Por ejemplo el hecho de haberle puesto música a los versos lunfardescos de Lorenzo Traverso que están a la altura de los mejores del género, *Uno y uno*, que Gardel enriqueció grabándolo en 1929, año de su creación, acompañado por las guitarras de Aguilar y Barbieri.

@@ -3,6 +3,7 @@ title: "El trompo azul"
 date: "2013-12-01"
 original_url: https://tangosalbardo.blogspot.com/2013/12/el-trompo-azul.html
 labels: ""
+tags: ["Cátulo Castillo", "Susana Rinaldi"]
 ---
 
 ###

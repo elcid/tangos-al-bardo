@@ -3,6 +3,7 @@ title: "Armando Laborde"
 date: "2019-05-12"
 original_url: https://tangosalbardo.blogspot.com/2019/05/armando-laborde.html
 labels: ""
+tags: ["Fulvio Salamanca", "Alberto Castillo", "Ricardo Tanturi", "Alberto Echagüe", "Enrique Campos", "Juan D'Arienzo", "Héctor Varela", "Carlos Waiss"]
 ---
 
 Pese a que cantar con la orquesta de Juan D'Arienzo no era una tarea fácil, tuvo sin embargo varios intérpretes destacados, como lo fueron Héctor Mauré, Mario Bustos, Jorge Valdez, Alberto Echagüe y otros que supieron adaptarse perfectamente al estilo eléctrico, restallante, del Rey del compás. Armando Laborde no sólo fue uno de los que pudieron lucirse en esta orquesta que congregaba multitudes, sino que además, terminó siendo el que dejó más registros discográficos con D'Arienzo. Nada menos que 145 temas.

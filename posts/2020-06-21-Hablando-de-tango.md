@@ -3,6 +3,7 @@ title: "Hablando de tango"
 date: "2020-06-21"
 original_url: https://tangosalbardo.blogspot.com/2020/06/hablando-de-tango.html
 labels: ""
+tags: ["Roberto Grela", "Ángel Vargas", "Luis Stazo"]
 ---
 
 A veces me gusta desempolvar alguna página que está amurada entre tantos discos que uno atesora y que por casualidad, en ese día tranquilo le sirven a uno para espabilar los recuerdos. Como en este domingo asoleado en que la música funciona como motor inspirador de cosas que el archivo atesora. De hecho, Angelito Vargas, ese cantorazo porteño de mi Parque Patricios natal, tiene todos los condicionantes para llevarte hacia atrás, de abrazarte con la nostalgia de los días vividos. Esos ecos que restallan en la imaginación rastreando noches de milonga, la tradición que nunca muere, aunque hayan cambiado los escenarios.

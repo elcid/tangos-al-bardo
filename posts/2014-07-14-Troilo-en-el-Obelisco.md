@@ -3,6 +3,7 @@ title: "Troilo en el Obelisco"
 date: "2014-07-14"
 original_url: https://tangosalbardo.blogspot.com/2014/07/troilo-en-el-obelisco.html
 labels: ""
+tags: ["Daniel Binelli", "José Colángelo", "Aníbal Troilo", "Orlando Goñi", "Raúl Garello", "Aníbal Arias", "Walter Ríos", "Julio Pane"]
 ---
 
 Hermosura de festejo. Varias decenas de bandoneonistas se reunieron en un mediodía porteño, frente al Obelisco para homenajear a Aníbal Troilo en el centenario de su nacimiento.

@@ -3,6 +3,7 @@ title: "Julio Rodolfo"
 date: "2013-04-02"
 original_url: https://tangosalbardo.blogspot.com/2013/04/julio-rodolfo.html
 labels: ""
+tags: ["Francisco García Jiménez", "Fernando Suárez Paz", "Juan Carlos Copes", "Florindo Sassone", "Fulvio Salamanca", "Enrique Campos", "Pedro Laurenz", "Ricardo Ruiz"]
 ---
 
 Parque Patricios -mi barrio-, ha dado un manojo de cantores profesionales que dejaron huella en el tango y la siguen dejando. El más grande sin duda fue Ángel Vargas, nacido y criado en la calle Pepirí. Pero además hubo otros que destacaron, como Alfredo Del Río, Néstor Soler, Roberto Videla, Rodolfo Lemos -que sigue en la brecha- o Julio Rodolfo (Rodolfo Di Piazza), el caso más singular de todos.

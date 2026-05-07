@@ -3,6 +3,7 @@ title: "Bien milonga"
 date: "2018-01-23"
 original_url: https://tangosalbardo.blogspot.com/2018/01/bien-milonga_23.html
 labels: ""
+tags: ["Francisco Canaro", "Alberto Podestá", "Pedro Laurenz", "Lucio Demare", "Raúl Berón"]
 ---
 
 [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjnVhn7Gwe3I_6PM6kSYOHsD3q9yfnd4vgLZpL65DoTgAcG6h2qVok16BpJGJnCblQ3bGJAHK-JbkcO_IMHbPPQLBJFiMJl8qittXnzva8T4sjuEcncgUDm1lO1zJ6jacrcbGiE3ksPF8rn/s200/bottomSpot3.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjnVhn7Gwe3I_6PM6kSYOHsD3q9yfnd4vgLZpL65DoTgAcG6h2qVok16BpJGJnCblQ3bGJAHK-JbkcO_IMHbPPQLBJFiMJl8qittXnzva8T4sjuEcncgUDm1lO1zJ6jacrcbGiE3ksPF8rn/s1600/bottomSpot3.jpg) * Prendete Catalina*

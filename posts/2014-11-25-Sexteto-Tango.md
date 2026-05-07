@@ -3,6 +3,7 @@ title: "Sexteto Tango"
 date: "2014-11-25"
 original_url: https://tangosalbardo.blogspot.com/2014/11/sexteto-tango.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Víctor Lavallén", "Aníbal Troilo", "Julio De Caro", "Héctor Varela", "Julián Plaza"]
 ---
 
 En la década del sesenta, el tango estaba atravesando un largo bache. Habían desaparecido prácticamente las milongas, con cientos de miles de personas que aportaban su entusiasmo y pasión en los bailes de los clubes; se había restringido el acceso a las orquestas en las emisoras radiales, y los nuevos ritmos foráneos se ganaban el espacio de los jóvenes.

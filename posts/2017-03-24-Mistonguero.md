@@ -3,6 +3,7 @@ title: "Mistonguero"
 date: "2017-03-24"
 original_url: https://tangosalbardo.blogspot.com/2017/03/mistonguero.html
 labels: ""
+tags: ["Víctor Lavallén", "Aníbal Troilo", "Julio De Caro", "Raúl Kaplún"]
 ---
 
 Desde 2000 el intenso trabajo de la Orquesta Escuela de Tango Emilio Balcarce logró restablecer la transmisión oral entre las distintas generaciones del tango, recuperando miles de arreglos originales y formando a casi trescientos músicos. Dependiente del Ministerio de Cultura de la Ciudad De Buenos Aires –a través de la Subsecretaría de Patrimonio Cultural-, la Orquesta Escuela tiene un enorme poder transformador: la nueva escena del tango, que hoy ostenta cientos de orquestas y conjuntos de excelente nivel, está nutrida en gran medida por egresados que completaron el programa, estudiando los estilos fundamentales del género y tocando con los grandes maestros que continúan en actividad. Hoy se ha logrado reconstruir el tejido del tango, una generación completa que aprendió de la mano de los verdaderos protagonistas.

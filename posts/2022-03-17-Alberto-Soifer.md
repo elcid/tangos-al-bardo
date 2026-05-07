@@ -3,6 +3,7 @@ title: "Alberto Soifer"
 date: "2022-03-17"
 original_url: https://tangosalbardo.blogspot.com/2022/03/alberto-soifer.html
 labels: ""
+tags: ["José María Contursi", "Luis Bayón Herrera", "Enrique Rodríguez", "Francisco Canaro", "Cátulo Castillo", "Horacio Ferrer", "Manuel Romero", "Juan Maglio"]
 ---
 
 A veces nos da por pensar en nuestras historias personales. Cuántos argentinos y sudamericanos somos descendientes de europeos que huyeron de sus cruentas guerras entre 1914/1918 y 1939/45, además de las dictaduras que se establecieron en países como Alemania, Italia, España y otros lugares de Europa. Y una vez más vemos hoy como esas contiendas militares provocan muertes a granel, destrucción de ciudades y la diáspora de sus habitantes.

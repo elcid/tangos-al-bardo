@@ -3,6 +3,7 @@ title: "Armando Baliotti"
 date: "2013-08-20"
 original_url: https://tangosalbardo.blogspot.com/2013/08/jose-canet.html
 labels: ""
+tags: ["Luis Adolfo Sierra", "Eduardo Del Piano", "Osvaldo Pugliese", "Francisco Lomuto", "Osvaldo Fresedo", "Cátulo Castillo", "Eduardo Arolas", "Julián Centeya"]
 ---
 
 El barrio de Boedo fue pródigo en aportes para el tango y la literatura. Grandes próceres tangueros surgieron de esas casitas familiares repletas de macetas con plantas y flores que arrimaban sus frescos aromas a añejas calles de adoquines, donde se arracimaban los pibes detrás de una pelota de goma.

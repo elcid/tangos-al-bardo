@@ -3,6 +3,7 @@ title: "Los maravillosos carnavales"
 date: "2019-08-20"
 original_url: https://tangosalbardo.blogspot.com/2019/08/los-maravillosos-carnavales.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Carlos Di Sarli", "Alfredo Gobbi", "María Nieves", "Oscar Alemán"]
 ---
 
 Para aquellos que no vivieron lo que fueron estas fiestas en los años cuarenta y cincuenta, vale la pena echar la vista atrás y recordarlo con los fulgores, colorido y músicas de aquellas rumorosas y dilatadas noches estivales inolvidables que reinaban en el almanaque. El tango mandaba, con sus grandes orquestas típicas en los escenarios, y alternando con los conjuntos de jazz y música movida, empujaban al baile a verdaderas multitudes de muchachos y muchachas que vivían la fiesta a pleno.

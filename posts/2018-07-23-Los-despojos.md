@@ -3,6 +3,7 @@ title: "Los despojos"
 date: "2018-07-23"
 original_url: https://tangosalbardo.blogspot.com/2018/07/los-despojos.html
 labels: ""
+tags: ["Aníbal Troilo", "Floreal Ruiz", "Miguel Caló", "José Basso"]
 ---
 
 Acabo de llegar de mis vacaciones playeras y el tango también estuvo presente en esta etapa del año, en cuanto a lo que me rodea. Porque voy y vuelvo escuchando tango en el reproductor del coche, y poniéndole oreja a las innumerables versiones que guardo en mi abultada discografía. Y debo confesar que me he emocionado escuchando una vez más este hermoso tango de 1947, que lleva versos de Horacio Sanguinetti y música del bandoneonista José Dames.

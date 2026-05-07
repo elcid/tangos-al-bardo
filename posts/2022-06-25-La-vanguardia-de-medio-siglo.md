@@ -3,6 +3,7 @@ title: "La vanguardia de medio siglo"
 date: "2022-06-25"
 original_url: https://tangosalbardo.blogspot.com/2022/06/la-vanguardia-de-medio-siglo.html
 labels: ""
+tags: ["Leopoldo Federico", "Juan Carlos Copes", "Roberto Goyeneche", "Domingo Federico", "Ismael Spitalnik", "José Libertella", "Homero Expósito", "Osvaldo Fresedo"]
 ---
 
 La calle Corrientes -"*río sin desvío donde sueña la ciudad"-*, al decir del poeta Homero Expósito- ofrece el espectáculo de sus cafés Marzotto, El Ebro, Tango Bar, El Nacional, que comienzan los tangos a la una de la tarde, y de sus confiterías, *boîtes* y cabarets, Ruca, Picadilly y Sans Souci, Tabarís, Singapur, Ocean, con música hasta la alta noche.  En Tibidabo, de Corrientes al 1200 son clásicas las temporadas invernales de Aníbal Troilo, cuyo debut todos los años congrega a lo más destacado del mundo artístico porteño.  En su apostura, en su sonoridad, en su instrumentación, la orquesta de Aníbal Troilo ha dado un salto como no se recuerda otro en la historia.

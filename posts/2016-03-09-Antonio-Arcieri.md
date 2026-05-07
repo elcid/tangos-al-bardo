@@ -3,6 +3,7 @@ title: "Antonio Arcieri"
 date: "2016-03-09"
 original_url: https://tangosalbardo.blogspot.com/2016/03/antonio-arcieri.html
 labels: ""
+tags: ["Enrique Rodríguez", "Carlos Di Sarli", "Ricardo Tanturi", "Julio De Caro", "Jorge Ortiz"]
 ---
 
 Hoy quiero ocuparme de uno de los tantos músicos que pasaron en puntas de pie -para el público- por las filas del tango, pobladas por las grandes figuras que lo orlaron, lo popularizaron y engrandecieron. Porteño del barrio de Balvanera, de chico tuvo el berretín de aprender a tocar el violín, que fungía de a ratos su hermano mayor. El padre quería que estudiase y dejase ese instrumento y buscó muchas artimañas para negárselo. Pero las ganas del pequeño fueron tantas que lo tocó a escondidas, aunque, entre otras cosas, tuviese que trabajar en la zapatería de su progenitor.

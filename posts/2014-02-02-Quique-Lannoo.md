@@ -3,6 +3,7 @@ title: "Quique Lannoo"
 date: "2014-02-02"
 original_url: https://tangosalbardo.blogspot.com/2014/02/quique-lannoo.html
 labels: ""
+tags: ["Leopoldo Federico", "Roberto Goyeneche", "Osvaldo Pugliese", "Astor Piazzolla", "Armando Pontier", "Atilio Stampone", "Roberto Rufino", "Susana Rinaldi"]
 ---
 
 Este excelente violoncellista está radicado en Mar del Plata, después de haber lucido su arte en tantas orquestas, con tantos maestros. Su madre, la profesora Eugenia Pereiro fue quien le dio las primeras lecciones de música que completaría con Ernesto Cobelli. Como Ruben Juárez comenzó tocando en la orquesta juvenil del Club Atlético Independiente -cuando los clubes de fútbol eran a la vez sociales y no existían los barrabravas-. Enrique Lannoo es de mi barrio porteño de Parque Patricios, estudió en el prestigioso Colegio Bernasconi de la zona, y en el periódico *Página 12* le ha hecho un excelente reportaje mi colega periodista Carlos Rodríguez y las fotos son de Pablo Piovano, un buen amigo.

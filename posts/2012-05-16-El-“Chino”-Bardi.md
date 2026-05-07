@@ -3,6 +3,7 @@ title: "El “Chino” Bardi"
 date: "2012-05-16"
 original_url: https://tangosalbardo.blogspot.com/2012/05/el-chino-bardi.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Carlos Di Sarli", "Horacio Salgán", "Vicente Greco", "Agustín Bardi", "Roberto Firpo"]
 ---
 
 Fue llamado con toda justicia “*El compositor de los músicos*”. Y fue decisivo en los cambios que el tango experimentó, con sus maravillosas composiciones.

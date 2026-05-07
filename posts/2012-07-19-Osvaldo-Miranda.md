@@ -3,6 +3,7 @@ title: "Osvaldo Miranda"
 date: "2012-07-19"
 original_url: https://tangosalbardo.blogspot.com/2012/07/osvaldo-miranda.html
 labels: ""
+tags: ["Francisco Canaro", "Hugo del Carril", "Aníbal Troilo", "Homero Manzi", "Lucio Demare"]
 ---
 
 Este comediante maravilloso, que dejó un frondoso historial como actor, comenzó su carrera como cantor de tango y así apareció en *Rascacielos*, la obra musical de Francisco Canaro, donde eran principales figuras María Esther Gamas, Dringue Farías y Ernesto Famá. Osvaldo interpretaría 2 canciones en el Teatro Boedo en 1935..

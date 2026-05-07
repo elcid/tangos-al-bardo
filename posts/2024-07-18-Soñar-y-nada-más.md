@@ -3,6 +3,7 @@ title: "Soñar y nada más"
 date: "2024-07-18"
 original_url: https://tangosalbardo.blogspot.com/2024/07/sonar-y-nada-mas.html
 labels: ""
+tags: ["Alfredo De Angelis", "Francisco Canaro", "Mariano Mores", "Julio Martel", "Carlos Dante", "Tita Merello", "Ivo Pelay"]
 ---
 
 Con este valsecito de Francisco Canaro e Ivo Pelay, seguimos llenándonos el cuore en la pista de baile, pero también al escucharlo, en esas versiones maravillosas de Pirincho con su orquesta y sus cantores. También Alfredo De Angelis, especialista en la interpretación de valsecitos como éste, logró un versión formidable con las voces de Carlos Dante y Julio Martel, grabándolo el 29 de agosto de 1944.

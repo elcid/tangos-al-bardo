@@ -3,6 +3,7 @@ title: "Alfredo Attadia"
 date: "2014-11-27"
 original_url: https://tangosalbardo.blogspot.com/2014/11/alfredo-attadia.html
 labels: ""
+tags: ["Alfredo De Angelis", "Enrique Cadícamo", "Aníbal Troilo", "Alfredo Gobbi", "Ángel Vargas"]
 ---
 
 Excelente bandoneonista, notable fraseador que me viene constantemente al recuerdo cuando escucho las variaciones que realiza en el tangazo que compuso con Angel D'Agostino y Enrique Cadícamo: *Tres esquinas*, para la inmortalidad de Angelito Vargas en todas las milongas del mundo. Su fueye ornamenta todo el tango pero al terminar Vargas la segunda parte, emerge porteñazo y floreado el fueye de este hombre de San Martín, en la provincia de Buenos Aires.

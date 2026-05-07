@@ -3,6 +3,7 @@ title: "Como los nardos en flor"
 date: "2012-12-03"
 original_url: https://tangosalbardo.blogspot.com/2012/12/como-los-nardos-en-flor.html
 labels: ""
+tags: ["Francisco García Jiménez", "Carlos Di Sarli", "Roberto Firpo", "Carlos Gardel"]
 ---
 
 Este tango nació en 1921 y dos años más tarde lo grabaría Carlos Gardel con las guitarras de José Ricardo y Guillermo Barbieri.

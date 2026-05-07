@@ -3,6 +3,7 @@ title: "Juan Maglio Pacho"
 date: "2016-05-16"
 original_url: https://tangosalbardo.blogspot.com/2016/05/juan-maglio.html
 labels: ""
+tags: ["Aníbal Troilo", "Juan Maglio"]
 ---
 
 Es más fácil reconocerlo y recordarlo por su apodo de *Pacho*, que por sus señas de identidad. Además en Argentina, casi todos arrancamos con un alias casero o barrial que arrastramos a lo largo de nuestras vidas y pasa a ser como un segundo bautismo vital. Algunos provienen del legado paterno (Pacho, Pichuco, Pirincho) y otros van señalando alguna característica particular de nosotros.

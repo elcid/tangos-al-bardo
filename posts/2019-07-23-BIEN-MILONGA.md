@@ -3,6 +3,7 @@ title: "BIEN MILONGA"
 date: "2019-07-23"
 original_url: https://tangosalbardo.blogspot.com/2019/07/bien-milonga_91.html
 labels: ""
+tags: ["Juan D'Arienzo", "Mariano Mores", "Lito Bayardo"]
 ---
 
 *Va llegando gente al baile y hay que ver*

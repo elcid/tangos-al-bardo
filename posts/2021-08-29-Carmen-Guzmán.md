@@ -3,6 +3,7 @@ title: "Carmen Guzmán"
 date: "2021-08-29"
 original_url: https://tangosalbardo.blogspot.com/2021/08/carmen-guzman.html
 labels: ""
+tags: ["Roberto Goyeneche", "Enrique Cadícamo", "Astor Piazzolla", "Eladia Blázquez", "Sebastián Piana", "Homero Expósito", "Mercedes Simone", "Susana Rinaldi"]
 ---
 
 ** **Cada cierto tiempo el tango necesita un toque de chapa y pintura para engordar el repertorio, ponerse al día, conquistar nuevos públicos y mantener su vigencia. Heterogénea levadura de todos los pueblos del mundo, [María Isolina Godard](https://www.todotango.com/creadores/ficha/488/Maria-Isolina-Godard), [María Luisa Carnelli](https://www.todotango.com/creadores/ficha/403/Maria-Luisa-Carnelli) o [Maruja Pacheco Huergo](https://www.todotango.com/creadores/ficha/122/Maruja-Pacheco-Huergo) fueron pioneras en hollar el territorio macho de la canción porteña.

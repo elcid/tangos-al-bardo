@@ -3,6 +3,7 @@ title: "Como nació \"Esta noche me emborracho\""
 date: "2019-01-17"
 original_url: https://tangosalbardo.blogspot.com/2019/01/como-nacio-esta-noche-me-emborracho.html
 labels: ""
+tags: ["Enrique Santos Discépolo", "Alfredo De Angelis", "Francisco Canaro", "Cátulo Castillo", "Azucena Maizani", "Hugo del Carril", "Carlos Gardel", "Dante Linyera"]
 ---
 
 Este tango de Enrique Santos Discépolo, lo ideó su autor en 1928, y lo grabó de inmediato Carlos Gardel con su guitarristas, Ricardo, Barbieri y Aguilar. Tuvo una acogida impresionante y los llevarían al disco otros cantores como Charlo, con guitarras, y numerosas orquestas. Fresedo con la voz de Famá, Lomuto en forma instrumental, D'Arienzo-Dante y luego con Echagüe, Juan Maglio *Pacho* también instrumental; Tanturi-Castillo, Francisco Canaro-Charlo y luego con Arenas, Cátulo Castillo-Roberto Maida, Biagi-Saavedra, Sassone-Mario Bustos, Hugo Del Carril con guitarras, Azucena Maizani con piano y guitarra, La Típica Victor instrumental, Estela Raval con los 5 latinos y hasta se realizó un montaje de Gardel con Alfredo De Angelis. Pero hay muchas más versiones...

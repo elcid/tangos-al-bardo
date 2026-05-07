@@ -3,6 +3,7 @@ title: "Horacio Deval"
 date: "2017-04-03"
 original_url: https://tangosalbardo.blogspot.com/2017/04/horacio-deval.html
 labels: ""
+tags: ["Libertad Lamarque", "Joaquín Do Reyes", "Roberto Pansera", "Homero Expósito", "Horacio Salgán", "Mariano Mores", "Miguel Caló"]
 ---
 
 Entre aquella runfla de cantores que vistieron las galas del tango con inusitada maestría, la voz de Horacio Deval no desentonó y supo ganarse un lugar de privilegio, con su voz de barítono y la sobria musicalidad que imprimía a los versos. Aunque su alejamiento final del país y los bucles del tiempo hayan desteñido notoriamente sus huellas dentro del género que supo cultivar con pasión.

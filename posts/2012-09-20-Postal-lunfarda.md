@@ -3,6 +3,7 @@ title: "Postal lunfarda"
 date: "2012-09-20"
 original_url: https://tangosalbardo.blogspot.com/2012/09/postal-lunfarda.html
 labels: ""
+tags: ["José María Otero"]
 ---
 
 [](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj92DvXHRB2EpA5IC2pdA6vUGKhfXdxT1I7HtDSbmzd-R5QV76R8XLjwN7Ogi8AzlABen6_F2Gi2-FV6x_oeRMCzBfMneGucLX6641D6lNk_ab4155zjWwjkoWFae1lt6LFd0g8yoU4qP9Z/s1600/Pintura.png)[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj92DvXHRB2EpA5IC2pdA6vUGKhfXdxT1I7HtDSbmzd-R5QV76R8XLjwN7Ogi8AzlABen6_F2Gi2-FV6x_oeRMCzBfMneGucLX6641D6lNk_ab4155zjWwjkoWFae1lt6LFd0g8yoU4qP9Z/s400/Pintura.png)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj92DvXHRB2EpA5IC2pdA6vUGKhfXdxT1I7HtDSbmzd-R5QV76R8XLjwN7Ogi8AzlABen6_F2Gi2-FV6x_oeRMCzBfMneGucLX6641D6lNk_ab4155zjWwjkoWFae1lt6LFd0g8yoU4qP9Z/s1600/Pintura.png)

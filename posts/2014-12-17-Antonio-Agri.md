@@ -3,6 +3,7 @@ title: "Antonio Agri"
 date: "2014-12-17"
 original_url: https://tangosalbardo.blogspot.com/2014/12/antonio-agri.html
 labels: ""
+tags: ["Alfredo De Angelis", "Roberto Goyeneche", "Osvaldo Fresedo", "Cátulo Castillo", "Atilio Stampone", "Roberto Pansera", "Daniel Binelli", "Edmundo Rivero"]
 ---
 
 Fue uno de los grandes violinistas que tuvo el tango a lo largo de su historia. Tanto, que en 1974 terminó enrolado en la Orquesta Sinfónica del Teatro Colón, cuando estaba pensando más en el retiro que en seguir iluminando con el sonido de su violín los distintos teatros y recintos de distintos países donde se presentó, generalmente en los conjuntos varios que fue armando Ástor Piazzolla.

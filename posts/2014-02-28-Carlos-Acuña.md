@@ -3,6 +3,7 @@ title: "Carlos Acuña"
 date: "2014-02-28"
 original_url: https://tangosalbardo.blogspot.com/2014/02/carlos-acuna.html
 labels: ""
+tags: ["Celedonio Flores", "Carlos Di Sarli", "Ignacio Corsini", "Mariano Mores", "Héctor Marcó", "Tita Merello", "Charlo"]
 ---
 
 Del porteño barrio de Constitución al mundo. Tal podría haber sido el lema que marcara la trayectoria de este cantor que esparció tangos por tantos países. Treinta y seis, según figuraban en su ristra de pasaportes, cargados de sellos aduaneros, pero también de anécdotas de todo calibre.

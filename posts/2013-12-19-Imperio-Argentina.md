@@ -3,6 +3,7 @@ title: "Imperio Argentina"
 date: "2013-12-19"
 original_url: https://tangosalbardo.blogspot.com/2013/12/imperio-argentina.html
 labels: ""
+tags: ["Francisco Canaro", "Agustín Magaldi", "Eduardo Arolas"]
 ---
 
 Aunque fue una gloria del cine y la copla en España y Europa, su apellido artístico reveló no sólo su origen, sino incluso su sensación de pertenencia a un país que la vio nacer física y artísticamente. En la calle Chacabuco 1440 - entre Brasil y Garay- , pleno barrio de San Telmo, vio la luz esta estrella que era hija de un mecánico que también bordaba la guitarra y una malagueña, cantante y bailaora.

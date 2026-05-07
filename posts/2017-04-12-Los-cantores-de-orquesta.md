@@ -3,6 +3,7 @@ title: "Los cantores de orquesta"
 date: "2017-04-12"
 original_url: https://tangosalbardo.blogspot.com/2017/04/los-cantores-de-orquesta.html
 labels: ""
+tags: ["Libertad Lamarque", "Enrique Rodríguez", "Osvaldo Pugliese", "Hugo del Carril", "Mercedes Simone", "Horacio Salgán", "Enrique Campos", "Rosita Quiroga"]
 ---
 
 Después del invento de Gardel, llegarían los Corsini, los Magaldi y la pléyade de cantores y cantantes que enriquecieron notablemente la panoplia del tango, sembrando en el disco creaciones maravillosas que perduran en el tiempo y suenan cada día mejor. La textura polisémica de cada frase creada por los grandes poetas, encontró en los cantores de orquesta la representación excelsa de aquellos versos que pasaron a la historia. Las revereraciones idiomáticas de los tiempos pasados crepitan en estos registros con una fuerza inusitada y la fecundidad creativa de esos cantores de orquesta, nos transportan hacia los grandes registros de aquella fecunda época.

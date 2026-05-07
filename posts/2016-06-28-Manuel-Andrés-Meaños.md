@@ -3,6 +3,7 @@ title: "Manuel Andrés Meaños"
 date: "2016-06-28"
 original_url: https://tangosalbardo.blogspot.com/2016/06/manuel-andres-meanos.html
 labels: ""
+tags: ["Enrique Santos Discépolo", "Francisco Canaro", "Teófilo Ibáñez", "Alberto Gómez", "Julio De Caro", "Pedro Laurenz", "Alfredo Gobbi"]
 ---
 
 Lo he mencionado varias veces de rebote, por su hermoso tango: **De puro guapo**, al que Laurenz le encajó una música soberbia y milonguera, y dejó su hermosa grabación, pero este hombre de Avellaneda se merece bastante más que una cita al pasar, porque ha aportado mucho al tango, que lo fue aprendiendo cuando esta música todavía no había entrado por la puerta de las casas y sonaba a travesura. Y fue importante su creación en el teatro, el cine y la radiofonía, con sus libretos.

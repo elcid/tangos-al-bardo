@@ -3,6 +3,7 @@ title: "Disarliando"
 date: "2013-06-12"
 original_url: https://tangosalbardo.blogspot.com/2013/06/disarliando.html
 labels: ""
+tags: ["Carlos Di Sarli", "Alberto Podestá", "Mercedes Simone", "Eduardo Arolas", "Aníbal Troilo", "Héctor Marcó"]
 ---
 
 A los milongueros nos asaltan las ganas de bailar en cualquier momento, sobre todo cuando escuchamos en el coche, en el ordenata o en la *vitrola* un tango determinado, una milonguita de rompe y raja, o un valsecito romántico que nos hace yirar dando vuelta por la habitación. Somos así.

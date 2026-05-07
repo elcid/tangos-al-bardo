@@ -3,6 +3,7 @@ title: "En lo de Laura"
 date: "2014-01-31"
 original_url: https://tangosalbardo.blogspot.com/2014/01/en-lo-de-laura.html
 labels: ""
+tags: ["Ángel Vargas", "León Benarós"]
 ---
 
 Siempre se recuerdan las *casitas* de Laura y María la Vasca en determinados tangos, milongas y escritos históricos de los comienzos del tango y sus bailongos clandestinos. El escritor-poeta León Benarós, describió en un delicioso escrito, aquellos pintorescos sitios de principios de siglo XX.

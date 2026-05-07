@@ -3,6 +3,7 @@ title: "Salgán, el rey mago"
 date: "2022-04-07"
 original_url: https://tangosalbardo.blogspot.com/2022/04/salgan-el-rey-mago.html
 labels: ""
+tags: ["José González Castillo", "Sebastián Piana", "Edmundo Rivero", "Horacio Salgán"]
 ---
 
 El sacudón llegó, otra vez por teléfono y en la voz de una mujer. Esta vez fue ella la que llamó, pero el asunto había empezado con una actuación mía casual, o no tanto. Mi amigo Guillermo Teruel me había llevado a LS9 Radio La Voz la Aire, cuyo dueño era el famoso Emilio Karlstulovic, propietario también de la revista *Sintonía*. Yo creía haber ido como público nomás y no imaginaba tener que cantar pero, una vez allí, vino el pedido de Kartulo al que traté de negarme cortésmente.* -Vea Don Emilio, hace muchos años que no canto. Además, no he traído mi guitarra.*

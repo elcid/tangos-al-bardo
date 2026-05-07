@@ -3,6 +3,7 @@ title: "Alma de tango"
 date: "2017-03-04"
 original_url: https://tangosalbardo.blogspot.com/2017/03/alma-de-tango.html
 labels: ""
+tags: ["José María Otero"]
 ---
 
 ALMA DE TANGO

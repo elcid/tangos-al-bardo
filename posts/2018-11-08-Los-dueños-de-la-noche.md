@@ -3,6 +3,7 @@ title: "Los dueños de la noche"
 date: "2018-11-08"
 original_url: https://tangosalbardo.blogspot.com/2018/11/los-duenos-de-la-noche.html
 labels: ""
+tags: ["Juan Carlos Cobián", "Susana Rinaldi", "Aníbal Troilo", "Julio De Caro", "Homero Manzi"]
 ---
 
 ##  Una evocación de aquellos que pertenecieron a la noche de Buenos Aires, que conquistaron al público bohemio: De Caro, Piazzolla, Troilo, Goyeneche.

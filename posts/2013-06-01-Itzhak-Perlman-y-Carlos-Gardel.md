@@ -3,6 +3,7 @@ title: "Itzhak Perlman y Carlos Gardel"
 date: "2013-06-01"
 original_url: https://tangosalbardo.blogspot.com/2013/06/itzhak-perlman-y-carlos-gardel.html
 labels: ""
+tags: ["Alfredo Le Pera", "Carlos Gardel"]
 ---
 
 Itzhak Perlman está considerado el violinista solista más importante del mundo. Nació en Tel Aviv, cuando la ciudad estaba en Palestina, bajo Mandato Británico (actual Israel) y sufrió la poliomelitis cuando tenía 4 años, por lo cual se vió necesitado de andar con muletas, y toca siempre sentado, debido a ese problema.

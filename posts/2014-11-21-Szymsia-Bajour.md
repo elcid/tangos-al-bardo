@@ -3,6 +3,7 @@ title: "Szymsia Bajour"
 date: "2014-11-21"
 original_url: https://tangosalbardo.blogspot.com/2014/11/szymsia-bajour.html
 labels: ""
+tags: ["Leopoldo Federico", "Joaquín Do Reyes", "Florindo Sassone", "Osvaldo Pugliese", "Carlos Di Sarli", "Atilio Stampone", "Alberto Marino", "Edgardo Donato"]
 ---
 
 Nació en Nasielsk, Polonia, se naturalizó argentino después de haberse criado en Buenos Aires desde los 11 años de edad, militó en varias orquestas típicas, en Sinfónicas y llegó a ser unos de los más grandes violinistas del mundo. En la ciudad de origen, vecina a Varsovia, su padre regentaba una Confitería a la cual acudían muchos jóvenes y personas mayores. Tenían un buen pasar pero los tambores de guerra estaban sonando y pronto Polonia caería bajo las garras del nazismo. Por eso, antes del desastre decidirían trasladarse a Argentina.

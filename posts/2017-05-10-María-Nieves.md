@@ -3,6 +3,7 @@ title: "María Nieves"
 date: "2017-05-10"
 original_url: https://tangosalbardo.blogspot.com/2017/05/maria-nieves.html
 labels: ""
+tags: ["Juan Carlos Copes", "Osvaldo Pugliese", "María Nieves"]
 ---
 
 El Diario** El País, ** de España, publicó un reportaje muy bueno a la que fuera maravillosa integrante del gran dúo del tango, con Juan Carlos Copes. El mismo fue realizado por la escritoria **Leila Guerriero **y creo que vale la pena que lo vean en muchos lugares del mundo, por todo lo que hizo María Nieves en el tango y su duro presente, imposibilitada de bailar.

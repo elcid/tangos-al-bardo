@@ -3,6 +3,7 @@ title: "El nombre del bandoneón"
 date: "2021-07-31"
 original_url: https://tangosalbardo.blogspot.com/2021/07/el-nombre-del-bandoneon.html
 labels: ""
+tags: ["Anselmo Aieta", "Juan Maglio", "Charlo"]
 ---
 
 Tardó un poco la Real Academia Española en hacer un lugarcito en su diccionario a la palabra bandoneón. Finalmente, en la edición de 1992 -la vigésima primera-, registró "**Bandoneón**. (Del al. *Bandoneon*, del nombre de su inventor, H. Band, en el s. XIX) forma hexagonal y escala cromática, muy popular en la Argentina".

@@ -3,6 +3,7 @@ title: "Ojos muertos"
 date: "2020-05-04"
 original_url: https://tangosalbardo.blogspot.com/2020/05/ojos-muertos.html
 labels: ""
+tags: ["José González Castillo", "Osvaldo Fresedo", "Astor Piazzolla", "Alberto Marino", "Carlos García", "Roberto Grela", "Oscar Alonso"]
 ---
 
 Este tango de Alfredo Navarrine y Rafael Iriarte, es realmente algo distinto dentro del género. Al menos por la profundidad de los versos que realmente te envuelven en remolinos emocionales con su tremenda elocuencia. Tiene un doble título: *Ojos tristes*, y buceando en las aguas procelosas de la angustia, Navarrine logra conmover con su poesía, si le prestamos la debida atención, porque engancha la emotividad del que escucha.

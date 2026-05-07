@@ -3,6 +3,7 @@ title: "El eterno resplandor de Horacio Salgán"
 date: "2021-06-30"
 original_url: https://tangosalbardo.blogspot.com/2021/06/el-eterno-resplandor-de-horacio-salgan.html
 labels: ""
+tags: ["Víctor Lavallén", "Horacio Salgán"]
 ---
 
 **El nuevo disco del pianista Pablo Estigarribia es un homenaje al genial compositor de "A fuego lento". También está disponible un libro con las transcripciones de los temas del álbum. **

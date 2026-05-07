@@ -3,6 +3,7 @@ title: "Poemas, tangos, valses en la lluvia."
 date: "2016-11-21"
 original_url: https://tangosalbardo.blogspot.com/2016/11/poemas-tangos-valses-en-la-lluvia.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Ángel Vargas"]
 ---
 
 El único argentino que conocí, además de mis profesores de castellano, que pronunciara las *elles*, como nos enseñaron, fue el presi Arturo Frondizi. Él decía lluvia, calle, orgullo, belleza, así como suena. Nosotros lo cambiamos y batíamos yuvia, caye, orguyo, beyesa, tal cual suena. Y les nuevas generaciones le volvieron a dar su toque y ahora es shuvia, cashe, orgusho, beshesa... ¡Que vachaché! el idioma es como el chicle, o el bandoneón, se estira, se abre, cierra y sobre todo canta. Y nosotros cantamos...

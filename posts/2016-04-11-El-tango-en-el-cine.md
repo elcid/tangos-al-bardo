@@ -3,6 +3,7 @@ title: "El tango en el cine"
 date: "2016-04-11"
 original_url: https://tangosalbardo.blogspot.com/2016/04/el-tango-en-el-cine.html
 labels: ""
+tags: ["Carlos Di Sarli"]
 ---
 
 Es sabido que los productores cinematográficos y los directores argentinos, no supieron explotar la veta popular que significó el tango a lo largo de su historia. Sólo algunos pantallazos mínimos aparecieron en películas argentinas y así fueron pasando las grandes orquestas y cantores, los bailes multitudinarios, los cafés céntricos, confiterías, clubes donde el tango había sentado sus bases firmes.

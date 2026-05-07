@@ -3,6 +3,7 @@ title: "Cimarrón de ausencia"
 date: "2022-07-28"
 original_url: https://tangosalbardo.blogspot.com/2022/07/cimarron-de-ausencia.html
 labels: ""
+tags: ["Homero Expósito", "Alberto Marino", "Aníbal Troilo", "Lito Bayardo", "Floreal Ruiz", "Oscar Alonso", "Miguel Caló"]
 ---
 
 Considero que vale la pena refrescar la memoria con esta milonga que basa sus versos en nuestro impagable mate criollo. Y esa palabra tan allegada: **cimarrón, **proviene del antiguo taíno, y se refiere a una planta silvestre. Así se ha instalado en la Cuenca del Plata, por parte de argentinos y uruguayos, cuando nos referimos al mate amargo.

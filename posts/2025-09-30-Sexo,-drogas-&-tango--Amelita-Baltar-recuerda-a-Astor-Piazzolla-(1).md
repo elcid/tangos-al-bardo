@@ -3,6 +3,7 @@ title: "Sexo, drogas & tango: Amelita Baltar recuerda a Astor Piazzolla (1)"
 date: "2025-09-30"
 original_url: https://tangosalbardo.blogspot.com/2025/09/sexo-drogas-tango-amelita-baltar.html
 labels: ""
+tags: ["Astor Piazzolla", "Horacio Ferrer", "Aníbal Troilo", "Antonio Agri"]
 ---
 
 *Texto: Julio De Bonis con la colaboración de Martín Robbio*

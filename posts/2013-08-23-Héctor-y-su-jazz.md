@@ -3,6 +3,7 @@ title: "Héctor y su jazz"
 date: "2013-08-23"
 original_url: https://tangosalbardo.blogspot.com/2013/08/hector-y-su-jazz.html
 labels: ""
+tags: ["Francisco Lomuto", "Mariano Mores"]
 ---
 
 En aquella época en que íbamos a milonguear con el clásico binomio Tango-jazz, que tanto juego dio durante años, había una cantidad impresionantes de Orquestas de jazz que podían tocar la música norteamericana como también brasileña, tropical y demás. Y actuaban en bailes, confiterías y radios.

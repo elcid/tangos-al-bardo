@@ -3,6 +3,7 @@ title: "Andrea Missé"
 date: "2012-11-08"
 original_url: https://tangosalbardo.blogspot.com/2012/11/andrea-misse.html
 labels: ""
+tags: ["Juan Carlos Copes"]
 ---
 
 Cuando apenas despegaba este año que comienza a evanescerse, las filas del tango sufrieron un duro golpe con la noticia del fallecimiento de la brillante bailarina Andrea Missé, víctima de un choque múltiple en la localidad de General Acha, provincia de La Pampa. Su rubia figura, integrante de una familia milonguera, había dado la vuelta al mundo dando exhibiciones e impartiendo clases.

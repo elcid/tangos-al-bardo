@@ -3,6 +3,7 @@ title: "El último baile"
 date: "2023-11-15"
 original_url: https://tangosalbardo.blogspot.com/2023/11/el-ultimo-baile.html
 labels: ""
+tags: ["Carlos Di Sarli"]
 ---
 
 Lo vi llegar en su coche

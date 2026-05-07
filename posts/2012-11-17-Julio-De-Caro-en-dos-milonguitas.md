@@ -3,6 +3,7 @@ title: "Julio De Caro en dos milonguitas"
 date: "2012-11-17"
 original_url: https://tangosalbardo.blogspot.com/2012/11/julio-de-caro-en-dos-milonguitas.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Horacio Salgán", "Aníbal Troilo", "Julio De Caro", "Pedro Laurenz", "Alfredo Gobbi", "Orlando Goñi"]
 ---
 
 Para mover los remos en el parqué vale la pena sintonizar y recrearnos con dos milongas por la orquesta del gran Julio De Caro.

@@ -3,6 +3,7 @@ title: "Milonga y fuga"
 date: "2024-11-24"
 original_url: https://tangosalbardo.blogspot.com/2024/11/milonga-y-fuga.html
 labels: ""
+tags: ["Horacio Ferrer"]
 ---
 
 A Mario Arroyo

@@ -3,6 +3,7 @@ title: "BIEN MILONGA"
 date: "2015-08-29"
 original_url: https://tangosalbardo.blogspot.com/2015/08/bien-milonga.html
 labels: ""
+tags: ["Alberto Castillo", "Ricardo Tanturi", "Alberto Echagüe", "Juan D'Arienzo", "Edgardo Donato", "Miguel Caló", "Raúl Berón"]
 ---
 
 Llega septiembre y llega la milonga a la Casa de Aragón en Madrid. Volvemos luego de las vacaciones de Agosto, donde el sol, la arena y sobre todo las aguas templadas del Mediterráneo nos renovaron en todo sentido. Regresamos con fuerza y con muchas ganas de dibujar en el piso de madera lustrada, con esa emoción antigua que nos atacaba en los preámbulos de la milonga del sábado o del domingo.

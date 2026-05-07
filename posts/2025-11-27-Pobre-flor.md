@@ -3,6 +3,7 @@ title: "Pobre flor"
 date: "2025-11-27"
 original_url: https://tangosalbardo.blogspot.com/2025/11/pobre-flor.html
 labels: ""
+tags: ["Alfredo De Angelis", "Julio Martel", "Carlos Dante"]
 ---
 
 La flor es la estructura reproductiva característica de las plantas llamadas espermatofitas o fanerógamas. La función de una flor es producir semillas a través de la reproducción sexual. Para las plantas, las semillas son la próxima generación y sirven como el principal medio a través del cual las especies se perpetúan y se propagan.

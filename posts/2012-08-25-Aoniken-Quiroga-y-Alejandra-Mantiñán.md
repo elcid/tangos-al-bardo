@@ -3,6 +3,7 @@ title: "Aoniken Quiroga y Alejandra Mantiñán"
 date: "2012-08-25"
 original_url: https://tangosalbardo.blogspot.com/2012/08/aoniken-quiroga-y-alejandra-mantinan.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Mariano Mores", "José Basso"]
 ---
 
 Un amigo mío los vió bailar y me dice asombrado: "¡*Parecen dibujitos animados*!".

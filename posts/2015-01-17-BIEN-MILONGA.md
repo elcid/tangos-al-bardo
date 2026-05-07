@@ -3,6 +3,7 @@ title: "BIEN MILONGA"
 date: "2015-01-17"
 original_url: https://tangosalbardo.blogspot.com/2015/01/bien-milonga_17.html
 labels: ""
+tags: ["Francisco Gorrindo", "Juan D'Arienzo"]
 ---
 
 Como todos los sábados estamos en CASA de ARAGÓN de Madrid dándole cuerda a nuestra afición milonguera. E incluso dictando unas clases antes de ponernos los tarros de baile. *Bien Milonga*, tanto los sábados como los martes comienza a las 21 hs. y las clases se dan de 20 a 21 hs. previa inscripción.

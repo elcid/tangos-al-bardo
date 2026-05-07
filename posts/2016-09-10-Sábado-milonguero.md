@@ -3,6 +3,7 @@ title: "Sábado milonguero"
 date: "2016-09-10"
 original_url: https://tangosalbardo.blogspot.com/2016/09/sabado-milonguero.html
 labels: ""
+tags: ["Francisco Canaro", "Armando Pontier", "Juan D'Arienzo", "Carlos Bahr"]
 ---
 
 ¡Y qué lindo! Justo ahora que ha bajado un poquito el termómetro del tiempo, aunque no el del cuore, porque, cuando se trata de milonguear da lo mismo el frío que el calor. En el tango que escribió Carlos Bahr y que musicalizó Armando Pontier: "**Cuando talla un bandoneón**", el bardo se expresa así:

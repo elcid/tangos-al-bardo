@@ -3,6 +3,7 @@ title: "Roberto Pansera"
 date: "2013-08-13"
 original_url: https://tangosalbardo.blogspot.com/2013/08/roberto-pansera.html
 labels: ""
+tags: ["Juan Carlos Cobián", "Domingo Federico", "Osvaldo Fresedo", "Roberto Pansera", "Aníbal Troilo", "Néstor Fabián", "Mariano Mores"]
 ---
 
 Músico importante, aunque no tenga el respaldo de la fama que rodea a muchos de sus congéneres. Pero la gente del tango sabe quien ha sido y todo lo que ha representado este bandoneonista, organista, director, compositor, orquestador y arreglador.

@@ -3,6 +3,7 @@ title: "Fulvio Salamanca"
 date: "2012-11-07"
 original_url: https://tangosalbardo.blogspot.com/2012/11/fulvio-salamanca.html
 labels: ""
+tags: ["Fulvio Salamanca", "Juan D'Arienzo", "Héctor Varela"]
 ---
 
 Fue una de las grandes figuras de la época dorada del tango, como instrumentista de notable manejo del piano, por su innato sentido rítmico sincopado que alcanzó cotas altas en la orquesta de Juan D'Arienzo, a la cual se incorporó en 1940, cuando aún no había cumplido los 20 años. Dirigía una orquestita juvenil en Las Varillas, un pueblo de Córdoba adonde se trasladaron a vivir sus padres, desde Juan B. Molina, una localidad santafesina.

@@ -3,6 +3,7 @@ title: "La Orquesta Columbia"
 date: "2015-03-10"
 original_url: https://tangosalbardo.blogspot.com/2015/03/la-orquesta-columbia.html
 labels: ""
+tags: ["Carlos Gardel", "Lito Bayardo"]
 ---
 
 Los sellos discográficos que vieron la potencia del tango como elemento comercial, no sólo contrataron a las orquestas y cantores que brillaban en aquellos momentos iniciales del género, sino que incluso llegaron a formar conjuntos con el nombre del Sello.

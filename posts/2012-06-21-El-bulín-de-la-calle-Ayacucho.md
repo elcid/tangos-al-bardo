@@ -3,6 +3,7 @@ title: "El bulín de la calle Ayacucho"
 date: "2012-06-21"
 original_url: https://tangosalbardo.blogspot.com/2012/06/el-bulin-de-la-calle-ayacucho.html
 labels: ""
+tags: ["Celedonio Flores"]
 ---
 
 El bulín de la calle Ayacucho, inmortalizado en el tangazo de José y Luis Servidio y Esteban Celedonio Flores, existió realmente y estaba en la calle Ayacucho 1443. A José, bandoneonista como su hermano, lo motejó el padre: *Balija* porque de pibe llevaba el fueye y parecía más grande que él.

@@ -3,6 +3,7 @@ title: "Carlitos Roldán"
 date: "2012-12-19"
 original_url: https://tangosalbardo.blogspot.com/2012/12/carlitos-roldan.html
 labels: ""
+tags: ["Francisco Rotundo", "Enrique Cadícamo", "Francisco Canaro", "Mercedes Simone", "Homero Manzi", "Tita Merello", "Ivo Pelay"]
 ---
 
 Fue un cantor que encajó justo en la orquesta de Canaro. Por el deje barrial que tenía, la cercanía con el público, los gestos pícaros y ese acento nasal que lo hacía fácilmente reconocible.

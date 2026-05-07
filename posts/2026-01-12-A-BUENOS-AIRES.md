@@ -3,6 +3,7 @@ title: "A BUENOS AIRES"
 date: "2026-01-12"
 original_url: https://tangosalbardo.blogspot.com/2026/01/a-buenos-aires.html
 labels: ""
+tags: ["Edmundo Rivero"]
 ---
 
 >

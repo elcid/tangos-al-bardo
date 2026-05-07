@@ -3,6 +3,7 @@ title: "Con los mismos colores"
 date: "2012-06-23"
 original_url: https://tangosalbardo.blogspot.com/2012/06/con-los-mismos-colores.html
 labels: ""
+tags: ["Osvaldo Fresedo", "Aníbal Troilo", "José Basso"]
 ---
 
 En 1948 se realizó una película argentina sobre fútbol que tuvo un gran éxito popular. Se llamó *Pelota de trapo* y el suceso impulsó a los productores a hacer otro filme con la presencia de tres destacados futbolistas de equipos grandes, que convocaran con su presencia.

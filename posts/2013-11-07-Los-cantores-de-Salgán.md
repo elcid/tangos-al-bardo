@@ -3,6 +3,7 @@ title: "Los cantores de Salgán"
 date: "2013-11-07"
 original_url: https://tangosalbardo.blogspot.com/2013/11/los-cantores-de-salgan.html
 labels: ""
+tags: ["Roberto Goyeneche", "Edmundo Rivero", "Horacio Salgán", "Aníbal Troilo", "Alfredo Gobbi", "Jorge Durán"]
 ---
 
 Además de la consideración que siempre ha merecido Horacio Salgán por parte de los músicos y críticos, destaca en su historial el ramillete de grandes cantores que han desfilado por su orquesta. Comenzando por dos grandes como Edmundo Rivero y Roberto Goyeneche, nada menos. Pero además tuvo en sus filas a otros de la talla de Ángel Díaz, Horacio Deval, Carlos Bermúdez, Jorge Durán, Oscar Serpa o Héctor Insúa.

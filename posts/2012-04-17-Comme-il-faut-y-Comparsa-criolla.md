@@ -3,6 +3,7 @@ title: "Comme il faut y Comparsa criolla"
 date: "2012-04-17"
 original_url: https://tangosalbardo.blogspot.com/2012/04/comme-il-faut-y-comparsa-criolla.html
 labels: ""
+tags: ["Francisco Canaro", "Carlos Di Sarli", "Ricardo Tanturi", "Eduardo Arolas", "Aníbal Troilo", "Agustín Bardi", "Roberto Firpo"]
 ---
 
 Se trata del mismo tango. El primero lleva la firma y el talento de Eduardo Arolas y el segundo le pertenece a Rafael Iriarte, *El Rata*, que tocaba una guitarra de once cuerdas.

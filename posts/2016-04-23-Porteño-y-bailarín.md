@@ -3,6 +3,7 @@ title: "Porteño y bailarín"
 date: "2016-04-23"
 original_url: https://tangosalbardo.blogspot.com/2016/04/porteno-y-bailarin.html
 labels: ""
+tags: ["Francisco Canaro", "Mario Pomar"]
 ---
 
 Y sí, porque me hice en un barrio porteño, tanguero y milonguero y esos yeites no te abandonan jamás en el camino, por más fronteras que cruces, aviones que subas y amigos que conozcas en el camino de la vida. Es como ser hincha de un club de fútbol. Podés divorciarte, tener nuevas familias, vivir en otros países, cambiar de nacionalidad, pero... seguirás siendo hincha de ese club hasta la muerte. Bueno con el gotán te pasa lo mismo, ¡que querés que te diga! Y el que se arrimó a otros hobbies, ritmos y costumbres lejanas...¡que se embrome!.

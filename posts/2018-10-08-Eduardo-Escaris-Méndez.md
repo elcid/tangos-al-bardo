@@ -3,6 +3,7 @@ title: "Eduardo Escaris Méndez"
 date: "2018-10-08"
 original_url: https://tangosalbardo.blogspot.com/2018/10/eduardo-escaris-mendez.html
 labels: ""
+tags: ["Pascual Contursi", "Osvaldo Fresedo", "Alberto Echagüe", "Juan D'Arienzo", "Rosita Quiroga", "Carlos Gardel", "Carlos Dante", "Jorge Durán"]
 ---
 
 Poeta de buena pluma, de corte lunfardesco, dejó pocas páginas, pero de largo alcance, mereciendo con toda justicia el recuerdo por su obra tan personal. Tenía cultura, evidentemente, era un hombre leído y aunque se destacó por sus pinceladas porteñas y el desenfado porteño en el tango, también incursionó en el periodismo, en viñetas de tipo humorístico y en letras de canciones criollas y estilos, muy bien diseñados estilísticamente.

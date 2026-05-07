@@ -3,6 +3,7 @@ title: "Cosas olvidadas"
 date: "2012-09-06"
 original_url: https://tangosalbardo.blogspot.com/2012/09/cosas-olvidadas.html
 labels: ""
+tags: ["Alfredo De Angelis", "Libertad Lamarque", "Carlos Di Sarli", "Roberto Firpo"]
 ---
 
 He vivido infinidad de anécdotas tangueras y en mis andanzas por el mundo me pasaron cosas al respecto, que conservo en mi mente y en el cuore.

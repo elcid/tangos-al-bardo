@@ -3,6 +3,7 @@ title: "Mariana Fresno"
 date: "2017-02-17"
 original_url: https://tangosalbardo.blogspot.com/2017/02/mariana-fresno.html
 labels: ""
+tags: ["Juan Carlos Copes", "Osvaldo Pugliese"]
 ---
 
 Las milongueras tienen ese no sé que, ¿viste?, que diría Ferrer y es grato encontrarnos con algunas de las que han logrado que el tango forme parte de las noches de bailarines de otros países. Ella vive en Nueva Yok, tiene una Milonga, se muestra en exhibiciones y lleva años dándole alas a sus sueños, desde que comenzó viajando a Japón por dos meses con apenas veintidós años y un compañero de veinte.

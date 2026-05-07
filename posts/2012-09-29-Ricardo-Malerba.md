@@ -3,6 +3,7 @@ title: "Ricardo Malerba"
 date: "2012-09-29"
 original_url: https://tangosalbardo.blogspot.com/2012/09/ricardo-malerba.html
 labels: ""
+tags: ["Francisco Fiorentino", "Libertad Lamarque", "Francisco Canaro", "Cátulo Castillo", "Julio De Caro", "Miguel Caló"]
 ---
 
 Dirigió una de las tantas orquestas que enfebrecieron las noches tangueras de los años cuarenta. Nunca estuvo en primera línea y sin embargo, cuando se la escucha tantos años más tarde, se comprueba que tenía un ritmo muy bailable y estaba bien afiatado.

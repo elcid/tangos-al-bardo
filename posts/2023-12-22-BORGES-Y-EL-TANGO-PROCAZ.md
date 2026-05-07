@@ -3,6 +3,7 @@ title: "BORGES Y EL TANGO PROCAZ"
 date: "2023-12-22"
 original_url: https://tangosalbardo.blogspot.com/2023/12/borges-y-el-tango-procaz.html
 labels: ""
+tags: ["Celedonio Flores", "Astor Piazzolla", "Alfredo Le Pera", "Edgardo Donato", "Edmundo Rivero", "Vicente Greco", "Manuel Romero"]
 ---
 
 Me enseñó a jugar al truco. Recitaba las coplas para cantar la flor, desde la clásica: *“Por el río Paraná…, pasando por la cuarteta criolla que evoca a la paradoja de Zenón Una carrera corrieron/ el sapo y la comadreja, / y el sapo, al aventajarla,/ le dijo flor en la oreja*”; y la idílica “*En los jardines de Diana/ tengo una rosa en botón,/ conservate casta y pura/ si querés llamarte flor”, hasta las deliciosamente torpes:* “ *Don Carlos de Tejedor, / con una paciencia loca/ le rompió el culo… y a Roca/ con un nabo de mi flor*”, y : “*Por metérsela a una mina/ muy estrecha de cadera/ la poronga me quedó/ como flor de regader*a”, y: “*En la estancia El Pelao,/ donde retoza El Peludo,/ he visto un gringo mamao/ con una flor en el culo*”.

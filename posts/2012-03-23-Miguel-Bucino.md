@@ -3,6 +3,7 @@ title: "Miguel Bucino"
 date: "2012-03-23"
 original_url: https://tangosalbardo.blogspot.com/2012/03/miguel-bucino.html
 labels: ""
+tags: ["Libertad Lamarque", "Francisco Canaro", "Juan D'Arienzo", "Julio De Caro", "Pedro Maffia", "Miguel Caló"]
 ---
 
 Vale la pena recordar a toda una figura del tango: Miguel Bucino.

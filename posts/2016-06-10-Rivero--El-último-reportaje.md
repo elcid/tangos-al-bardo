@@ -3,6 +3,7 @@ title: "Rivero: El último reportaje"
 date: "2016-06-10"
 original_url: https://tangosalbardo.blogspot.com/2016/06/rivero-el-ultimo-reportaje.html
 labels: ""
+tags: ["Juan Andrés Caruso", "Celedonio Flores", "Horacio Ferrer", "Rosita Quiroga", "Edmundo Rivero", "Horacio Salgán", "Carlos Gardel", "Carlos García"]
 ---
 
 Hace dos días se cumplieron 105 años del nacimiento de ese gran cantor que fue Edmundo Rivero. Con dicho motivo, su hijo: *Muni* Rivero nos mandó el último reportaje que le hicieron en vida a su padre. Lo envió a ese grupo de tangueros que nos unimos en el club que capitanea otro brillante cantor: Roberto Mancini. Y considero que es muy oportuno hacerles llegar este reportaje tan bien realizado por ese escritor y autor de tango, recientemente fallecido: Roberto Selles. Imperdible.

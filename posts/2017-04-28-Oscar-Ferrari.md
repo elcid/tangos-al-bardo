@@ -3,6 +3,7 @@ title: "Oscar Ferrari"
 date: "2017-04-28"
 original_url: https://tangosalbardo.blogspot.com/2017/04/oscar-ferrari.html
 labels: ""
+tags: ["Astor Piazzolla", "Armando Pontier", "Arturo De Bassi", "Homero Expósito", "Edgardo Donato", "Alfredo Gobbi", "Jorge Durán", "Julio Sosa"]
 ---
 
 Dedicó toda su vida al arte popular. Como cantor primero y formador de voces tangueras, luego. Fue hijo único de una pareja de bailarines de varieté y creció entre las bambalinas de los teatros de revistas más importantes de Buenos Aires: El *Maipo* y el *Naciona*l, porque los padres lo llevaban consigo al no tener con quién dejarlo.

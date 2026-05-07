@@ -3,6 +3,7 @@ title: "Royal Pigall"
 date: "2012-03-25"
 original_url: https://tangosalbardo.blogspot.com/2012/03/royal-pigall.html
 labels: ""
+tags: ["José González Castillo", "Enrique Cadícamo", "Francisco Canaro", "Carlos Di Sarli", "Carlos Gardel", "Manuel Buzón", "Juan Maglio"]
 ---
 
 **“El Royal Pigalle se hallaba ubicado en Corrientes al 800, en la planta baja, ocupando el foyer de un teatro de género libre llamado Royal, que funcionaba en los altos… Se trataba de un gran vestíbulo sin decoración especial alguna, que funcionaba de 7 de la tarde a 9 de la noche solamente, denominándose sección **vermut**. Un sexteto formado por Francisco Canaro animaba estas veladas vespertinas. Tiempo después se suprimió el teatro y el Royal Pigalle de la planta baja pasó a ocupar la planta alta. Esta nueva sala había sido alfombrada y decorada con lujosos detalles, como **boudoir** de una cortesana…Después de la medianoche, la consumición de champagne era obligatoria. El fragor del **Cordon Rouge**, **Veuve de Cliquot** o del seco y ardiente **Roederer** llenaban de cordialidad y a veces de espectaculares riñas el mundano ambiente de la ostentosa sala, concurrida tan sólo por jóvenes **dandies**, distinguidos calaveras, hermosas franchutas consteladas de alhajas, que con sus presencias de reinas del cabaret acomplejaban un tanto a las modestas ‘milonguitas’ criollas, a pesar del lujoso modelo de soirée que vestían **** **** **  **** Enrique Cadícamo****

@@ -3,6 +3,7 @@ title: "Otra vez Buenos Aires"
 date: "2014-03-03"
 original_url: https://tangosalbardo.blogspot.com/2014/03/otra-vez-buenos-aires.html
 labels: ""
+tags: ["Víctor Lavallén", "Eladia Blázquez"]
 ---
 
 Así es. Hoy viajo a la Reina del Plata y estaré allí 15 días, por lo cual no mantendré el contacto diario con todos ustedes en este lapso. Les dejo eso sí, 715 entradas con música para que se entretengan cuando estén algo aburridos o el mal tiempo se haga presente en vuestras vidas y ciudades.

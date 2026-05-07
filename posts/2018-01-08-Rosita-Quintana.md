@@ -3,6 +3,7 @@ title: "Rosita Quintana"
 date: "2018-01-08"
 original_url: https://tangosalbardo.blogspot.com/2018/01/rosita-quintana.html
 labels: ""
+tags: ["Libertad Lamarque", "Domingo Federico", "Azucena Maizani", "Homero Expósito", "Carlos García", "Roberto Grela", "José Bragato", "José Canet"]
 ---
 
 Vale la pena recrear la historia de esta cantante de tangos que se consagrara en México como actriz, conservando los gorjeos de sus inicios y mereciendo los plácemes de críticos y público que la erigieron en gran figura del arte. A Trinidad Rosa Quintana, porteña del barrio de Saavedra, fue su abuela quien la introdujo en el manejo y la enseñanza de la guitarra y el canto. A sus 92 años puede presumir, en el país que la adoptó definitivamente como artista, de haber cuajado una obra perdurable y consagratoria.

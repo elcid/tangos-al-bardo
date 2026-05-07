@@ -3,6 +3,7 @@ title: "Este carnaval"
 date: "2016-02-06"
 original_url: https://tangosalbardo.blogspot.com/2016/02/este-carnaval.html
 labels: ""
+tags: ["Fulvio Salamanca", "Alberto Echagüe", "Juan D'Arienzo", "Julio Sosa"]
 ---
 
 Noche de milonga, noche de carnaval, noche de parrandas, noches de recuerdos inolvidables. Porque para los milongueros, el carnaval era una fiesta mayor. Los juegos con el agua por la tarde y la inmersión en la milonga por la noche durante siete días a todo trapo, con una orquesta de las grandes en el escenario del Club Atlético Huracán y también la de jazz, que era de agradecer cuando uno está con el ánimo propicio para la fiesta interminable.

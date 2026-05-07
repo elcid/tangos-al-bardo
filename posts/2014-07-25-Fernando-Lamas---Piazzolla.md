@@ -3,6 +3,7 @@ title: "Fernando Lamas / Piazzolla"
 date: "2014-07-25"
 original_url: https://tangosalbardo.blogspot.com/2014/07/fernando-lamas-piazzolla.html
 labels: ""
+tags: ["Juan Carlos Copes", "Manuel Romero", "María Nieves"]
 ---
 
 Extraña combineta. Pero real. Ástor Piazzolla llegó a Nueva York en 1958 con muchas ideas y proyectos musicales que bullían en su cabeza. Pero las cosas no funcionaron como pensaba y lógicamente, tenía que trabajar para sobrevivir.

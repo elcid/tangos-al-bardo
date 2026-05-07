@@ -3,6 +3,7 @@ title: "Se fue sin decirme adiós"
 date: "2016-03-16"
 original_url: https://tangosalbardo.blogspot.com/2016/03/se-fue-sin-decirme-adios.html
 labels: ""
+tags: ["Vicente Demarco", "Aníbal Troilo", "Carlos Gardel"]
 ---
 
 Este tango tiene el valor histórico de ser uno de los primeros que nos fue mostrando al Ástor Piazzolla compositor. Aunque está lejos de la vena creadora que lo destacaría años más tarde en un plano superior, distinto, vale la pena poner la marcha atrás y mostrar los comienzos de la maravillosa obra que fue sembrando el bandoneonista marplatense, en la historia del tango.

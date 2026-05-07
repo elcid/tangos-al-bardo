@@ -3,6 +3,7 @@ title: "Tango en otros ritmos"
 date: "2014-12-04"
 original_url: https://tangosalbardo.blogspot.com/2014/12/tangos-en-otros-ritmos.html
 labels: ""
+tags: ["José María Contursi", "Leopoldo Federico", "Domingo Federico", "Florindo Sassone", "Carlos Di Sarli", "Enrique Delfino", "Homero Expósito", "Héctor Marcó"]
 ---
 
 Sí, yo creo que hoy debiera traer a estas páginas una muestra de lo que han hecho intérpretes de otros géneros y otros países, con nuestro tango argentino. Cuando las cosas se hacen con cariño y con respeto, valen la pena escucharlas. Sin ir más lejos tenemos bastantes casos de canciones de otros tipo convertidas con acierto a tiempo de tango, como por ejemplo: *Historia de un amor*; los temas que realizara Florindo Sassone en los sesenta: *Las hojas muertas* o *Celos*; *Risque* (Olvida), de Ary Barroso por Miguel Caló; *La novia* por D'Arienzo, o Leopoldo Federico grabando temas salseros de Rubén Blades, arreglados en tiempo de tango por el propio Blades y Carlos Franzetti para cerrar el Festival Mundial de Tango de 2010.

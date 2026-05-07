@@ -3,6 +3,7 @@ title: "Argentino Galván"
 date: "2014-04-28"
 original_url: https://tangosalbardo.blogspot.com/2014/04/argentino-galvan.html
 labels: ""
+tags: ["Luis Adolfo Sierra", "Florindo Sassone", "Osvaldo Pugliese", "Enrique Delfino", "Eugenio Nóbile", "Alberto Marino", "Aníbal Troilo", "Alfredo Gobbi"]
 ---
 
 Fue uno de los arregladores más importantes que tuvo el tango y junto con Héctor Artola destacaron firmemente en la hermosa década del cuarenta con infinidad de intervenciones en los temas de diversas orquestas de primera línea, sucediendo a inspirados precursores que habían lucido en el género. El *Indio* Galván como le llamaban sus amigos en la intimidad, fue violinista, instrumento que estudió a fondo durante cinco años con su profesora e incluso tuvo orquesta propia en sus pagos de Chivilcoy, localidad bonaerense situada a 170 kilómetros de la Capital. Allí lo descubriría Alfredo Gobbi en una actuación y le habló para que buscara mejores horizontes para su talento.

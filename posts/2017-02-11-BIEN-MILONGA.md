@@ -3,6 +3,7 @@ title: "BIEN MILONGA"
 date: "2017-02-11"
 original_url: https://tangosalbardo.blogspot.com/2017/02/bien-milonga.html
 labels: ""
+tags: ["Carlos Di Sarli", "Juan D'Arienzo", "Mario Pomar"]
 ---
 
 Hoy reaparezco con esta sección, porque BIEN MILONGA funciona al mango y tenemos un nivel de baile que nos empina en las noches de los Martes a las 21 horas. Los sábados estaban suspendidos por mi ausencia pero volveremos próximamente también, porque la milonga madrileña la está reclamando. Y la Casa de Aragón de Madrid, de la Plaza República Argentina nº 6 nos facilita una pista de madera bien cuidada, muy cálida. La selección musical obra el resto, porque la música es la que empuja y en esto no podemos fallar, después de tantos años milongueando a full.

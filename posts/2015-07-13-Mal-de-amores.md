@@ -3,6 +3,7 @@ title: "Mal de amores"
 date: "2015-07-13"
 original_url: https://tangosalbardo.blogspot.com/2015/07/mal-de-amores.html
 labels: ""
+tags: ["Leopoldo Federico", "Francisco Rotundo", "Osvaldo Pugliese", "Julio De Caro", "Pedro Laurenz", "Mario Demarco", "Antonio Agri", "José Basso"]
 ---
 
 Este tango entrañable de Pedro Laurenz me viene haciendo cosquillas en el cuore desde que arranqué de muchachito en la milonga. En la barra de la que yo formaba parte, había mayoría de hinchas de Pugliese, y cuando nos juntábamos en la casa de alguno de los integrantes de esa cuadrilla de seguidores del hombre de Viilla Crespo, en la vitrola se sucedían algunos tangos de su orquesta. Mientras, el mate corría de mano en mano y cada tanto nos parábamos y ensayábamos algunos pasos para la milonga.

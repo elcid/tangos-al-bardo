@@ -3,6 +3,7 @@ title: "Eduardo Arolas"
 date: "2012-06-16"
 original_url: https://tangosalbardo.blogspot.com/2012/06/eduardo-arolas.html
 labels: ""
+tags: ["Enrique Delfino", "Rodolfo Mederos", "Eduardo Arolas", "Agustín Bardi", "Julio De Caro", "Pedro Laurenz", "Pedro Maffia"]
 ---
 
 A mi juicio, junto a Agustín Bardi, son las dos figuras más grandes en la constelación mágica del tango. Sobre todo si consideramos la época en que desarrolló toda su obra, las limitaciones con las que debió luchar y la obra impresionante que dejó.

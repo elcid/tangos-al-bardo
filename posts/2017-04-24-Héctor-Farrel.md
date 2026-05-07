@@ -3,6 +3,7 @@ title: "Héctor Farrel"
 date: "2017-04-24"
 original_url: https://tangosalbardo.blogspot.com/2017/04/hector-farrel.html
 labels: ""
+tags: ["Enrique Cadícamo", "Julio De Caro", "Pedro Laurenz", "Pedro Maffia", "Homero Manzi"]
 ---
 
 Hoy quiero dedicarle unas líneas a este cantor del barrio de Boedo, que supo incursionar en el tango con cierta fortuna e incluso se vareó por Europa, en una gira con el conjunto de Carlos Vicente Geroni Flores y en el que militaba otro cantor: Alfredo Marino, el autor de los versos de El ciruja. Fue en el año 1931 y de aquel viaje guardaba el recuerdo de su actuación en una película española: *Mercedes*, donde canta el tema del título, acompañado por una orquesta local.

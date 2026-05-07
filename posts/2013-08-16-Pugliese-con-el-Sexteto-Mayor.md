@@ -3,6 +3,7 @@ title: "Pugliese con el Sexteto Mayor"
 date: "2013-08-16"
 original_url: https://tangosalbardo.blogspot.com/2013/08/pugliese-con-el-sexteto-mayor.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Cátulo Castillo", "Julián Centeya", "Julián Plaza"]
 ---
 
 Estas improvisaciones han sido más frecuentes de lo esperado y conocido, en el mundo del tango, donde se forjaron grandes amistades y complicidades. Se movían en un mismo territorio emocional y la fecundidad espoleadora los llevaba a juntarse en salas de ensayos, en boliches, en algún restaurante o en los lugares donde defendían sus derechos.

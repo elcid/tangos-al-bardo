@@ -3,6 +3,7 @@ title: "Cadícamo y Mores"
 date: "2013-07-20"
 original_url: https://tangosalbardo.blogspot.com/2013/07/cadicamo-y-mores.html
 labels: ""
+tags: ["Enrique Santos Discépolo", "Enrique Cadícamo", "Francisco Canaro", "Pascual Contursi", "Francisco Lomuto", "Alberto Marino", "Ángel Villoldo", "Mariano Mores"]
 ---
 
 Los tangos, como cualquier otro género musical, se pueden realizar escribiendo los versos sobre una letra ya escrita o viceversa. Para ejemplificar el primer caso, bastaría con citar a los dos tangos más conocidos que son *La cumparsita* y *El choclo*, obras de Gerardo Matos Rodríguez y Ángel Villoldo, respectivamente, a los cuales posteriormente le adosaron versos Pascual Contursi (el tango de Matos), y Juan Carlos Marambio Catán (1930) y Enrique Santos Discépolo (1946), el de Villoldo.

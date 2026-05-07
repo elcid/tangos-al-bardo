@@ -3,6 +3,7 @@ title: "Un tango por tres"
 date: "2014-08-01"
 original_url: https://tangosalbardo.blogspot.com/2014/08/un-tango-por-tres.html
 labels: ""
+tags: ["Agustín Magaldi", "Juan D'Arienzo", "Julio Pollero"]
 ---
 
 De jovencitos nos gustaba mucho lo de discutir sobre cual era la mejor interpretación de determinados tangos, valses o milongas. Éramos hinchas de las orquestas y de los cantores como si se tratase de equipos de fútbol, porque en los barrios anidaba un gran fervor por nuestra música, esa en la que militábamos de niños por influencias familiares, por los muchachos mayores, la radio con sus programas tangueros o los discos que mi hermano compraba cada dos por tres.

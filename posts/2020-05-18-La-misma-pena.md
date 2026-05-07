@@ -3,6 +3,7 @@ title: "La misma pena"
 date: "2020-05-18"
 original_url: https://tangosalbardo.blogspot.com/2020/05/la-misma-pena.html
 labels: ""
+tags: ["Astor Piazzolla", "Homero Expósito"]
 ---
 
 Este tango que compusieron en 1951 Homero Expósito y Astor Piazzolla es un eslabón más en la *piccola *obra que tejieron entre ambos. También crearían las milongas *La vida pequeña* y *Silencioso* y el tango* Pigmalion*. Temas que no han tenido gran repercusión pero que dejan entrever la calidad de uno y otro, en los versos y la música, respectivamente. Hoy me detengo en el tema del título, cuya poesía remite al romance juvenil, apasionado, que vivió Homero en Zárate, y del que salió con el corazón astillado y una gran pena en el alma.

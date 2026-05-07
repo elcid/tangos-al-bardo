@@ -3,6 +3,7 @@ title: "Zumo de tango"
 date: "2012-12-02"
 original_url: https://tangosalbardo.blogspot.com/2012/12/zumo-de-tango.html
 labels: ""
+tags: ["Osvaldo Pugliese", "José Bragato", "Antonio Agri"]
 ---
 
 Me encanta dialogar, debatir, hablar con gente que le gusta el tango, el fútbol, el cine o la política, pero que no son dogmáticos y entonces la conversación fluye caudalosa y cálida. Sobre todo cuando entramos en esa zona fronteriza y brumosa donde se superpone el pasado al presente y el espacio al tiempo.

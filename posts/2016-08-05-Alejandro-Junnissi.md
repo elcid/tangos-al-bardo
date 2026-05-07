@@ -3,6 +3,7 @@ title: "Alejandro Junnissi"
 date: "2016-08-05"
 original_url: https://tangosalbardo.blogspot.com/2016/08/alejandro-junnissi.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Carlos Di Sarli", "Armando Pontier", "Juan D'Arienzo"]
 ---
 
 No fue un músico destacado ni tiene una gran obra, pero merece estar entre los creadores importantes por tres de sus temas que siguen galopando fuerte en las pistas de baile y en las orejas de los tangueros gourmets. Esos tres tangos citados se llamaron: **El ingeniero, El recodo** y **El puntazo**, que calzan alas en las interpretaciones de Carlos Di Sarli, Juan D'Arienzo y numerosas orquestas, especialmente *El recodo*, que aparece en los atriles de infinidad de conjuntos.

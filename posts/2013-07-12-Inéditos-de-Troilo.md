@@ -3,6 +3,7 @@ title: "Inéditos de Troilo"
 date: "2013-07-12"
 original_url: https://tangosalbardo.blogspot.com/2013/07/ineditos-de-troilo.html
 labels: ""
+tags: ["Aníbal Troilo"]
 ---
 
 Dentro de la discografía de Troilo, quedaron algunos discos que no llegaron a salir a la venta porque finalmente no le convencieron a Pichuco. Como todos esos grandes directores del cuarenta *e ainda mais*, el resultado final de las grabaciones lo revisaba minuciosamente y muchas veces las repetía. Di Sarli, por ejemplo, hacía seis o siete versiones, para elegir la que sonara más lograda.

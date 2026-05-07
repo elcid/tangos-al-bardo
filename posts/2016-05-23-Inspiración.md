@@ -3,6 +3,7 @@ title: "Inspiración"
 date: "2016-05-23"
 original_url: https://tangosalbardo.blogspot.com/2016/05/inspiracion.html
 labels: ""
+tags: ["Libertad Lamarque", "Adolfo Carabelli", "Agustín Magaldi", "Aníbal Troilo", "Alberto Gómez", "Osmar Maderna", "Roberto Firpo", "Pedro Maffia"]
 ---
 
 Recuerdo siempre la impresión que me producía la grabación de este tango por la orquesta de Aníbal Troilo que lo registró el 3 de mayo de 1943. Yo lo "descubrí", años más tarde por supuesto, en aquellas inolvidables audiciones radiales que pasaban y comentaban discos de orquestas típicas, cantores o cancionistas, y agregaban algunos datos. No era un tango muy ejecutado por los conjuntos en boga de la época y esta versión de Pichuco, con hermoso arreglo de su bandoneonista Ástor Piazzolla, revivió un tema que estaba bastante olvidado. Miguel Caló con arreglo de su pianista Osmar Maderna también dejaría un lindo registro, en enero del 43.

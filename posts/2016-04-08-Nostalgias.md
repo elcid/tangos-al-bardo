@@ -3,6 +3,7 @@ title: "Nostalgias"
 date: "2016-04-08"
 original_url: https://tangosalbardo.blogspot.com/2016/04/nostalgias.html
 labels: ""
+tags: ["Juan Carlos Cobián", "Enrique Cadícamo", "Francisco Canaro", "Agustín Magaldi", "Charlo"]
 ---
 
 Este maravilloso tema que ha dado la vuelta al mundo y ha integrado el repertorio de cantantes de todo pelaje y lenguas, fue creado en 1936 y vale la pena recrear la historia de nacimiento del mismo, contada por el propio autor de la letra: Enrique Cadícamo.

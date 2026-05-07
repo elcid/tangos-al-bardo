@@ -3,6 +3,7 @@ title: "Francisco Canaro opina "
 date: "2023-11-27"
 original_url: https://tangosalbardo.blogspot.com/2023/11/francisco-canaro-opina_27.html
 labels: ""
+tags: ["Francisco Canaro", "Carlos Di Sarli"]
 ---
 
 ** sobre Carlos Di Sarli y su orquesta**:

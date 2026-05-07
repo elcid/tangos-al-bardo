@@ -3,6 +3,7 @@ title: "María Nieves y..."
 date: "2025-01-07"
 original_url: https://tangosalbardo.blogspot.com/2025/01/maria-nieves-y.html
 labels: ""
+tags: ["María Nieves"]
 ---
 
 Mi hermana, la Ñata, se adaptaba a todos los estilos. Porque en ese tiempo no se bailaba como ahora que es como una horma y todos bailan igual. En aquellos tiempos se milongueaba que para qué te cuento. Cada sábado y domingo eran diferentes pasos. Un buen milonguero no podía bailar siempre igual. Ellos practicaban entre hombres en clubes de barrio, en la semana, y después se largaban en los bailes.

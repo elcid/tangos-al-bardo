@@ -3,6 +3,7 @@ title: "Fresedo y el carnaval"
 date: "2012-09-11"
 original_url: https://tangosalbardo.blogspot.com/2012/09/fresedo-y-el-carnaval.html
 labels: ""
+tags: ["Osvaldo Fresedo", "Agustín Magaldi", "Ricardo Ruiz", "Floreal Ruiz"]
 ---
 
 A raíz del pedido de un amigo en un Foro tanguero, comenzamos a rememorar un tango que siempre me ha cautivado: *Después del carnaval*. Es una maravilla, especialmente la creación de Ricardo Ruiz con la orquesta de Osvaldo Fresedo, registrada el 19 de junio de 1941.

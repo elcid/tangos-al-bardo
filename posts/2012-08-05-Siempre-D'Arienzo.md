@@ -3,6 +3,7 @@ title: "Siempre D'Arienzo"
 date: "2012-08-05"
 original_url: https://tangosalbardo.blogspot.com/2012/08/siempre-darienzo.html
 labels: ""
+tags: ["Fernando Suárez Paz", "Osmar Maderna", "Pedro Maffia", "Miguel Caló"]
 ---
 
 Digan lo que digan, cuando suena D'Arienzo en la milonga, las sillas se despueblan rápidamente y la pista se llena de bailarines, que quieren disfrutar el compás llamador de esa orquesta.

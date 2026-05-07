@@ -3,6 +3,7 @@ title: "El legado  de Arolas"
 date: "2024-06-02"
 original_url: https://tangosalbardo.blogspot.com/2024/06/el-legado-de-arolas.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Carlos Di Sarli", "Cátulo Castillo", "Rodolfo Mederos", "Aníbal Troilo", "Manuel Buzón"]
 ---
 
 No llegó a completar sus 32 años de vida en este planeta. Pero su herencia es el mayor regalo que pudieron haber recibido todos los tangueros, ya sea compositores, músicos, milongueros y toda la discografía repartida en las distintas interpretaciones de orquestas típicas que honraron su figura.

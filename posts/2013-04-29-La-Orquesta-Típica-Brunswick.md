@@ -3,6 +3,7 @@ title: "La Orquesta Típica Brunswick"
 date: "2013-04-29"
 original_url: https://tangosalbardo.blogspot.com/2013/04/la-orquesta-tipica-brunswick.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Osvaldo Fresedo", "Azucena Maizani", "Eugenio Nóbile", "Julio De Caro", "Pedro Maffia"]
 ---
 
 Debido al éxito de ventas de los ellos RCA Víctor y Odeón, a finales de los años veinte, dos sellos norteamericanos decidieron poner pie en la tierra de los tangos y así nacieron las filiales argentinas de la Columbia - que retornaba- y Brunswick.

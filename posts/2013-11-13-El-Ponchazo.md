@@ -3,6 +3,7 @@ title: "El Ponchazo"
 date: "2013-11-13"
 original_url: https://tangosalbardo.blogspot.com/2013/11/el-ponchazo.html
 labels: ""
+tags: ["Francisco Pracánico", "Adolfo Carabelli", "Osvaldo Fresedo", "Oscar Alemán"]
 ---
 
 Hoy metí la púa en este tango de Rafael Rossi que grabara la Orquesta Radio Víctor en el año 1941, porque me parece que es un tema hermoso del bandoneonista de Mercedes (Buenos Aires), que no ha tenido mayor difusión ni ha sido interpretado por las orquestas típicas.

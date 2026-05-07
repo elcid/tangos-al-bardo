@@ -3,6 +3,7 @@ title: "Milonga que viene al tranco"
 date: "2012-04-12"
 original_url: https://tangosalbardo.blogspot.com/2012/04/milonga-que-viene-al-tranco.html
 labels: ""
+tags: ["Ángel Vargas"]
 ---
 
 Angelito Vargas nació en 1904, en el barrio que pasó a llamarse Parque Patricios dos años antes, gracias al diseño del Parque realizado por el paisajista francés Carlos Thays. Hasta entonces habían estado enclavados en ese predio los antiguos Corrales y mataderos de reses. De allí se trasladarían al Barrio que así adoptaría su nueva denominación: Mataderos.

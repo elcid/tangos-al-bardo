@@ -3,6 +3,7 @@ title: "José De Grandis"
 date: "2021-04-02"
 original_url: https://tangosalbardo.blogspot.com/2021/04/jose-de-grandis.html
 labels: ""
+tags: ["Pascual Contursi", "Carlos Di Sarli", "Agustín Magaldi", "Carlos Gardel", "Agustín Bardi", "Julio De Caro", "Pedro Laurenz", "Julio Sosa"]
 ---
 
 Siempre me llamó la atención este violinista-poeta por algunas de sus páginas y por la extrañeza de que siendo músico, también le diera rienda suelta a su imaginación, llevando al papel imágenes poéticas por demás sugerentes. Recuerdo a Julio Sosa cantando su tango **Recordándote** y cómo me llegaban esas frases de un tango que también luciera otro oriental, Carlos Olmedo con la orquesta de Pichuco.

@@ -3,6 +3,7 @@ title: "Aguante de Tango"
 date: "2015-12-05"
 original_url: https://tangosalbardo.blogspot.com/2015/12/aguante-de-tango.html
 labels: ""
+tags: ["Francisco Canaro", "Alberto Castillo", "Ricardo Tanturi", "Aníbal Troilo", "Héctor Varela"]
 ---
 
 Este tango del excelente poeta recientemente fallecido, Héctor Negro (Ismael Héctor Varela), y el cantor Oscar D'Angelo, trata con fervor y talento, todas las cosas que fuimos perdiendo los argentinos por dictaduras, malos gobiernos y jueces y empresarios que fueron despreciando lo popular. El tango es uno de esos objetivos que consiguió sobrevivir a fuerza de talento y arraigo en la masa social. Lo enterraron varias veces, pero hoy está vivito y coleando.

@@ -3,6 +3,7 @@ title: "Histórico: Jorge Donn con Goyeneche"
 date: "2014-11-04"
 original_url: https://tangosalbardo.blogspot.com/2014/11/historico-jorge-donn-con-goyeneche.html
 labels: ""
+tags: ["Virgilio Expósito"]
 ---
 
 Entre ambos nos hicieron vivir un momento maravilloso en un programa de televisión. Jorge fue un bailarín único, que llenó los teatros más prestigiosos del mundos para admirar su arte. El encuentro de ambos ocurrió en el programa** Cordialmente**, que conducía Juan Carlos Mareco *Pinocho*, en el Canal público, y derivó en un instante lleno de emotividad, que caló hondo en los presentes y el público.

@@ -3,6 +3,7 @@ title: "Osvaldo Miranda y Discépolo"
 date: "2020-09-04"
 original_url: https://tangosalbardo.blogspot.com/2020/09/osvaldo-miranda-y-discepolo.html
 labels: ""
+tags: ["Enrique Santos Discépolo", "Aníbal Troilo", "Homero Manzi", "Raúl Berón"]
 ---
 
 Tengo muy buenos recuerdos de este gran comediante que protagonizó con su arte, películas, series de televisión y teatro. Estuvo toda una mañana en el programa radial "Dialogando con swing" que conducíamos con Osvaldo Papaleo por radio Argentina los domingos de 8 a 12.30 de la mañana. Y la realidad es que lo pasamos bomba porque también estuvo aquel día Fidel Pintos y Osvaldo le daba máquina y aparte nos contaba anécdotas de este cómico natural.  En la la charla que fuimos desglosando a lo largo del programa, Miranda también recordó aquella filmación de "Los vengadores" en Estados Unidos, con Fernando Lamas, Roberto Airaldi, él y Augusto Codecá. Las historias con Lamas eran realmente geniales y años más tarde se las hice repetir cuando nos reencontramos en una céntrica casa de cambio a la cual acudían varios futbolistas de Racing. Yo ya estaba radicado en Madrid, venía de visita y como había ido a cambiar dinero, aproveché que había unos cuantos del equipo albiceleste y le hice repetir las historias de Fernando Lamas. Los muchachos se quedaron encantados y pedían más.

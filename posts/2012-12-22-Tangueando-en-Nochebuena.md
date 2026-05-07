@@ -3,6 +3,7 @@ title: "Tangueando en Nochebuena"
 date: "2012-12-22"
 original_url: https://tangosalbardo.blogspot.com/2012/12/una-milonga-en-navidad.html
 labels: ""
+tags: ["Alfredo De Angelis", "Julio De Caro", "Pedro Laurenz", "Romeo Gavioli", "Carlos Dante"]
 ---
 
 A todos mis amigos/as tangueros/as y milongueros/as, de aquí, de acá, de allá y de acullá, los quiero envolver en un abrazo virtual, cálido y cariñoso en estas fechas en que nos sentimos más próximos los unos a los otros.

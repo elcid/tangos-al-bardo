@@ -3,6 +3,7 @@ title: "A mí me copa el tango"
 date: "2015-09-19"
 original_url: https://tangosalbardo.blogspot.com/2015/09/a-mi-me-copa-el-tango.html
 labels: ""
+tags: ["Alberto Echagüe", "Juan D'Arienzo"]
 ---
 
 Sí, lo cantaba Abel Córdoba con la orquesta de Pugliese, pero al margen, yo podría decir lo mismo que él y los hechos lo demuestran. Me deleito escuchando a algunas orquestas o cantores y cantantes, y ni te cuento, cuando la oreja, el cuore y las gambas me reclaman en la pista para bailarlo. El tango es único por todas las emociones que nos deja, en cualquiera de estas maneras que cito.

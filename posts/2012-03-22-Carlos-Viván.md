@@ -3,6 +3,7 @@ title: "Carlos Viván"
 date: "2012-03-22"
 original_url: https://tangosalbardo.blogspot.com/2012/03/carlos-vivan.html
 labels: ""
+tags: ["Juan Carlos Cobián", "Alberto Castillo", "Osvaldo Fresedo", "Julio De Caro", "Manuel Romero", "Pedro Maffia", "Juan Maglio"]
 ---
 
 Le dedicamos este espacio a un galán-cantor, de voz pequeña e incurable vibrato, que paseó sus artes de *torcan* y seductor por numerosos países: **Carlos Viván** (1903/1971)

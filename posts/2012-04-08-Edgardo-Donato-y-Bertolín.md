@@ -3,6 +3,7 @@ title: "Edgardo Donato y Bertolín"
 date: "2012-04-08"
 original_url: https://tangosalbardo.blogspot.com/2012/04/edgardo-donato-y-bertolin.html
 labels: ""
+tags: ["Francisco Lomuto", "Edgardo Donato", "Héctor Marcó"]
 ---
 
 Este violinista nacido en Buenos Aires, a una cuadra del Departamento de Policía, que vivió la niñez, la adolescencia y parte de su juventud en Montevideo, ocupa un lugar importante en la historia del tango, por haber compuesto uno de los cinco más famosos de todos los tiempos: **A media luz**.

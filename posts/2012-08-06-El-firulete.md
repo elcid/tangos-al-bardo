@@ -3,6 +3,7 @@ title: "El firulete"
 date: "2012-08-06"
 original_url: https://tangosalbardo.blogspot.com/2012/08/el-firulete.html
 labels: ""
+tags: ["Mariano Mores"]
 ---
 
 Es una de las tantas obras de Mariano Mores, extraordinario compositor de páginas memorables. Bastaría citar: *Uno, Cafetín de Buenos Aires, Tanguera, Cuartito azul o Taquito militar, El patio de la morocha, Cada vez que me recuerdes*, para colocarlo entre los grandes del género.

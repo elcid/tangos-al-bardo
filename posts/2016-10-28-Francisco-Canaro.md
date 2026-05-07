@@ -3,6 +3,7 @@ title: "Francisco Canaro"
 date: "2016-10-28"
 original_url: https://tangosalbardo.blogspot.com/2016/10/francisco-canaro.html
 labels: ""
+tags: ["Francisco Canaro", "Eduardo Arolas", "Horacio Salgán", "Roberto Firpo", "Ivo Pelay", "Charlo"]
 ---
 
 Cualquiera de esas superproducciones de Hollywood sobre los avatares de la vida de un famoso. O un libro de Dostoiewski ("*El secreto de la existencia no consiste solamente en vivir, sino en saber para qué se vive"*), encontraría en la trayectoria vital de este fenómeno, motivos de sobra para detallar munuciosa y gallardamente, las andanzas de un hombre que nació y creció en la más cruel miseria, junto a su ristra de hermanos y padres analfabetos y consiguió labrarse un lugar único y preponderante de la música, teatro y cine argentinos.

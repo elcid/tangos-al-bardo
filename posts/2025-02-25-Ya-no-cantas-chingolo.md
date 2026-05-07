@@ -3,6 +3,7 @@ title: "Ya no cantas chingolo"
 date: "2025-02-25"
 original_url: https://tangosalbardo.blogspot.com/2025/02/ya-no-cantas-chingolo.html
 labels: ""
+tags: ["Ignacio Corsini", "Ángel Vargas"]
 ---
 
 Ángel Vargas nos llena siempre el* cuore* con sus interpretaciones tan entrañables. La historia recuerda que Ángel D'Agostino había compuesto un tango que se mantenía inédito, titulado "*Pobre piba*", al que Cadícamo le pondría letra en 1940, con el título: "*Tres esquinas*". Aludía al cruce de las calles Montes de Oca y Osvaldo Cruz en el barrio de Barracas y al café llamado "*Tres esquinas*", luego "*Cabo Fels*".

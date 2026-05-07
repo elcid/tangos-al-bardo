@@ -3,6 +3,7 @@ title: "Que te importe que te llore"
 date: "2015-11-20"
 original_url: https://tangosalbardo.blogspot.com/2015/11/que-te-importe-que-te-llore.html
 labels: ""
+tags: ["José María Contursi", "Domingo Federico", "Armando Pontier", "Homero Expósito", "Osmar Maderna", "Julián Plaza", "Miguel Caló", "Raúl Berón"]
 ---
 
 Lo hemos bailado mil veces con la orquesta de Miguel Caló y la voz inigualable de Raúl Berón sublimando los versos, pero nos sigue dando un golpecito en el cuore cuando lo escuchamos o lo bailamos. Es de lo mejor que grabó Caló en su extensísima obra llevada al disco. Tiene todos los ingredientes para emocionar y el milagro de Osmar Maderna llevándonos en vilo desde su piano mágico, chopiniano.

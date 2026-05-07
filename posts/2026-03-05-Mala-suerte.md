@@ -3,6 +3,7 @@ title: "Mala suerte"
 date: "2026-03-05"
 original_url: https://tangosalbardo.blogspot.com/2026/03/mala-suerte.html
 labels: ""
+tags: ["Francisco Gorrindo", "Francisco Lomuto", "Roberto Grela"]
 ---
 
 Francisco Gorrindo y Francisco Lomuto crearon este tango en 1939, y éste último lo grabó inmediatamente con su orquesta y el cantor Jorge Omar. El quilmeño Gorrindo, que nunca abandonó su barrio, tenía 31 años cuando se mandó estos versos que trillan sobre el desencuentro de la pareja, por la afición del "calavera" que nunca quiso abandonar su tránsito nochero.

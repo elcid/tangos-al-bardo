@@ -3,6 +3,7 @@ title: "Tinta verde"
 date: "2017-12-11"
 original_url: https://tangosalbardo.blogspot.com/2017/12/tinta-verde.html
 labels: ""
+tags: ["Luis Adolfo Sierra", "Víctor Lavallén", "Eduardo Arolas", "Aníbal Troilo", "Agustín Bardi", "Lucio Demare"]
 ---
 
 Hoy, 11 de diciembre es el **Día Nacional del Tango** en Argentina, y por extensión se lo celebra en infinidad de países del mundo, donde ha ido haciendo *pata ancha*. He pensado en algún prócer del tango para unirlos a De Caro y Gardel, por cuyas fechas de nacimiento se ha escogido este día de festejo y creo que Agustín *Chino* Bardi, es ideal para traerlo a la palestra en la jornada de hoy.

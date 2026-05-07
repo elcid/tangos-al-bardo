@@ -3,6 +3,7 @@ title: "Jorge Falcón"
 date: "2012-04-26"
 original_url: https://tangosalbardo.blogspot.com/2012/04/jorge-falcon.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Héctor Varela", "Jorge Caldara", "Alberto Morán"]
 ---
 
 Un cantor enorme, intimista, de hermosa voz y entonación.Un artista pintón, nacido en el barrio de Parque Chacabuco, en Buenos Aires, que pasó por varias formaciones hasta que entró en la orquesta de Héctor Varela, donde alcanzó la consagración con su gran capacidad interpretativa, y con quien debutó en los años setenta.

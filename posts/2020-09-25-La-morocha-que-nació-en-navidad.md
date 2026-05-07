@@ -3,6 +3,7 @@ title: "La morocha que nació en navidad"
 date: "2020-09-25"
 original_url: https://tangosalbardo.blogspot.com/2020/09/la-morocha-que-nacio-en-navidad.html
 labels: ""
+tags: ["Azucena Maizani", "Vicente Greco"]
 ---
 
 Enrique Saborido, de origen uruguayo, traído a Buenos Aires por sus padres a los dos años, contaba unos 28 cuando ya se destacaba como uno de los buenos pianistas del tango. Entre otros lugares, frecuentaba el Bar Reconquista, en la esquina de Lavalle y Reconquista, conocido más popularmente como "lo de Ronchetti". En ese lugar —donde solía actuar—, estaba el autor de 'Felicia' en la Nochebuena de 1905, brindando en una mesa con un bullicioso grupo de jóvenes amigos y con una compatriota, tiple y bailarina: Lola Candales, una bella morocha. Como Saborido se dedicaba especialmente a ella, sus compañeros no tardaron en advertirlo y dispararle algunas bromas.

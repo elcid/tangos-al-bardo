@@ -3,6 +3,7 @@ title: "Los tangos de Arolas"
 date: "2012-03-24"
 original_url: https://tangosalbardo.blogspot.com/2012/03/los-tangos-de-arolas.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Ismael Spitalnik", "Carlos Di Sarli", "Eduardo Arolas", "Mario Demarco"]
 ---
 
 El mes pasado se cumplieron** **120 años del nacimiento del - para mí- más grande compositor que ha dado el tango en su historia: Eduardo Arolas.

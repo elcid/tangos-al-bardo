@@ -3,6 +3,7 @@ title: "Mariposas en la pista"
 date: "2021-11-20"
 original_url: https://tangosalbardo.blogspot.com/2021/11/mariposas-en-la-pista.html
 labels: ""
+tags: ["Osvaldo Pugliese"]
 ---
 
 Tenían un amor oculto y razones muy privadas para mantenerlo así. No se trababa de engañar una esposa, ni a ningún novio o marido. Eran libres pero pensaban que su amor no tenía porqué importarle a nadie. Por lo menos, así pensaban ellos, pero el ímpetu de la relación era tal, que cada vez se les hacía más difícil el disimulo.

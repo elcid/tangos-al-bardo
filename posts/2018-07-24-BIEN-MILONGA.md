@@ -3,6 +3,7 @@ title: "BIEN MILONGA"
 date: "2018-07-24"
 original_url: https://tangosalbardo.blogspot.com/2018/07/bien-milonga_24.html
 labels: ""
+tags: ["Francisco Canaro", "Alberto Marino", "Aníbal Troilo", "Enrique Dizeo"]
 ---
 
 *Tango milongón *

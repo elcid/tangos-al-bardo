@@ -3,6 +3,7 @@ title: "La Típica Victor"
 date: "2016-06-15"
 original_url: https://tangosalbardo.blogspot.com/2016/06/la-tipica-victor.html
 labels: ""
+tags: ["Enrique Cadícamo", "Adolfo Carabelli", "Carlos Di Sarli", "Luis Petrucelli", "Agustín Magaldi", "Mercedes Simone", "Julio De Caro", "Ángel Vargas"]
 ---
 
 Una feliz ocurrencia de algún directivo del sello RCA Victor permitió crear esta orquesta modélica, allá por el año 1925, con músicos extraídos de las distintas orquestas que grababan en el sello del perrito. Curiosamente, la orquesta sólo tuvo posibilidad de expresarse en las grabaciones, dado que nunca actuarían en público y sus integrantes podían cambiar constantemente debido a las distintas ocupaciones que tenían con sus respectivas orquestas en las cuales cumplían sus roles diarios.

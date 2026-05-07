@@ -3,6 +3,7 @@ title: "El tano Puglisi"
 date: "2014-04-21"
 original_url: https://tangosalbardo.blogspot.com/2014/04/el-tano-puglisi.html
 labels: ""
+tags: ["Juan Carlos Cobián", "Francisco Canaro", "Enrique Delfino", "Juan D'Arienzo", "Julio De Caro", "Roberto Firpo", "Orlando Goñi"]
 ---
 
 Fue una figura familiar en la orquesta de Juan D'Arienzo, con esos largos solos y el sonido que emitía su violín conocido como "*la vaca"* en el ambiente. Sus solos los reservaba D'Arienzo para las tesituras graves, y aunque para los expertos se reducía notablemente su talento, y era la contrafigura de lo que él había aspirado como músico maravillosamente dotado; para los bailarines, esa mezcla con los *staccattos* de los bandoneones y la marcación permanente del piano, nos parecía genial.

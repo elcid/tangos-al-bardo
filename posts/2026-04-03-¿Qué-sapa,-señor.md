@@ -3,6 +3,7 @@ title: "¿Qué sapa, señor?"
 date: "2026-04-03"
 original_url: https://tangosalbardo.blogspot.com/2026/04/que-sapa-senor.html
 labels: ""
+tags: ["Enrique Santos Discépolo", "Francisco Canaro", "Charlo"]
 ---
 
 La catilinaria discepoleana se vuelca en este tango, compuesto en 1931, y que pinta la situación política-económica que vivía Argentina, desde el golpe de estado que el 6 de septiembre de 1930 derrocaría al gobierno presidido por Hipólito Yrigoyen. Casi todas las provincias habían sido intervenidas durante el mandato de Yrigoyen.

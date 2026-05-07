@@ -3,6 +3,7 @@ title: "¡A Galicia con el Tango!"
 date: "2019-12-13"
 original_url: https://tangosalbardo.blogspot.com/2019/12/a-galicia-con-el-tango.html
 labels: ""
+tags: ["José María Otero"]
 ---
 
 [](https://www.facebook.com/SanTango/#)

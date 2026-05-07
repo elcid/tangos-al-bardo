@@ -3,6 +3,7 @@ title: "El Negro Gutiérrez"
 date: "2012-11-28"
 original_url: https://tangosalbardo.blogspot.com/2012/11/el-negro-gutierrez.html
 labels: ""
+tags: ["Alfredo De Angelis", "Francisco Canaro", "Osvaldo Pugliese", "Edgardo Donato", "Julio De Caro", "Pedro Maffia", "Manuel Buzón"]
 ---
 
 Así se le conoció en el ambiente tanguero al cantor Félix Gutiérrez que alternó con éxito en varias orquestas y dejó algunos temas valiosos, aunque no supo o no quiso proyectarse con más éxito.

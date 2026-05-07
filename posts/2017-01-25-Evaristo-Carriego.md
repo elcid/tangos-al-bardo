@@ -3,6 +3,7 @@ title: "Evaristo Carriego"
 date: "2017-01-25"
 original_url: https://tangosalbardo.blogspot.com/2017/01/evaristo-carriego.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Cátulo Castillo", "Homero Manzi"]
 ---
 
 Nació en Paraná, Entre Ríos, pero se crió en el barrio porteño de Palermo, cuando prevalecían las calles de tierra en la vieja casaquinta de Rosas, y algunas arterias estaban precariamente asfaltadas. Su casa de la calle Honduras le permitió disfrutar el paisaje del barrio, los personajes y situaciones que reflejaría en sus versos, como la amistad temprana con caudillos políticos de peso y el taita de acero fácil conocido como Juan Muraña con quien llegó a mantener una relación cordial.

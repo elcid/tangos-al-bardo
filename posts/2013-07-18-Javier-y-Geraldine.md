@@ -3,6 +3,7 @@ title: "Javier y Geraldine"
 date: "2013-07-18"
 original_url: https://tangosalbardo.blogspot.com/2013/07/javier-y-geraldine.html
 labels: ""
+tags: ["Mariano Mores"]
 ---
 
 La belleza me puede. Cada tanto traigo a parejas profesionales para mover un poco el esqueleto del blog, y la yunta tan recordada de Javier Rodríguez-Geraldine Rojas, siguen siendo la maravilla que nos reclama el alma para recrearnos en la perfección de su arte.

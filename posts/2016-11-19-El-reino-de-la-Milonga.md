@@ -3,6 +3,7 @@ title: "El reino de la Milonga"
 date: "2016-11-19"
 original_url: https://tangosalbardo.blogspot.com/2016/11/soy-muchacho-de-la-guardia-tango-dame.html
 labels: ""
+tags: ["Alfredo De Angelis", "Juan D'Arienzo", "Héctor Marcó"]
 ---
 
 * "Soy muchacho de la guardia*

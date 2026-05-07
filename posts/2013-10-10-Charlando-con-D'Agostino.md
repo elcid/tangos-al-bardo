@@ -3,6 +3,7 @@ title: "Charlando con D'Agostino"
 date: "2013-10-10"
 original_url: https://tangosalbardo.blogspot.com/2013/10/charlando-con-dagostino.html
 labels: ""
+tags: ["Ángel Vargas"]
 ---
 
 Alguna vez conté que el autor de esa hermosa acuarelita porteña: *Tres esquinas* (junto a Cadícamo y Attadia en las variaciones), venía a veces al Diario *La Razón* a buscar a su sobrino, Coco (Rafael D'Agostino) que cubría con sus compañeros Luis Pedro Toni y* el gordo* Formento, los chimentos de televisión en la última página de dicho vespertino , donde fuimos compañeros varios años, aunque yo estaba en Deportes. Pero solíamos darnos una vueltita por el *Maipo* o el *El Nacional* con Coco y me mataba de risa con sus salidas espontáneas, su caradurismo y su chispa, con vedettes y cómicos.

@@ -3,6 +3,7 @@ title: "BIEN MILONGA"
 date: "2015-05-23"
 original_url: https://tangosalbardo.blogspot.com/2015/05/bien-milonga_23.html
 labels: ""
+tags: ["Homero Manzi"]
 ---
 
 El realidad, donde se va a armar flor de milonga va a ser mañana en las urnas españolas que determinarán si hay cambios políticos o se mantienen las mismas estructuras. Los comicios será solamente a nivel municipal y provincial, pero hay grandes expectativas y nada mejor que darnos un baño de tangos, milongas y valsecitos esta noche y así estar ágiles de mente domani, antes de introducir la papeleta en el cajoncito de cartón.

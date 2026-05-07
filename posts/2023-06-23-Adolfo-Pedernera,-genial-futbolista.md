@@ -3,6 +3,7 @@ title: "Adolfo Pedernera, genial futbolista "
 date: "2023-06-23"
 original_url: https://tangosalbardo.blogspot.com/2023/06/adolfo-pedernera-recuerda-su-epoca.html
 labels: ""
+tags: ["Celedonio Flores", "Juan D'Arienzo", "Floreal Ruiz"]
 ---
 
 ** recuerda su época: **

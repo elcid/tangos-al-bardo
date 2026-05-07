@@ -3,6 +3,7 @@ title: "Flor campera"
 date: "2023-04-26"
 original_url: https://tangosalbardo.blogspot.com/2023/04/flor-campera.html
 labels: ""
+tags: ["José María Aguilar", "Aníbal Troilo", "Carlos Gardel", "Jorge Casal"]
 ---
 
 Este tango nos recuerda a su autor, el payador oriental Juan Pedro López, que naciera en Canelones en 1985. Fue reconocido como *El padre de los payadores * por sus notables dotes de improvisar cantando. Además en su curiosa biografía, destacan hechos como el de haber trabajado de estibador en el puerto de Montevideo y también su dedicación al boxeo.

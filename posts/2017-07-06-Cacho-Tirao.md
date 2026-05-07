@@ -3,6 +3,7 @@ title: "Cacho Tirao"
 date: "2017-07-06"
 original_url: https://tangosalbardo.blogspot.com/2017/07/cacho-tirao.html
 labels: ""
+tags: ["Astor Piazzolla", "Rodolfo Mederos", "Mariano Mores", "Cacho Tirao"]
 ---
 
 Oscar Emilio Tirao, nacido en Berazatagui (Buenos Aires), el 5 de abril de 1941, falleció en Buenos Aires el 30 de mayo de 2007. Dio conciertos en todo el mundo, acompañó a grandes artistas, fue un guitarrista excepcional y formó en el célebre quinteto de Astor Piazzolla.

@@ -3,6 +3,7 @@ title: "Cafetín de Buenos Aires"
 date: "2022-08-29"
 original_url: https://tangosalbardo.blogspot.com/2022/08/cafetin-de-buenos-aires.html
 labels: ""
+tags: ["Enrique Santos Discépolo", "Roberto Goyeneche", "Hugo del Carril", "Edmundo Rivero", "Aníbal Troilo", "Mariano Mores", "Nelly Omar"]
 ---
 
 Para nosotros, el Café de barrio fue siempre el punto de reunión de la barra. En esa mesas aprendimos a jugar al truco, al mus, el tresiete y todos aquellos entretenimientos de naipes que trajeron los inmigrantes *gallegos* y *tanos*. Pero además sirvió para preparar el partido de fútbol que tendríamos el sábado o el domingo, el encuentro antes de partir en grupo a la milonga, la cancha, o para recordar las anécdotas del fin de semana.

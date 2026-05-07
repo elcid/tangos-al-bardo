@@ -3,6 +3,7 @@ title: "El Turco Chanel"
 date: "2013-01-05"
 original_url: https://tangosalbardo.blogspot.com/2013/01/el-turco-chanel.html
 labels: ""
+tags: ["Francisco García Jiménez", "Virgilio Expósito", "Osvaldo Pugliese"]
 ---
 
 Por esa costumbre que tenemos los argentinos de meterle apodos a todo el que respira, le llamaron *Turco* por la forma de su nariz, y su rostro moreno. Pero era hijo de napolitanos y se llamaba Alfredo Mazzochi.

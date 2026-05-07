@@ -3,6 +3,7 @@ title: "La victrolera"
 date: "2015-12-02"
 original_url: https://tangosalbardo.blogspot.com/2015/12/la-victrolera.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Mercedes Simone", "Armando Pontier"]
 ---
 
 Fue uno, en realidad: una, de los personajes que reinaban en los cafés porteños entre los años veinte y cuarenta. Era ella, la victrolera o vitrolera, encargada de poner los discos de 78 rpm, en aquellos sitios de descanso, de charleta y de reunión que tenían los porteños. También en algunos de esos cafés, tocaban tríos, cuartetos, o pequeñas orquestas que amenizaban esos ratos de ocio, y los había en casi todos los barrios de aquella Buenos Aires.

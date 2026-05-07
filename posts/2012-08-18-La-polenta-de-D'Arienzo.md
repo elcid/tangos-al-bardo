@@ -3,6 +3,7 @@ title: "La polenta de D'Arienzo"
 date: "2012-08-18"
 original_url: https://tangosalbardo.blogspot.com/2012/08/la-polenta-de-darienzo.html
 labels: ""
+tags: ["Fulvio Salamanca", "Julio De Caro"]
 ---
 
 No me canso de reprochar a nuestros historiadores de tango, el que hayan echado tantas sombras sobre este músico y sus diferentes formaciones.

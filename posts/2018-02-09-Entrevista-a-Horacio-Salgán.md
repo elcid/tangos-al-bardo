@@ -3,6 +3,7 @@ title: "Entrevista a Horacio Salgán"
 date: "2018-02-09"
 original_url: https://tangosalbardo.blogspot.com/2018/02/entrevista-horacio-salgan.html
 labels: ""
+tags: ["Roberto Goyeneche", "Horacio Salgán", "Agustín Bardi", "Julio De Caro", "Pedro Laurenz", "Roberto Firpo"]
 ---
 
 ****Hay nombres que son definiciones. Salgán - Horacio Adolfo Salgán- significa una de las mayores personalidades de nuestra música popular, hacedor de un estilo original, expresivamente propio, rico en ideas innovadoras que aún gravitan en compositores, músicos, orquestadores y arregladores de nuestro tiempo.  Gentilmente accedió a este reportaje de **Club de Tango** para su serie de entrevistas a compositores, arregladores y orquestadores de primera magnitud.  **

@@ -3,6 +3,7 @@ title: "Homenaje a Osvaldo Pugliese"
 date: "2014-02-17"
 original_url: https://tangosalbardo.blogspot.com/2014/02/homenaje-osvaldo-pugliese.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Daniel Binelli"]
 ---
 
 Hay que empezar la semana yumbeando hacia el futuro, pero recreándonos con el pasado inmediato que nos permite apreciar la grandeza y los pilares de nuestro tango. Osvaldo Pugliese fue un tipo que dedicó su vida y su corazón al tango y por eso lo siguieron a muerte las barras porteñas que constituían su hinchada. Como si se tratase de un equipo de fútbool.

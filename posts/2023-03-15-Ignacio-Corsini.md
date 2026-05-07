@@ -3,6 +3,7 @@ title: "Ignacio Corsini"
 date: "2023-03-15"
 original_url: https://tangosalbardo.blogspot.com/2023/03/ignacio-corsini.html
 labels: ""
+tags: ["Ignacio Corsini", "Carlos Gardel"]
 ---
 
 ###  El príncipe del tango

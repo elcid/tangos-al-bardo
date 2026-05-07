@@ -3,6 +3,7 @@ title: "Los dos ángeles del tango"
 date: "2013-02-18"
 original_url: https://tangosalbardo.blogspot.com/2013/02/los-dos-angeles-del-tango.html
 labels: ""
+tags: ["Ángel Vargas"]
 ---
 
 Este binomio talló fuerte entre las huestes milongueras, en la época dorada del tango porque aportaba todos los nutrientes necesarios para el lucimiento del bailarín. Y a tantos años de la desaparición de la orquesta y el cantor, sus grabaciones siguen embauladas en un rincón del cuore, recuperando el sabor de aquellas épocas.

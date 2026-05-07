@@ -3,6 +3,7 @@ title: "Amor y tango"
 date: "2015-09-26"
 original_url: https://tangosalbardo.blogspot.com/2015/09/amor-y-tango.html
 labels: ""
+tags: ["Alfredo De Angelis", "Donato Racciatti", "Carlos Dante", "Carlos Bahr"]
 ---
 
 Esta noche tengo **BIEN MILONGA** y estoy armando la música que bailaremos en la pista de la Casa de Aragón, de Madrid. Una música que me remite a tantísimas milongas que he recorrido en mi vida y que las sintetizo en los martes y sábados que disfrutamos a rolete, en esta Casa a partir de las 21 horas. Le han dedicado muchos tangos, milongas y valsecitos a todo lo que sucede durante el baile, la pasión que se pone en el mismo y, a veces, hasta ese romance que dejará una huella profunda en la pareja, tocada por la varita mágica del amor. Ese gran poeta tanguero que fué Carlos Bahr lo sintetizaba así en el tango del título.

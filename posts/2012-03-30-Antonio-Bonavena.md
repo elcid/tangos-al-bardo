@@ -3,6 +3,7 @@ title: "Antonio Bonavena"
 date: "2012-03-30"
 original_url: https://tangosalbardo.blogspot.com/2012/03/antonio-bonavena.html
 labels: ""
+tags: ["Alfredo De Angelis", "Antonio Bonavena", "Roberto Rufino", "Horacio Ferrer", "Aníbal Troilo", "Julio Martel", "Lito Bayardo"]
 ---
 
 A veces, escuchando algunas grabaciones en el desorden de mi discoteca, aparecen cosas que han quedado sepultadas ante la avalancha de material discográfico que nos ha invadido.

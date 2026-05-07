@@ -3,6 +3,7 @@ title: "El Chantecler, emblema del pasado en Buenos Aires"
 date: "2020-07-18"
 original_url: https://tangosalbardo.blogspot.com/2020/07/el-chantecler-emblema-del-pasado-en.html
 labels: ""
+tags: ["Enrique Santos Discépolo", "Antonio Bonavena", "Joaquín Do Reyes", "Celedonio Flores", "Carlos Di Sarli", "Luis Petrucelli", "Armando Pontier", "Alberto Echagüe"]
 ---
 
 En diciembre de 1924 se inauguró el Chantecler, situado en la calle Paraná 440, entre Corrientes y Lavalle, lindando con el Teatro Comedia.

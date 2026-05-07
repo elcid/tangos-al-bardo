@@ -3,6 +3,7 @@ title: "Alberto Podestá"
 date: "2015-12-16"
 original_url: https://tangosalbardo.blogspot.com/2015/12/alberto-podesta.html
 labels: ""
+tags: ["Francisco Pracánico", "Domingo Federico", "Carlos Di Sarli", "Alberto Podestá", "Hugo del Carril", "Roberto Rufino", "Edgardo Donato", "Osmar Maderna"]
 ---
 
 Nos dejó hace unos días, después de una vida entera dedicada al tango, ya que con 14 años, ya cantaba en su provincia de San Juan. Alejandro Wáshington Alé, el turquito, que pasó por varias orquestas, dejando en todas su impronta, especialmente en la de Carlos Di Sarli, con versiones que nos siguen iluminando en las interminables noches milongueras. Es muy lindo repasar los recuerdos de una vida dedicada al tango, contados por él mismo.

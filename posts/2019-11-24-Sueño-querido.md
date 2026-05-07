@@ -3,6 +3,7 @@ title: "Sueño querido"
 date: "2019-11-24"
 original_url: https://tangosalbardo.blogspot.com/2019/11/sueno-querido.html
 labels: ""
+tags: ["Roberto Goyeneche", "Mario Battistella", "Alfredo Le Pera", "Horacio Salgán"]
 ---
 
 Con este tango me gusta recordar una vez más a ese increíble poeta, escritor, traductor y autor de obras teatrales que fue Mario Battistella. Tal vez no se le haya dado la importancia que realmente tuvo en la historia del tango este hombre nacido en un pueblo de Verona (Italia), al que que le gustaba la vida artística, la bohemia aventurera de los viajes, la música y que despegó pronto de la casa paterna.

@@ -3,6 +3,7 @@ title: "Luis Bayón Herrera"
 date: "2018-02-12"
 original_url: https://tangosalbardo.blogspot.com/2018/02/luis-bayon-herrera.html
 labels: ""
+tags: ["Luis Bayón Herrera", "Osvaldo Pugliese", "Edgardo Donato", "Alfredo Belusi", "Carlos Gardel", "Julio De Caro", "Pedro Laurenz", "Manuel Romero"]
 ---
 
 Este vasco, nacido en Bilbao y llegado joven a Buenos Aires, incursionó con mucho éxito en el teatro y cine argentinos, muy adaptado al medio, al clima porteño y a las noches del centro, con cena post-teatro y actuaciones. Intimó y filmó con figuras del tango, con Gardel y también escribió algunas páginas que le dieron renombre como poeta. Éste era el rubro que merodeó en la capital del Plata, y la revista *Nosotros* fue la recipiendaria de los poemas iniciales que publicaría en aquellas páginas.

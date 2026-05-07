@@ -3,6 +3,7 @@ title: "Música para la milonga"
 date: "2023-09-18"
 original_url: https://tangosalbardo.blogspot.com/2023/09/musica-para-la-milonga.html
 labels: ""
+tags: ["Enrique Rodríguez", "Osvaldo Pugliese", "Osvaldo Zotto", "Orlando Goñi"]
 ---
 
 Esta nota proviene de la charla que tuve con una pareja milonguera, sobre el tango en la pista y su maciza identidad. Entonces aparecieron esas pinceladas y el cromatismo musical que nos impulsa en la noche. Oteaban ellos las costumbres de algunos *discjockeys* sobre la música que desgranaban en el recinto bailable y criticaban las elecciones de unos y otros.

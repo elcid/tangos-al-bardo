@@ -3,6 +3,7 @@ title: "El brujo del bandoneón"
 date: "2017-09-28"
 original_url: https://tangosalbardo.blogspot.com/2017/09/el-brujo-del-bandoneon.html
 labels: ""
+tags: ["Francisco García Jiménez", "Francisco Pracánico", "Alfredo De Angelis", "Francisco Canaro", "Enrique Delfino", "Eduardo Arolas", "Juan D'Arienzo", "Aníbal Troilo"]
 ---
 
 Así le llamaron a Anselmo Aieta por las diabluras que dibujaba en su fueye, aunque fuese un autodidacto e intuitivo, pero genial, claro. Su figura ocupa un espacio grande en la historia del tango, no sólo como músico y director, sino incluso, en su principal y fundamental faceta de compositor. La obra de este bandoneonista supera a la de muchos músicos mejor preparados, por la calidad que atesoró y su permanencia en los atriles de orquestas y cantantes de ambos géneros.

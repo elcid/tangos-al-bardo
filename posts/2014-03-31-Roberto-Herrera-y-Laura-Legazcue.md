@@ -3,6 +3,7 @@ title: "Roberto Herrera y Laura Legazcue"
 date: "2014-03-31"
 original_url: https://tangosalbardo.blogspot.com/2014/03/roberto-herrera-y-laura-legazcue.html
 labels: ""
+tags: ["José María Contursi", "Leopoldo Federico", "Juan Carlos Copes", "Osvaldo Pugliese", "Horacio Ferrer", "María Graña", "Juan Maglio"]
 ---
 
 Él es reconocido en el mundo como uno de los más grandes bailarines de tango. En la pista o el escenario su sello es nítidamente milonguero, pero su creatividad y dominio de la escena, le permiten improvisar permanentemente, aún sobre las coreografías creadas para cada tema que interpreta con su pareja de turno y constituye con ella/s un espectáculo fuera de lo común.

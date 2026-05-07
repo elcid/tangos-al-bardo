@@ -3,6 +3,7 @@ title: "Cuartito azul"
 date: "2012-05-11"
 original_url: https://tangosalbardo.blogspot.com/2012/05/cuartito-azul.html
 labels: ""
+tags: ["Francisco Canaro", "Osvaldo Fresedo", "Ignacio Corsini", "Aníbal Troilo", "Roberto Firpo", "Ricardo Ruiz"]
 ---
 
 Fue el tango que lanzó a la popularidad a un jovencito que había mostrado sus blasones en España, merced a una beca, hasta que los inicios de la guerra civil lo devolvieron a su Buenos Aires.

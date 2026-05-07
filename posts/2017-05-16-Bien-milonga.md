@@ -3,6 +3,7 @@ title: "Bien milonga"
 date: "2017-05-16"
 original_url: https://tangosalbardo.blogspot.com/2017/05/bien-milonga_16.html
 labels: ""
+tags: ["Alberto Marino", "Aníbal Troilo", "Héctor Varela"]
 ---
 
 [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEim_aBeKxnoa2Ao8sYWV58mTViiULCYnS6suXFG6KAQHzy8qvR9o8kLN0e3NryXQxqZ9_jsjrBQywptyT1KghiWyZWsdI48Ii6bU4MH-gBPxYksp0-avxOypx5kOc-4gDteb3oZ3MhG5TI0/s200/pareja-bailando-tango-piernas.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEim_aBeKxnoa2Ao8sYWV58mTViiULCYnS6suXFG6KAQHzy8qvR9o8kLN0e3NryXQxqZ9_jsjrBQywptyT1KghiWyZWsdI48Ii6bU4MH-gBPxYksp0-avxOypx5kOc-4gDteb3oZ3MhG5TI0/s1600/pareja-bailando-tango-piernas.jpg) *¿Quien fue el raro bicho *

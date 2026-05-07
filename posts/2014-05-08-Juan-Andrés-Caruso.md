@@ -3,6 +3,7 @@ title: "Juan Andrés Caruso"
 date: "2014-05-08"
 original_url: https://tangosalbardo.blogspot.com/2014/05/juan-andres-caruso.html
 labels: ""
+tags: ["José González Castillo", "Juan Andrés Caruso", "Francisco Canaro", "Francisco Lomuto", "Pascual Contursi", "Ricardo Tanturi", "Homero Expósito", "Agustín Bardi"]
 ---
 
 Vivió apenas cuarenta años y le dio tiempo para ser un destacado comediógrafo, periodista, y uno de los mas prolíficos letristas de tango. En este sentido bastaría con decir que fue el autor más cantado por Gardel. Nada menos que 39 obras suyas figuras en la discografía del máximo cantor. Y entre ellos, algunos tan logrados como: *Cascabelito, Tierrita, La garçonniere, La brisa, Se acabaron los otarios, Sentimiento gaucho, Desengaño, La última copa* o *El piccolo navío*.

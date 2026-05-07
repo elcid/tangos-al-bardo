@@ -3,6 +3,7 @@ title: "El Polaco con Baffa-Berlinghieri"
 date: "2014-12-11"
 original_url: https://tangosalbardo.blogspot.com/2014/12/el-polaco-con-baffa-berlinghieri.html
 labels: ""
+tags: ["Roberto Goyeneche", "Mario Battistella", "Osvaldo Pugliese", "Homero Expósito", "Alberto Marino", "Horacio Salgán", "Aníbal Troilo", "Raúl Garello"]
 ---
 
 Ya era el gran solista, el cantor de las noches y madrugadas de Buenos Aires, el que acompasaba sus frases llenas de música y barrio, con el compás que marcaba su pie derecho. El que contaba en lugar de cantar, pero ¡cómo lo contaba! Su presencia en el escenario era algo mágico, un rito, metiéndose adentro de la letra, arengando al fueye, colocando las comas, los puntos, los signos de admiración o interrogación que están escritos en el poema. Inventándole un nuevo tono a cada tango.

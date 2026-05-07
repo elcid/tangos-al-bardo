@@ -3,6 +3,7 @@ title: "Nestor Fabián"
 date: "2017-09-15"
 original_url: https://tangosalbardo.blogspot.com/2017/09/nestor-fabian.html
 labels: ""
+tags: ["José María Contursi", "Juan Carlos Copes", "Atilio Stampone", "Néstor Fabián", "Mariano Mores", "Julio Sosa"]
 ---
 
 Apareció con su pinta, su voz y su desparpajo allá por el año 1961 y arrancó ganando. Con la orquesta de Mariano Mores, nada menos, y 40 músicos, en el programa de televisión *Luces de Buenos Aires*. No lo conocía prácticamente nadie, aunque desde chiquito siempre cantó, sin profesores, sólo porque le gustaba, era intuitivo y el tango estaba en los adoquines, donde se crió.

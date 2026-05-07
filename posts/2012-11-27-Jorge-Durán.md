@@ -3,6 +3,7 @@ title: "Jorge Durán"
 date: "2012-11-27"
 original_url: https://tangosalbardo.blogspot.com/2012/11/jorge-duran.html
 labels: ""
+tags: ["Francisco García Jiménez", "Carlos Di Sarli", "Alberto Podestá", "Edmundo Rivero", "Jorge Durán", "José Basso"]
 ---
 
 Fue una de las grandes voces que tuvo el tango en las décadas del cuarenta y cincuenta. Su registro de barítono, con una gran polenta interior para acentuar los diversos matices de los temas que interpretaba, le dieron justa fama entre la gente del ambiente.

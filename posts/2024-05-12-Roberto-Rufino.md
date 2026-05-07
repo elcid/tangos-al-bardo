@@ -3,6 +3,7 @@ title: "Roberto Rufino"
 date: "2024-05-12"
 original_url: https://tangosalbardo.blogspot.com/2024/05/roberto-rufino.html
 labels: ""
+tags: ["Cátulo Castillo", "Roberto Rufino"]
 ---
 
 -Troilo vivía a dos cuadras de mi casa, en Soler entre Gallo y Agüero. Un día me mandó a llamar y me encontré con varios de sus músicos. . Doña Felisa, la mamá del Gordo, estaba cebando mate. Nos saludamos y me arrimaron media docena de temas. ¡Era una prueba!. Recuerdo que arranqué con *"Farolito de papel*". Yo dejé el alma en el estribillo.... *"Solo quedé... yo no tenía más que a vos...*".

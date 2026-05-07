@@ -3,6 +3,7 @@ title: "Últimos momentos de Gardel "
 date: "2016-06-24"
 original_url: https://tangosalbardo.blogspot.com/2016/06/los-ultimos-momentos-de-gardel-en.html
 labels: ""
+tags: ["Francisco García Jiménez", "José María Aguilar", "Alfredo Le Pera", "Carlos Gardel", "Tita Merello"]
 ---
 
 Hoy se cumplen 81 años desde aquel día aciago en que Carlos Gardel, Alfredo le Pera, Guillermo Barbieri, morían en el terrible accidente aéreo sobre la ciudad de Medellín, Colombia. Dos días más tarde era Angel Domingo Riverol, otro guitarrista del *Morocho*, el que fallecía por no recuperarse de las terribles quemaduras. Como en todos los 24 de junio, Gardel emerge del posible olvido y lo recuerdan, homenajeándolo en Argentina y en otros países de América, donde era ídolo de masas.

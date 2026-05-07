@@ -3,6 +3,7 @@ title: "Milonga de mis amores"
 date: "2015-07-15"
 original_url: https://tangosalbardo.blogspot.com/2015/07/milonga-de-mis-amores.html
 labels: ""
+tags: ["José María Contursi", "Francisco Canaro", "Pedro Laurenz", "Anselmo Aieta", "Hugo Díaz", "Charlo"]
 ---
 
 A raíz del tango de Pedro Laurenz que publiqué hace un par de días, tuve varias conversaciones con tangueros y estuvimos charlando de lo que fue este genio del bandoneón y de la composición, y aprovechamos para recrear algunas de sus creaciones más felices, que fueron unas cuantas. Bastaría con citar *Amurado* (con Maffia),* Mala junta* (con De Caro, aunque hay muchas dudas al respecto, en el ambiente), *Vieja amiga, Como dos extraños* (ambas con el Catunga), *La revancha* o *De puro guapo* para valorar su genio.

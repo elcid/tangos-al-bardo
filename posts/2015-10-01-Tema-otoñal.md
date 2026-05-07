@@ -3,6 +3,7 @@ title: "Tema otoñal"
 date: "2015-10-01"
 original_url: https://tangosalbardo.blogspot.com/2015/10/tema-otonal.html
 labels: ""
+tags: ["Aníbal Troilo", "Alfredo Gobbi"]
 ---
 
 La estación que sucede al verano y antecede al invierno, es seguramente, la más parejita y linda de Madrid. Como estamos a 600 metros de altura sobre el nivel del mar, el solcito que tenemos en estos meses calienta la osamenta y es lindo pasarla "campaneando un cacho'e sol en la vedera..."

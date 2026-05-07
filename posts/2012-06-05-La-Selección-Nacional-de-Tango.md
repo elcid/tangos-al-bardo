@@ -3,6 +3,7 @@ title: "La Selección Nacional de Tango"
 date: "2012-06-05"
 original_url: https://tangosalbardo.blogspot.com/2012/06/la-seleccion-nacional-de-tango.html
 labels: ""
+tags: ["Leopoldo Federico", "Carlos Di Sarli", "Rodolfo Mederos", "Ernesto Baffa", "Walter Ríos", "Julio Pane", "Pablo Agri"]
 ---
 
 Se formó en el año 2005 y fue algo inusual pero golpearon fuerte. Entre el 27 y 28 de agosto de dicho año congregaron enormes expectativas en el mundo tanguero con su presentación en la Sala ND Ateneo y grabaron un CD.

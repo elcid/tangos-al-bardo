@@ -3,6 +3,7 @@ title: "Ricardo Pedevilla"
 date: "2013-06-05"
 original_url: https://tangosalbardo.blogspot.com/2013/06/ricardo-pedevilla.html
 labels: ""
+tags: ["Carlos Di Sarli", "Alberto Echagüe", "Juan D'Arienzo", "Juan Maglio", "Jorge Ortiz"]
 ---
 
 En los años cincuenta había infinidad de orquestas en todo el país que tocaban el repertorio de Juan D'Arienzo, tratando de imitar con la mayor exactitud posible el estilo del maestro de Balvanera, aunque el resultado, por supuesto, estaba lejos del original, que por algo era el creador.

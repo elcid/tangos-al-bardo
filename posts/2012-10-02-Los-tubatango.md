@@ -3,6 +3,7 @@ title: "Los tubatango"
 date: "2012-10-02"
 original_url: https://tangosalbardo.blogspot.com/2012/10/los-tubatango.html
 labels: ""
+tags: ["Mariano Mores"]
 ---
 
 En los años 60, hubo una gran *rèclame* de ofertas tangueras en forma de conjuntos variopintos que ejecutaban temas de la guardia vieja y, de hecho, tuvieron su premio en forma de venta de discos, presentaciones en espectáculos y radios y televisión.

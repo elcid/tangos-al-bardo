@@ -3,6 +3,7 @@ title: "Médico-ejemplo y tanguero"
 date: "2014-02-03"
 original_url: https://tangosalbardo.blogspot.com/2014/02/hay-dias-en-que-uno-se-encuentra-con.html
 labels: ""
+tags: ["Raúl Kaplún"]
 ---
 
 Hay días en que uno se encuentra con sorpresas gratísimas. Por ejemplo, que haya pasado a ser seguidor de este humilde Blog, un médico argentino famoso internacionalmente, formador de mucha gente de la medicina, con unos valores insobornables anclados a su maletín y su diploma, que es todo un ejemplo para la época en que vivimos. Por la deshumanización que pretenden implementar algunos gobiernos en cuanto a la privatización de la medicina con lo cual quedarían excluidas todas aquellas personas que no pueden acceder a seguros pagos por carecer de medios económicos para ello.

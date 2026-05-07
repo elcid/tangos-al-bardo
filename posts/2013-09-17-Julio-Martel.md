@@ -3,6 +3,7 @@ title: "Julio Martel"
 date: "2013-09-17"
 original_url: https://tangosalbardo.blogspot.com/2013/09/julio-martel.html
 labels: ""
+tags: ["Alfredo De Angelis", "Edgardo Donato", "Julio Martel", "Carlos Waiss", "Floreal Ruiz", "Carlos Dante"]
 ---
 
 Es una de mis debilidades en el tango. Un cantor con voz chiquita pero bien modulada, muy musical. Barítono de buen gusto, que se adaptó maravillosamente a la triunfante orquesta de Alfredo De Angelis y ayudado además por su estampa de galán que tan buen resultado le dio. Era ídolo de las chicas jóvenes y la muchachada del 40 y sus condiciones le permitieron llegar al cine como galán-cantor.

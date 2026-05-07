@@ -3,6 +3,7 @@ title: "Mario Battistella"
 date: "2017-06-14"
 original_url: https://tangosalbardo.blogspot.com/2017/06/mario-battitstella.html
 labels: ""
+tags: ["José María Contursi", "Mario Battistella", "Sebastián Piana", "Edmundo Rivero", "Carlos Gardel", "Mariano Mores", "Pedro Maffia", "Ángel Vargas"]
 ---
 
 Nació en un pueblo de Verona, Italia, y llegó con 17 años a Buenos Aires, atraído por familiares de amigos y vecinos que habían emigrado a Argentina. No conocía el idioma, y mucho menos los giros porteños, pero terminó siendo un poeta tanguero de campanillas y Carlos Gardel le dió la contraseña necesaria, al grabarle varias de sus obras, como: *Desdén, Al pie de la Santa Cruz, Me da pena confesarlo, Medallita de la suerte, Melodía de arrabal, Estudiante, Sueño querido, Cuando tú no estás, Mañanita de sol *y la zamba *Criollita de mis ensueños*.

@@ -3,6 +3,7 @@ title: "Ché bandoneón"
 date: "2017-05-01"
 original_url: https://tangosalbardo.blogspot.com/2017/05/che-bandoneon.html
 labels: ""
+tags: ["Florindo Sassone", "Alberto Marino", "Edmundo Rivero", "Aníbal Troilo", "Roberto Grela", "Homero Manzi", "Oscar Alonso", "Jorge Casal"]
 ---
 
 Hermoso tango, ganador desde la salida de las cintas, en 1949 y construído por una dupla genial: Aníbal Troilo y Homero Manzi. Los versos fueron primero y sobre ellos, Pichuco amasó la música, pero no pudo grabarlo hasta noviembre de 1950, debido a que su nuevo cantor, Jorge Casal, que reemplazaba a Edmundo Rivero, debió retrasar su incorporación a la orquesta, dado que Florindo Sassone presentó una reclamación, pues tenía contrato para los carnavales en el Club Atlético Independiente, con Casal como cantor. Y Troilo debió acceder a tal reclamo.

@@ -3,6 +3,7 @@ title: " Evolución del tango: de la Edad de Oro al tiempo actual."
 date: "2025-12-22"
 original_url: https://tangosalbardo.blogspot.com/2025/12/evolucion-del-tango-de-la-edad-de-oro.html
 labels: ""
+tags: ["José María Otero", "Julio Pane"]
 ---
 
 **-El abrazo, la conexión y la cadencia. Evolución:**-El abrazo del tango se ha mantenido a lo largo de los años. La conexión es muy importante, es la

@@ -3,6 +3,7 @@ title: "La Selección de Leopoldo Federico"
 date: "2018-07-26"
 original_url: https://tangosalbardo.blogspot.com/2018/07/la-seleccion-de-leopoldo-federico.html
 labels: ""
+tags: ["Fernando Suárez Paz", "Leopoldo Federico", "Carlos Di Sarli", "Horacio Ferrer", "Aníbal Troilo", "Antonio Agri", "José Bragato", "Orlando Goñi"]
 ---
 
 Sin la menor duda, fue uno de los grandes bandoneonistas que pasaron por las filas del tango, y nos dejó hace cerca de cuatro años. Pero sigue vigente en sus grabaciones con Salgán, con Piazzolla, con Gobbi, Maderna, Salgán, Di Sarli, con Grela, con Julio Sosa y tantos otros en su extensa carrera. Además, quienes tuvimos la suerte de conocerlo, de tratarlo, comprobamos que detrás del excelente músico, director y compositor, había una persona sumamente agradable y sobre todo muy modesto. Nunca dejó de ser la persona normal que charlaba con sus seguidores, periodistas y otros, con el afecto que siempre lo caracterizó.

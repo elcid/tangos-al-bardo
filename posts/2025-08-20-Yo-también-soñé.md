@@ -3,6 +3,7 @@ title: "Yo también soñé"
 date: "2025-08-20"
 original_url: https://tangosalbardo.blogspot.com/2025/08/yo-tambien-sone.html
 labels: ""
+tags: ["Luis César Amadori", "Charlo"]
 ---
 
 Este tango tuvo mucha repercusión por la interpretación que realiza Charlo en la película "*Puerto nuevo*", dirigida por la dupla Luis César Amadori-Mario Soficci, en 1936. El 31 de diciembre de 1935, *Pirincho* Canaro lo lleva al disco con el propio Charlo, y tres meses más tarde lo vuelve a grabar, esta vez cantando Roberto Maida. En 1951 lo registra nuevamente, con su cantor Mario Alonso.

@@ -3,6 +3,7 @@ title: "Las primeras orquestas de Piazzolla"
 date: "2017-01-07"
 original_url: https://tangosalbardo.blogspot.com/2017/01/las-primeras-orquestas-de-piazzolla.html
 labels: ""
+tags: ["Francisco Fiorentino", "Luis Adolfo Sierra", "Leopoldo Federico", "Atilio Stampone", "Homero Expósito", "Aníbal Troilo", "Carlos Figari", "Antonio Agri"]
 ---
 
 *"A mí, los bailarines nunca me importaron*", decía Ástor. De allí vendrían muchos choques con Troilo, cuando arreglaba algún tema. Pero cuando consiguió la oportunidad de dirigir una orquesta, tuvo que moderarse al principio, porque tocaban en sitios copados por milongueros. La ocasión llegó cuando Fiorentino dejó a Troilo y combinó con Goñi y Piazzolla para que armaran una orquesta con el fin de secundarlo, dado que tenía algún contrato en vistas. Goñi desertó rápidamente y a Ástor le encantó la novedad de tener orquesta propia. Además Fiore lo respetaba mucho aunque fuese bastantae más joven que él.

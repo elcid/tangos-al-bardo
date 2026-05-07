@@ -3,6 +3,7 @@ title: "La musicalidad bailable en el tango"
 date: "2020-06-25"
 original_url: https://tangosalbardo.blogspot.com/2020/06/la-musicalidad-bailable-en-el-tango_25.html
 labels: ""
+tags: ["José María Otero", "Fulvio Salamanca", "Osvaldo Pugliese", "Carlos Di Sarli", "Aníbal Troilo", "Julio De Caro", "Alfredo Gobbi", "Orlando Goñi"]
 ---
 
 **Las Orquestas y sus respectivos estilos**

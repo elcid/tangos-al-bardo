@@ -3,6 +3,7 @@ title: "Un día como hoy de hace 77 años"
 date: "2012-06-23"
 original_url: https://tangosalbardo.blogspot.com/2012/06/un-dia-como-hoy-de-hace-77-anos.html
 labels: ""
+tags: ["Manuel Romero", "Carlos Gardel"]
 ---
 
 Cantaba Carlos Gardel el último tango, la postrer canción de su vida joven. En medio de una euforia colectiva, trasvasando pasiones con su acento musical y el tono que inventó para cantar el tango.

@@ -3,6 +3,7 @@ title: "Edmundo Rivero"
 date: "2022-01-13"
 original_url: https://tangosalbardo.blogspot.com/2022/01/edmundo-rivero.html
 labels: ""
+tags: ["Astor Piazzolla", "Edmundo Rivero"]
 ---
 
 **Borges y otros largos viajes**

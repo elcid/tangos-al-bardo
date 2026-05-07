@@ -3,6 +3,7 @@ title: "Recordando a Gardel"
 date: "2024-06-24"
 original_url: https://tangosalbardo.blogspot.com/2024/06/recordando-gardel.html
 labels: ""
+tags: ["José María Aguilar", "Celedonio Flores", "Pascual Contursi", "Alfredo Le Pera", "Carlos Gardel", "Manuel Romero", "Roberto Firpo"]
 ---
 
 Hoy se cumplen 89 años de la desaparición del más grande cantor que ha tenido el tango en su historia. O del "inventor" del tango cantado, porque realmente, cuando él, en 1917 graba su primer tango, **Mi noche triste**, de Castriota y Pascual Contursi, era el tema número 35 en su lista de registros discográficos.

@@ -3,6 +3,7 @@ title: "José González Castillo"
 date: "2014-04-18"
 original_url: https://tangosalbardo.blogspot.com/2014/04/jose-gonzalez-castillo.html
 labels: ""
+tags: ["José González Castillo", "Francisco Rotundo", "Ricardo Tanturi", "Sebastián Piana", "Homero Manzi", "Floreal Ruiz"]
 ---
 
 San Juan y Boedo de hace mucho tiempo. Allí, frente a la casa de Don José González Castillo, estaban las chapas de un teatro popular y, más allá, las pantallas de los primeros cinematógrafos suburbanos y también los bares con palco a ras del suelo desde donde ágíles dedos trepaban por las escalas del bandoneón hasta llegar al tango.

@@ -3,6 +3,7 @@ title: "Había una vez..."
 date: "2016-12-02"
 original_url: https://tangosalbardo.blogspot.com/2016/12/habia-una-vez.html
 labels: ""
+tags: ["Juan Carlos Cobián", "José María Otero", "Pascual Contursi", "Luis Petrucelli", "Sebastián Piana", "Carlos Gardel", "Julio De Caro", "Roberto Firpo"]
 ---
 
 … unos descendientes de los esclavos negros que realizaban fiestas paganas en sus momentos de descanso y reunión, en la Buenos Aires de finales del siglo XIX. Ellos esbozaron pobremente como danza esa especie de tango milonga en la que se hacían acompañar por músicos diletantes que tocaban guitarra, flauta, arpa o violín. Carecían de partituras y eran empujados por los bailarines para que los acompañaran en incipientes piezas, que cuando eran afortunadas repetían una y otra vez para gozo de los bailarines. La primera partitura de tango trasladada al papel fue *El entrerriano*, del pianista negro Rosendo Mendizábal, que se editó en 1898.

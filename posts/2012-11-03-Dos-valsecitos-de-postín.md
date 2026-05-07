@@ -3,6 +3,7 @@ title: "Dos valsecitos de postín"
 date: "2012-11-03"
 original_url: https://tangosalbardo.blogspot.com/2012/11/dos-valsecitos-de-postin.html
 labels: ""
+tags: ["José González Castillo", "Francisco Rotundo", "Enrique Campos", "Carlos García", "Roberto Grela", "Floreal Ruiz", "Charlo"]
 ---
 
 Un amigo tanguero me está despachando parejas de valses para despertar mis ganas de correr a la milonga y disfrutar de los mismos.

@@ -3,6 +3,7 @@ title: "Milongueando con mamá"
 date: "2012-12-01"
 original_url: https://tangosalbardo.blogspot.com/2012/12/milongueando-con-mama.html
 labels: ""
+tags: ["Celedonio Flores", "Osvaldo Zotto"]
 ---
 
 Ya he hablado en algunas oportunidades, en este Blog, de mi amistad con los hermanos Zotto. Lamenté muchísimo la infortunada y temprana desaparición física de Osvaldo. No sólo por sus grandes cualidades de bailarín y milonguero, sino, sobre todo, por las que tenía como persona.

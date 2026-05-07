@@ -3,6 +3,7 @@ title: "BIEN MILONGA"
 date: "2019-10-01"
 original_url: https://tangosalbardo.blogspot.com/2019/10/bien-milonga.html
 labels: ""
+tags: ["Francisco García Jiménez", "Donato Racciatti", "Juan D'Arienzo", "Aníbal Troilo"]
 ---
 
 Alardes de bordador

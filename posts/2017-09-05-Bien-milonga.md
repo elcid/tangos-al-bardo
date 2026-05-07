@@ -3,6 +3,7 @@ title: "Bien milonga"
 date: "2017-09-05"
 original_url: https://tangosalbardo.blogspot.com/2017/09/bien-milonga.html
 labels: ""
+tags: ["Francisco Canaro", "Aníbal Troilo", "Héctor Varela"]
 ---
 
 [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjNM8UFW3H55AXGBd4ourMdjkHkLokYwSOeu23e_6IFcfFEECyeK4XjD7usRtJ3tyo_3tYPr-OCmYN5uG10aXHpD2YkBfS7jAceXjoSlZS574bgeJZiuHCWiFAUw0GOYeZTqYS_Wf5BKPKh/s200/maliciosa.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjNM8UFW3H55AXGBd4ourMdjkHkLokYwSOeu23e_6IFcfFEECyeK4XjD7usRtJ3tyo_3tYPr-OCmYN5uG10aXHpD2YkBfS7jAceXjoSlZS574bgeJZiuHCWiFAUw0GOYeZTqYS_Wf5BKPKh/s1600/maliciosa.jpg) *"La trajo un tango al ansia de mi abrazo"*

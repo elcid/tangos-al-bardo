@@ -3,6 +3,7 @@ title: "Octeto Tibidabo"
 date: "2017-08-25"
 original_url: https://tangosalbardo.blogspot.com/2017/08/octeto-tibidabo.html
 labels: ""
+tags: ["Juan Carlos Cobián", "Leopoldo Federico", "Osvaldo Pugliese", "Atilio Stampone", "Edmundo Rivero", "Alfredo Belusi", "Aníbal Troilo", "Pedro Maffia"]
 ---
 
 El nombre de este "Octeto", recuerda un pico montañoso y también al famoso y antiguo Parque de atracciones, ambos de Barcelona. Responde a la filiación catalana de Juan Serrat, el hombre que instaló el cabaret *Tibidabo*, donde reinaba Aníbal Troilo con su orquesta, aunque también pasaron por su escenario otras famosas de la época y los grandes personajes del tango, en los años cuarenta y cincuenta.

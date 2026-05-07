@@ -3,6 +3,7 @@ title: "Marejada, en tres versiones"
 date: "2012-09-18"
 original_url: https://tangosalbardo.blogspot.com/2012/09/marejada-en-tres-versiones.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Carlos Di Sarli", "Roberto Firpo"]
 ---
 
 Se trata de un tango marinero romántico, compuesto por Roberto Firpo y que éste grabara en numerosas oportunidades. La primera en solo de piano, en el año de su creación: 1912. Dos años más tarde con su orquesta hizo otros dos registros. En 1918 nueva grabación y en solo de piano otra en 1920.

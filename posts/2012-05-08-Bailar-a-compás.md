@@ -3,6 +3,7 @@ title: "Bailar a compás"
 date: "2012-05-08"
 original_url: https://tangosalbardo.blogspot.com/2012/05/bailar-compas.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Francisco Lomuto", "Francisco Canaro", "Pedro Laurenz"]
 ---
 
 Fue una de las primeras cosas que aprendimos cuando nos largamos con los muchachos mayores de la barra, en mi barrio porteño de Parque Patricios, a bailar el tango.

@@ -3,6 +3,7 @@ title: "El corazón al sur"
 date: "2021-10-30"
 original_url: https://tangosalbardo.blogspot.com/2021/10/el-corazon-al-sur.html
 labels: ""
+tags: ["Eladia Blázquez", "Raúl Garello", "José Carli"]
 ---
 
 Los temas de Eladia Blázquez siempre nos llegan hondamente, precisamente por su profundidad, su sentimiento, la manera de expresarlo, porque es la revelación de su alma poética y musical. Hay cosas que se pegan caprichosamente en nuestras vidas y no nos abandonan. Cuando el espíritu está lleno de profundas emociones y la persona sabe transmitirlas, porque deambulan por su yo íntimo, el tango se nutre de temas que nunca nos abandonarán.

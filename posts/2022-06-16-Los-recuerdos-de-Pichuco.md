@@ -3,6 +3,7 @@ title: "Los recuerdos de Pichuco"
 date: "2022-06-16"
 original_url: https://tangosalbardo.blogspot.com/2022/06/los-recuerdos-de-pichuco.html
 labels: ""
+tags: ["Juan Carlos Cobián", "Osvaldo Pugliese", "Alberto Echagüe", "Eugenio Nóbile", "Eduardo Arolas", "Juan D'Arienzo", "Héctor Varela", "Julio De Caro"]
 ---
 
 ** El debut oficial**

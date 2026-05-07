@@ -3,6 +3,7 @@ title: "Charlo y Sabina Olmos"
 date: "2016-08-08"
 original_url: https://tangosalbardo.blogspot.com/2016/08/charlo-y-sabina-olmos.html
 labels: ""
+tags: ["Francisco Canaro", "Pascual Contursi", "Francisco Lomuto", "Manuel Romero", "Anselmo Aieta", "Charlo"]
 ---
 
 Hoy me toca hablar de esta pareja de artistas que nos dejaron algunas grabaciones muy particulares. Charlo fue uno de los mejores cantores que ha tenido el tango y un maestro de los matices. Además de su condición de músico, ya que componía en el piano o en su acordeón a piano. Incluso le traduciría al pentagrama unas cuantas obras a Anselmo Aieta, cuando éste lo requería y lo invitaba a su domicilio, ya que no conocía la notación.

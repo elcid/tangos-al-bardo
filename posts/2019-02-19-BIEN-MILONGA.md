@@ -3,6 +3,7 @@ title: "BIEN MILONGA"
 date: "2019-02-19"
 original_url: https://tangosalbardo.blogspot.com/2019/02/bien-milonga_19.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Juan D'Arienzo"]
 ---
 
 *Con la cadencia de un tango*

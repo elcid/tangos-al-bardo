@@ -3,6 +3,7 @@ title: "Evocándote"
 date: "2015-04-03"
 original_url: https://tangosalbardo.blogspot.com/2015/04/evocandote.html
 labels: ""
+tags: ["José María Contursi", "Roberto Goyeneche", "Roberto Rufino", "Alberto Marino", "Edmundo Rivero", "Aníbal Troilo", "Floreal Ruiz", "Jorge Casal"]
 ---
 
 Este tango le pertenece a Aníbal Troilo y José María Contursi. Fue uno de los siete temas que compusieron juntos. Los otros seis fueron: *Toda mi vida, Valsecito amigo, Mi tango triste, Garras, Y no puede ser, *y* Con mi perro*. Todos ellos han sido grabados por la orquesta de Pichuco, pero inexplicablemente, no lo hizo así con este hermoso tango que realizaron en 1942.

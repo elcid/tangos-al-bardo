@@ -3,6 +3,7 @@ title: "El Rolo Lesica"
 date: "2013-02-09"
 original_url: https://tangosalbardo.blogspot.com/2013/02/el-rolo-lesica.html
 labels: ""
+tags: ["Francisco Canaro", "Julián Centeya", "Héctor Varela", "Carlos Waiss", "Raúl Lavié", "José Berón"]
 ---
 
 Fue un cantorazo de verdad, con mayúsculas, aunque esté oscurecido por su escasa profesionalidad y porque nunca se tomó en serio a sí mismo. O sea, nunca se dió verdadera cuenta de todo su potencial. Debería de haber pasado por las orquestas de Troilo o Pugliese para subir algunos escalones en la consideración general, pero su propia indisciplina le cerró esas puertas.

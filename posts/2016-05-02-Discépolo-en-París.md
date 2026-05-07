@@ -3,6 +3,7 @@ title: "Discépolo en París"
 date: "2016-05-02"
 original_url: https://tangosalbardo.blogspot.com/2016/05/discepolo-en-paris.html
 labels: ""
+tags: ["Luis César Amadori", "Francisco Canaro", "Francisco Lomuto", "Azucena Maizani", "Ignacio Corsini", "Edgardo Donato", "Julio De Caro"]
 ---
 
 Mucho se ha hablado y escrito sobre este amargo filósofo del tango, actor, charlista, autor teatral, director de teatro y cine, gran amigo de sus amigos y auxilio de muchos necesitados que recurrían a él para aliviar sus penurias. Justo a Discepolín que siempre vivió en el alambre, sólo, o en su matrimonio con Tania. Lo pasó mal cuando quedó huérfano de padre y madre y tuvo que ir a vivir a la casa de unos parientes que tenían reglas muy estrictas. Se iría después con su hermano mayor Armando y la familia, en la calle Rioja.

@@ -3,6 +3,7 @@ title: "Alfredo Le Pera"
 date: "2025-08-12"
 original_url: https://tangosalbardo.blogspot.com/2025/08/alfredo-le-pera.html
 labels: ""
+tags: ["Alfredo Le Pera", "Aníbal Troilo", "Carlos Gardel"]
 ---
 
 (**por Aníbal Troilo**)

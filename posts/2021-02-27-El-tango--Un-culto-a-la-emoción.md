@@ -3,6 +3,7 @@ title: "El tango: Un culto a la emoción"
 date: "2021-02-27"
 original_url: https://tangosalbardo.blogspot.com/2021/02/el-tango-del-pueblo.html
 labels: ""
+tags: ["Julián Centeya", "María Nieves"]
 ---
 
 Nació en el seno de la muchachada porteña de su época y enroló a bailarines, a músicos diletantes, a muchachos y muchachas de barrio. Y se fue haciendo cultura porque ingresó en salones de alcurnia, en cabarets de moda, en programas de radio donde siempre había orquestas y cantantes en vivo. Así se fue extendiendo rápidamente y llegó a otros países de América y saltó a Europa. Gardel, surgido de la pobreza y la inmigración lo llevó a los grandes escenarios del mundo y al cine.

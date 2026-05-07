@@ -3,6 +3,7 @@ title: "La guitarrita"
 date: "2024-05-28"
 original_url: https://tangosalbardo.blogspot.com/2024/05/la-guitarrita.html
 labels: ""
+tags: ["Pascual Contursi", "Osvaldo Pugliese", "Eduardo Arolas", "Carlos Gardel"]
 ---
 
 Este tango: **La guitarrita** fue compuesto por Eduardo Arolas en 1917, y el 24 de abril de dicho año fue grabado con su propia orquesta. Se lo dedicó a su gran amigo, el guitarrista uruguayo Mario Pardo.

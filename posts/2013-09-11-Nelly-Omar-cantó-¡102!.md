@@ -3,6 +3,7 @@ title: "Nelly Omar cantó ¡102!"
 date: "2013-09-11"
 original_url: https://tangosalbardo.blogspot.com/2013/09/nelly-omar-canto-102.html
 labels: ""
+tags: ["Francisco Canaro", "Julián Centeya", "Carlos Gardel", "Homero Manzi", "Floreal Ruiz", "José Canet", "Nelly Omar"]
 ---
 
 Efectivamente esta gran cantora criolla y tanguera, cumplió años y sigue superando cómodamente la centuria, pero todavía le quedan cartuchos para gastar, porque es de esos milagros que cada tanto acontecen, dado que es una grata anomalía, cumplir esos años y además, en buena forma.

@@ -3,6 +3,7 @@ title: "La clase de Demare"
 date: "2012-11-23"
 original_url: https://tangosalbardo.blogspot.com/2012/11/la-clase-de-demare.html
 labels: ""
+tags: ["Libertad Lamarque", "Francisco Canaro", "Agustín Bardi", "Homero Manzi", "Lucio Demare"]
 ---
 
 Por pinta, por preparación, por gusto, Lucio Demare merece estar en el sitial de los elegidos. Era algo connatural en él desde siempre. Desde que debutó con 8 añitos tocando en el cine Bonpland, en el barrio de Palermo.

@@ -3,6 +3,7 @@ title: "Cuando un amigo se va"
 date: "2014-07-08"
 original_url: https://tangosalbardo.blogspot.com/2014/07/cuando-un-amigo-se-va.html
 labels: ""
+tags: ["Libertad Lamarque", "Ricardo Tanturi", "Enrique Campos", "Susana Rinaldi", "Reinaldo Yiso", "Miguel Caló"]
 ---
 
 Se nos fue Alfredo Di Stéfano, y más que un amigo, se fue con él una especie de hermano mayor con quien compartí tantas horas, comidas, charlas, reuniones y partiditos de fútbol. Cuando llegué a Madrid me arrimó a la barra del Real Madrid y los vermuts del mediodía eran infaltables e interminables, como las anécdotas que brotaban de todos los rincones.

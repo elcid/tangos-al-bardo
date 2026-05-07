@@ -3,6 +3,7 @@ title: "Aquellas cantantes..."
 date: "2025-01-16"
 original_url: https://tangosalbardo.blogspot.com/2025/01/aquellas-cantantes.html
 labels: ""
+tags: ["Libertad Lamarque"]
 ---
 
 LIBERTAD LAMARQUE

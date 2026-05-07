@@ -3,6 +3,7 @@ title: "No me extraña"
 date: "2021-04-28"
 original_url: https://tangosalbardo.blogspot.com/2021/04/no-me-extrana.html
 labels: ""
+tags: ["Fulvio Salamanca", "Juan D'Arienzo", "Julio De Caro", "Pedro Laurenz", "Pedro Maffia", "Carlos Bahr"]
 ---
 
 Tango que Pedro Laurenz supo recomponer y darle una segunda oportunidad. Porque en 1926, Julio De Caro lo llevó al disco en forma instrumental con su Sexteto y el título original: **Populacha**. Sus autores fueron el bandoneonista Alfonso Antonio Romano y el violinista-bandoneonista-contrabajista Alberto Celenza. Dos años más tarde Alejo Ferradás le adosó unos versos simplones, basados en la típica muchacha que da el fatal salto al cabaret. Lo grabaría la orquesta Mordrez-Brodman, con un dúo de cantores en París, en el sello Pathé. Y rápidamente se marchitó y quedó en el olvido.

@@ -3,6 +3,7 @@ title: "A media luz"
 date: "2013-12-06"
 original_url: https://tangosalbardo.blogspot.com/2013/12/a-media-luz.html
 labels: ""
+tags: ["Francisco García Jiménez", "Leopoldo Federico", "Francisco Canaro", "Edgardo Donato", "Edmundo Rivero", "Carlos Gardel"]
 ---
 
 Últimamente he recibido varios comentarios sobre la creación de este tango que es uno de los diez más escuchados en todo el mundo, a lo largo de la historia. Y que ha sido interpretado por todo tipo de orquestas, cantores y cantantes de diversos géneros.

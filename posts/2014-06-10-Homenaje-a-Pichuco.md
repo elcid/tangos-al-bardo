@@ -3,6 +3,7 @@ title: "Homenaje a Pichuco"
 date: "2014-06-10"
 original_url: https://tangosalbardo.blogspot.com/2014/06/homenaje-pichuco.html
 labels: ""
+tags: ["José María Contursi", "Carlos Di Sarli", "Roberto Rufino", "Alberto Marino", "Aníbal Troilo", "Alfredo Gobbi"]
 ---
 
 Con motivo del Centenario del nacimiento de Pichuco, que se cumplirá el próximo 11 de julio, por iniciativa de la Embajada Argentina en Madrid y Casa Argentina, le haremos un homenaje mañana, 11 de junio, en la hermosa *Casa de Vacas* del Parque del Retiro, en Madrid. El aforo está completo desde hace varios días, por lo cual no es aconsejable intentar conseguir una entrada. Eso sí, podrán ingresar al final del espectáculo aquellos que quieran disfrutar de la milonga posterior en la terraza.

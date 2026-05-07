@@ -3,6 +3,7 @@ title: "Nicolás Vaccaro"
 date: "2022-12-13"
 original_url: https://tangosalbardo.blogspot.com/2022/12/nicolas-vaccaro.html
 labels: ""
+tags: ["Eduardo Del Piano", "Osvaldo Fresedo", "Astor Piazzolla", "Eduardo Arolas", "Juan D'Arienzo", "Roberto Firpo"]
 ---
 
 Durante una de las tantas audiciones radiofónicas que realizó con Ismael Aguilar, a cuyo cargo estaban las glosas o la evocación emocionada de recuerdos, Nicolás Vaccaro tocó en el piano un viejo y casi desconocido tango: "*Ofelia"*, de Marcos Torres. Algunos minutos después de la transmisión, Vaccaro atendió por el teléfono el llamado de un voz femenina que, con tono estremecido y entrecortado por las lágrimas, le comunicaba su profunda gratitud.

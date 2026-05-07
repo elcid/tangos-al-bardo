@@ -3,6 +3,7 @@ title: "Discos de Gardel"
 date: "2019-10-06"
 original_url: https://tangosalbardo.blogspot.com/2019/10/discos-de-gardel.html
 labels: ""
+tags: ["Eduardo Del Piano", "Ricardo Tanturi", "Enrique Campos", "Carlos Gardel"]
 ---
 
 En este tango de Horacio Sanguinetti y Eduardo Del Piano, pretendo, especialmente recordar al poeta popular. Uno de los más prolíficos de aquella añorada década del cuarenta, que dejó una enormidad de títulos y que desapareció de la vida pública como un fantasma, debido a una tragedia familiar que protagonizó en primera persona. Motivo por el cual, debió escaparse a Uruguay, ayudado por gente importante del ambiente, esfumándose su rastro para siempre. No hay ni siquiera una foto suya.

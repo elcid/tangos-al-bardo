@@ -3,6 +3,7 @@ title: "A pan y agua"
 date: "2012-10-10"
 original_url: https://tangosalbardo.blogspot.com/2012/10/a-pan-y-agua.html
 labels: ""
+tags: ["Juan Carlos Cobián", "Eduardo Del Piano", "Enrique Cadícamo"]
 ---
 
 Hace un par de días le recordaba a un amigo mis andanzas por las milongas porteñas, en las cuales me incrusté definitvamente cuando merodeaba los 17 años.

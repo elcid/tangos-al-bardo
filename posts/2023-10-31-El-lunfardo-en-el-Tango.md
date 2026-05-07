@@ -3,6 +3,7 @@ title: "El lunfardo en el Tango"
 date: "2023-10-31"
 original_url: https://tangosalbardo.blogspot.com/2023/10/el-lunfardo-en-el-tango.html
 labels: ""
+tags: ["Celedonio Flores", "Pascual Contursi", "Edmundo Rivero", "Aníbal Troilo"]
 ---
 
 Hoy tengo ganas de *darle caña* al lunfardo. Esa jerga que adoptamos en los aledaños del Río de la Plata y que es un equivalente del *Caló, bribia, germanía* que se habla en España. O el *Gergo* italiano. También podemos compararlo con el *Slang* de Gran Bretaña y Alemania, o el *Parlache* de Colombia.

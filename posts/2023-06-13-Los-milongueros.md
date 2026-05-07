@@ -3,6 +3,7 @@ title: "Los milongueros"
 date: "2023-06-13"
 original_url: https://tangosalbardo.blogspot.com/2023/06/los-milongueros.html
 labels: ""
+tags: ["Juan Carlos Copes", "Antonio Todaro", "María Nieves", "Virulazo"]
 ---
 
 Hombres y mujeres tienen códigos y ritos que se van traspasando por generaciones. Al baile se va a milonguear, no a *levantar*. Los mejores jamás copian pasos de otro textualmente, en todo caso buscan mejorarlo. La competencia es dura y la personalidad es fundamental. Recuerdo aquella época de oro en Huracán, donde todos ocupaban su lugar. El club tenía dos salones: el grande y el más chico (que también era grande aunque no tanto). En el primero estaban los *cotizados/as *y en el otro los menos dotados/as.

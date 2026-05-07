@@ -3,6 +3,7 @@ title: "Celedonio Esteban Flores"
 date: "2018-05-17"
 original_url: https://tangosalbardo.blogspot.com/2018/05/celedonio-esteban-flores.html
 labels: ""
+tags: ["José María Aguilar", "Celedonio Flores", "Pascual Contursi", "Arturo De Bassi", "Alberto Echagüe", "Juan D'Arienzo", "Rosita Quiroga", "Carlos Gardel"]
 ---
 
 Hay una doble vertiente en los versos tangueros del Negro Cele. Por un lado, el suburbio de donde deviene el lenguaje lunfardesco de su poesía. Por el otro, el oficio de tipógrafo de su criollazo padre, que trabajó en tal *mettier*, en la imprenta de los Mitre. En aquellos años, los obreros gráficos, por razones de oficio eran literariameante ilustrados. En esas fuentes bebió Celedonio, y desde pequeño leyó mucho, empujado por su progenitor. Su modelo era Rubén Darío -su dios-, la brújula de los aspirantes a poetas de la época. Pero él se enmarcaría en el ejido del arrabal que urdía un lenguaje nuevo, diferente, cómplice.

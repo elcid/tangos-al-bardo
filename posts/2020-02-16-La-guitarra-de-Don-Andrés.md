@@ -3,6 +3,7 @@ title: "La guitarra de Don Andrés"
 date: "2020-02-16"
 original_url: https://tangosalbardo.blogspot.com/2020/02/la-guitarra-de-don-andres.html
 labels: ""
+tags: ["Francisco Canaro", "Edmundo Rivero"]
 ---
 
 EDMUNDO RIVERO

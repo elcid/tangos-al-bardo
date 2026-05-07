@@ -3,6 +3,7 @@ title: "El adiós de Troilo"
 date: "2014-05-20"
 original_url: https://tangosalbardo.blogspot.com/2014/05/el-adios-de-troilo.html
 labels: ""
+tags: ["Feliciano Brunelli", "Juan Carlos Copes", "Roberto Goyeneche", "Agustín Magaldi", "Edmundo Rivero", "Horacio Ferrer", "Aníbal Troilo", "Pedro Maffia"]
 ---
 
 Ayer se cumplieron 39 años del alejamiento definitivo de Pichuco. Y aunque en numerosos sitios de Argentina se conmmemorara el domingo 18, como aniversario de su fallecimiento, en realidad, fue el 19 de mayo de 1975, cuando se extinguió la vida del que fuera gran ídolo de los tangueros de todo el país. Tal vez para recordarlo River ganó el campeonato este domingo. Para él, que era el socio número 817 del Club de Núñez y había sido gran amigo de los viejos cracks del equipo.

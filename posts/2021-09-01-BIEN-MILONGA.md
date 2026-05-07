@@ -3,6 +3,7 @@ title: "BIEN MILONGA"
 date: "2021-09-01"
 original_url: https://tangosalbardo.blogspot.com/2021/09/bien-milonga.html
 labels: ""
+tags: ["Alberto Echagüe", "Juan D'Arienzo", "Aníbal Troilo"]
 ---
 
 >

@@ -3,6 +3,7 @@ title: "Tango, te cambiaron la pinta"
 date: "2016-03-24"
 original_url: https://tangosalbardo.blogspot.com/2016/03/tango-te-cambiaron-la-pinta.html
 labels: ""
+tags: ["José María Aguilar", "Pascual Contursi", "Roberto Firpo", "Carlos Gardel"]
 ---
 
 Qué diría el inolvidable y eterno Carlos Gardel si se levantara de su sueño infinito y viera lo que es el tango en el mundo entero hoy día, y todo lo que representa en los distintos pueblos como expresión social. Este tango del título lo registró en 1929 y habla del cambio que supuso su traslado a Francia, brillando en los salones de la alta sociedad local, impulsado por varores ilustres como Ricardo Güiraldes, nada menos, autor de *Don Segundo Sombra* y figura de la high society porteña.

@@ -3,6 +3,7 @@ title: "Leopoldo Federico"
 date: "2015-09-18"
 original_url: https://tangosalbardo.blogspot.com/2015/09/leopoldo-federico.html
 labels: ""
+tags: ["Fernando Suárez Paz", "Leopoldo Federico", "Carlos Di Sarli", "Horacio Ferrer", "Aníbal Troilo", "Pedro Laurenz", "Roberto Grela", "Antonio Agri"]
 ---
 
 Van a hacer apenas ocho meses que nos dejó para siempre, aunque la magia de sus dedos se conserve en grabaciones y recuerdos. Yo lo veía seguido en la Richmond de Esmeralda, cuando acompañaba a Julio Sosa y siempre me atrajo su forma de tocar, que la mostró en numerosas formaciones, incluso las que estuvieron dirigidas por él. Y he pasado hermosas noches en Caño 14, cuando actuaba allí.

@@ -3,6 +3,7 @@ title: "Orquestas rosarinas"
 date: "2015-03-20"
 original_url: https://tangosalbardo.blogspot.com/2015/03/orquestas-rosarinas.html
 labels: ""
+tags: ["Libertad Lamarque", "Agustín Magaldi", "Néstor Marconi", "Alfredo Belusi", "Julio De Caro", "Alfredo Gobbi", "Antonio Agri", "Lito Bayardo"]
 ---
 
 La provincia de Santa Fe y especialmente su capital, Rosario, fueron cuna de numerosos puntales que aportaron a la causa del tango en Buenos Aires a lo largo de la historia, tanto en cantores como músicos o poetas. Al voleo podría nombrar a Julio Ahumada, Agustín Magaldi, Héctor Palacios, Antonio Ríos, Libertad Lamarque, Lito Bayardo, Alberto Suárez Villanueva, Aldo Calderón, Manuel Sucher, los hermanos Lipesker, Alfredo Belussi, Osvaldo *Marinero* Montes, Agustín Irusta, Emilio Barbato, Néstor Marconi, Ebe Bedrune, Nito Farace, Antonio Agri y una larga lista de intérpretes que enriquecieron el género.

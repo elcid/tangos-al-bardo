@@ -3,6 +3,7 @@ title: "Edmundo Rivero"
 date: "2014-07-11"
 original_url: https://tangosalbardo.blogspot.com/2014/07/edmundo-rivero.html
 labels: ""
+tags: ["Homero Expósito", "Armando Pontier", "Edmundo Rivero", "Horacio Salgán"]
 ---
 
 Omar Gómez Sánchez, un querido compañero que tuve en los informativos de Canal 9 de la Televisión argentina, me escribe para recordarme una anécdota del gran cantor, que lo pinta de cuerpo entero.

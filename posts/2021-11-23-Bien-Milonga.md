@@ -3,6 +3,7 @@ title: "Bien Milonga"
 date: "2021-11-23"
 original_url: https://tangosalbardo.blogspot.com/2021/11/bien-milonga_23.html
 labels: ""
+tags: ["Alberto Echagüe", "Juan D'Arienzo"]
 ---
 
 Entre tango y tango, tango, venga un tango y otro más,  meta cortes y quebradas, meta milonga y compás. Vengan tangos y más tangos que ya no puedo parar, me han copao con su cadencia y enredao con su compás.

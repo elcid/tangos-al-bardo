@@ -3,6 +3,7 @@ title: "Osvaldo Manzi"
 date: "2017-03-22"
 original_url: https://tangosalbardo.blogspot.com/2017/03/osvaldo-manzi.html
 labels: ""
+tags: ["Joaquín Do Reyes", "Florindo Sassone", "Osvaldo Pugliese", "Alberto Marino", "Edgardo Donato", "Aníbal Troilo", "Carlos Figari", "Mario Demarco"]
 ---
 
 Realmente sorprende que un músico tan bien formado como este pianista del porteño barrio de Boedo, que destacara en su instrumento, pero también como arreglador y director, no tuviera un espacio más grande en la historia del tango, cuando por méritos propios lo merecía largamente. Sus estudios fueron continuados, tanto en piano, acústica y contrapunto en el Conservatorio Nacional como con Eduardo Velisone. Posteriormente, a sus quince años, se formó en armonía con Athos Palma.

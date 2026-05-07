@@ -3,6 +3,7 @@ title: "La vida es una milonga"
 date: "2015-07-25"
 original_url: https://tangosalbardo.blogspot.com/2015/07/la-vida-es-una-milonga.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Pedro Laurenz"]
 ---
 
 Esto lo escribió nada menos que hace 74 años, Rodolfo Scianmarella, que no era bailarín, pero que acertó totalmente cuando hizo estos versos a los cuales les puso música Fernando Montoni, y Pedro Laurenz grabaría la milonga con la voz de Martín Podestá el 5 de septiembre de 1941.

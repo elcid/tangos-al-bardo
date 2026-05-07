@@ -3,6 +3,7 @@ title: "Ángel Cabral"
 date: "2014-05-26"
 original_url: https://tangosalbardo.blogspot.com/2014/05/angel-cabral.html
 labels: ""
+tags: ["Alberto Castillo", "Osvaldo Pugliese", "Roberto Rufino", "Alberto Marino", "Reinaldo Yiso", "Alfredo Gobbi", "Enrique Dizeo", "Floreal Ruiz"]
 ---
 
 Se llamaba en realidad Ángel Amato, pero desde joven le gustó usar ese seudónimo cuando empezó a guitarrear en boliches y cantinas de los barrios porteños de Villa Luro y Mataderos. En aquella época de dúos y trios se alineó con los guitarristas Juan José Riverol y Ángel Robledo, aunque éste último dejaría su sitio a Alfredo Lucero Palacios. Sería esta última la etapa en que compuso su renombrado vals.

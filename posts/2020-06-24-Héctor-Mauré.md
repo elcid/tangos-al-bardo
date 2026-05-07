@@ -3,6 +3,7 @@ title: "Héctor Mauré"
 date: "2020-06-24"
 original_url: https://tangosalbardo.blogspot.com/2020/06/hector-maure.html
 labels: ""
+tags: ["Julián Centeya", "Héctor Mauré"]
 ---
 
 Vencedor de un mito

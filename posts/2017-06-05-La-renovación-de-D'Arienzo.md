@@ -3,6 +3,7 @@ title: "La renovación de D'Arienzo"
 date: "2017-06-05"
 original_url: https://tangosalbardo.blogspot.com/2017/06/la-renovacion-de-darienzo.html
 labels: ""
+tags: ["Fulvio Salamanca", "Carlos Di Sarli", "Arturo De Bassi", "Alberto Echagüe", "Juan D'Arienzo", "Roberto Firpo", "Héctor Varela", "Floreal Ruiz"]
 ---
 
 Le ocurrió en pleno éxito, cuando había colmado las apetencias de los bailarines y su ritmo volvía a llenar las pistas de Buenos Aires. Con gran suceso, en radio, cabaret y giras, y *bordereaux *a tope, la totalidad de sus músicos le mandaron el obligatorio telegrama de preaviso, informándole que se desligaban de la orquesta. Formarían la propia bajo la conducción del pianista Juan Polito, que había sucedido a Rodolfo Biagi en la formación de D'Arienzo, en julio de 1938.

@@ -3,6 +3,7 @@ title: "Será justicia"
 date: "2016-07-04"
 original_url: https://tangosalbardo.blogspot.com/2016/07/sera-justicia.html
 labels: ""
+tags: ["Aníbal Troilo", "Raúl Berón"]
 ---
 
 Está haciendo un calor tremendo en Madrid y toda la zona costera de España hacia el sur. Uno tiene más ganas de rajarse a la playa o zambullirse en la piscina, mientras espera la hora de partir. Por eso estaba pensando en hacer algo distinto y se me ocurrió traer estos versos porteños y muy logrados de Héctor Gagliardi.

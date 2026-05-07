@@ -3,6 +3,7 @@ title: "Charlemos"
 date: "2013-01-18"
 original_url: https://tangosalbardo.blogspot.com/2013/01/charlemos.html
 labels: ""
+tags: ["Carlos Di Sarli", "Rosita Quiroga", "Anselmo Aieta"]
 ---
 
 Hermoso tango, sobre todo en la versión de Carlos Di Sarli con el pibe Rufino. Además tiene una linda historia detrás que vale la pena recordarla cada tanto.

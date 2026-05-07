@@ -3,6 +3,7 @@ title: "VERSOS MILONGUEROS A LA GURDA"
 date: "2022-11-29"
 original_url: https://tangosalbardo.blogspot.com/2022/11/versos-milongueros-la-gurda.html
 labels: ""
+tags: ["José María Otero"]
 ---
 
 (Al troesma Miguel Ángel Zotto)

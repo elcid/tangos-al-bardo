@@ -3,6 +3,7 @@ title: "Flor de lino"
 date: "2018-04-20"
 original_url: https://tangosalbardo.blogspot.com/2018/04/flor-de-lino.html
 labels: ""
+tags: ["Homero Expósito", "Aníbal Troilo", "Floreal Ruiz"]
 ---
 
 Hoy giro en mis recuerdos con las notas y los versos de este valsecito que compusieron Homero Expósito y Héctor Stamponi en 1947. Ya comenté en otra oportunidad que a Stamponi le llamó Piazzolla "*El Strauss del tango*", y *Chupita*, modestamente, decía que era por los valses porteños que él había compuesto y que tienen todos unos componentes musicales y románticos muy especiales.

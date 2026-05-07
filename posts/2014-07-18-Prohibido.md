@@ -3,6 +3,7 @@ title: "Prohibido"
 date: "2014-07-18"
 original_url: https://tangosalbardo.blogspot.com/2014/07/prohibido.html
 labels: ""
+tags: ["Alberto Podestá", "Julio Camilloni", "Carlos Bahr"]
 ---
 
 En el tango están descriptas muchas historias que le acaecieron a poetas, o vivencias que presenciaron, o que les fueron trasladadas y narradas por los verdaderos protagonistas.* Prohibido* es el título de un tango, que en sus versos describe la desafortunada peripecia amorosa de uno de sus autores, sumada al desgarro posterior. Y no precisamente del autor de los versos.

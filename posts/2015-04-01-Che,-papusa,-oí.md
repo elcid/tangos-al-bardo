@@ -3,6 +3,7 @@ title: "Che, papusa, oí"
 date: "2015-04-01"
 original_url: https://tangosalbardo.blogspot.com/2015/04/che-papusa-oi.html
 labels: ""
+tags: ["Roberto Goyeneche", "Enrique Cadícamo", "Cátulo Castillo", "Azucena Maizani", "Teófilo Ibáñez", "Roberto Firpo", "Raúl Garello", "Lucio Demare"]
 ---
 
 *Muñeca, muñequita que hablás con zeta*

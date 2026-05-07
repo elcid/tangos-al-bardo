@@ -3,6 +3,7 @@ title: "Un inédito de Demare"
 date: "2014-04-06"
 original_url: https://tangosalbardo.blogspot.com/2014/04/un-inedito-de-demare.html
 labels: ""
+tags: ["Lucio Demare"]
 ---
 
 Ya Madrid huele a primavera por todos lados y la temperatura nos calienta el cuerpo y el cuore. Anoche estuvimos de milonga y el tango se me quedó pegado. Por eso mientras se oye silbar a la olla con el tuco para la raviolada, yo me tomo un par de matecitos y estoy escuchando esa hermosa orquesta que tuvo Lucio Demare y que bailamos anoche.

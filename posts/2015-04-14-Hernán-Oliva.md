@@ -3,6 +3,7 @@ title: "Hernán Oliva"
 date: "2015-04-14"
 original_url: https://tangosalbardo.blogspot.com/2015/04/hernan-oliva.html
 labels: ""
+tags: ["Cátulo Castillo", "Horacio Salgán", "Roberto Firpo"]
 ---
 
 Siempre retorno mentalmente a aquellas increíbles y maravillosas noches del cincuenta, cuando la calle Corrientes era un desfile permanente de actores, músicos, cantores, milongueros y *gente del ambiente*... Aquellas Confiterías bailables que acogieron al tango en esa época estaban siempre a rebosar: Montecarlo, Nóbel, Dominó, Cero Club, Novelty, Sans Souci... y por ese motivo la famosa calle Corrientes era una fiesta, incluso, con sus cines y teatros siempre llenos.

@@ -3,6 +3,7 @@ title: "Miguel Poveda"
 date: "2013-07-23"
 original_url: https://tangosalbardo.blogspot.com/2013/07/miguel-poveda.html
 labels: ""
+tags: ["Rodolfo Mederos", "Armando Pontier", "Homero Expósito", "Carlos Gardel"]
 ---
 
 Este artista es un* rara avis* dentro del panorama del cante flamenco. Contra toda la historia, ha triunfado en el *cante jondo*, sin ser gitano ni andaluz. Y para más inri es catalán, rubio y muy respetado entre todo tipo de artistas. Es un auténtico referente del mundo flamenco de la actualidad, todo un derroche de sentimientos, fuerza y pasión.

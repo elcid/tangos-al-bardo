@@ -3,6 +3,7 @@ title: "Pichuco, Cátulo y el Polaco"
 date: "2012-07-12"
 original_url: https://tangosalbardo.blogspot.com/2012/07/pichuco-catulo-y-el-polaco.html
 labels: ""
+tags: ["Mercedes Simone", "Cátulo Castillo", "Aníbal Troilo"]
 ---
 
 No puedo despegarme de la imagen de Aníbal Troilo y me vienen a la cabeza infinidad de recuerdos.

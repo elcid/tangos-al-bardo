@@ -3,6 +3,7 @@ title: "Maravillosa historia de Amor y Tango"
 date: "2016-12-07"
 original_url: https://tangosalbardo.blogspot.com/2016/12/maravillosa-historia-de-amor-y-tango.html
 labels: ""
+tags: ["Juan D'Arienzo", "Carlos Bahr"]
 ---
 
 *Compás floreado de tango*  * *  * que al apretarme en tus brazos,*  * *  * me está encendiendo en los labios*  * *  * una palabra de amor. *    Carlos Bahr

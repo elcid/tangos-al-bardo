@@ -3,6 +3,7 @@ title: "¡Leguisamo solo!..."
 date: "2023-11-11"
 original_url: https://tangosalbardo.blogspot.com/2023/11/leguisamo-solo.html
 labels: ""
+tags: ["José María Aguilar", "Luis Bayón Herrera", "Carlos Di Sarli", "Alberto Echagüe", "Juan D'Arienzo", "Carlos Gardel", "Pedro Maffia", "Tita Merello"]
 ---
 
 * gritan los nenes de la popular**¡Leguisamo solo!**fuerte repiten los de la oficial... ** ** *Este tango que lleva letra y música del pianista y director de Orquesta Modesto Papávero, ha dado la vuelta al mundo gracias a las dos grabaciones que realizó Gardel* *del mismo, en 1925 y 1927*. *Y denota la función del lenguaje cuando parece estar usado para inaugurar un territorio poético-musical.* *Es cierto que el *turf* ha sido siempre uno de los principales imanes para los porteños "*escolaseadores*", pero también la prensa le ha dedicado amplio espacio a las carreras de caballos. * ** [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi2vUXgmIqzcNV3bKzK0LjNzaV7xUaVUnUvDVvvuacR563BFCvmNsBUQ_PMqgodMW2B6XSg6Cev-ChjChGVqrGWtJTwteJgl5WcLXjMSODqUVgPVD_DXMEXzKtJ4tqfXCdqlHN_NwGc2tjI4m_90Z_B-lR3jdXxVzvVSDa8G7Bc1MC2Q7_uZpr0ziXbWvkU/w213-h320/Pap%C3%A1vero%20descarga%20(15).jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi2vUXgmIqzcNV3bKzK0LjNzaV7xUaVUnUvDVvvuacR563BFCvmNsBUQ_PMqgodMW2B6XSg6Cev-ChjChGVqrGWtJTwteJgl5WcLXjMSODqUVgPVD_DXMEXzKtJ4tqfXCdqlHN_NwGc2tjI4m_90Z_B-lR3jdXxVzvVSDa8G7Bc1MC2Q7_uZpr0ziXbWvkU/s275/Pap%C3%A1vero%20descarga%20(15).jpg) Modesto Papávero

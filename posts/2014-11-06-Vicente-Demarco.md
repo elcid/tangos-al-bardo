@@ -3,6 +3,7 @@ title: "Vicente Demarco"
 date: "2014-11-06"
 original_url: https://tangosalbardo.blogspot.com/2014/11/vicente-demarco.html
 labels: ""
+tags: ["Enrique Santos Discépolo", "Alfredo De Angelis", "Antonio Bonavena", "Vicente Demarco", "Azucena Maizani", "Alberto Echagüe", "Agustín Magaldi", "Juan D'Arienzo"]
 ---
 
 Este músico, devenido en periodista en el otoño de su vida, merecería figurar con más laureles en las enciclopedias tangueras, por lo mucho que ha aportado en forma de composiciones que han tenido gran recorrido. La lista es larga pero además, sobre ellas planea una construcción muy bien elaborada y cuidada. Y hasta diría, engalanada, porque ha sabido edificar una obra de gratísimo perfil, enriqueciendo los atriles de orquestas y cantores.

@@ -3,6 +3,7 @@ title: "Ricardo Ruiz"
 date: "2012-11-24"
 original_url: https://tangosalbardo.blogspot.com/2012/11/los-que-siguen-el-blog-ya-saben-que-en.html
 labels: ""
+tags: ["Francisco Canaro", "Ricardo Ruiz"]
 ---
 
 Los que siguen el blog ya saben que, en su estilo, para mí, Ricardo Ruiz fue una de las hermosas voces del tango. Y cuando encontró el marco adecuado -la orquesta de Fresedo-, sus prestaciones se elevaron, dejando registrados con la misma 29 temas que son una dulzura para los oídos.

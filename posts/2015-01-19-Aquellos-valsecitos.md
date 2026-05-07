@@ -3,6 +3,7 @@ title: "Aquellos valsecitos"
 date: "2015-01-19"
 original_url: https://tangosalbardo.blogspot.com/2015/01/aquellos-valsecitos.html
 labels: ""
+tags: ["Libertad Lamarque", "Eugenio Nóbile", "Juan D'Arienzo"]
 ---
 
 He contado en este blog aquellos momentos tan lindos vividos en mi adolescencia, cuando podía entrar al Almacén y Despacho de bebidas, como se denominaban los boliches que tenían esas dos puertas. Por una se accedía al local donde se vendían los productos típicos que guardaban en sus alacenas las amas de casa (fideos, yerba, sal, querosén, fósforos, bacalao, jabón, fiambres, etc.) y por la otra entrada se accedía al Bar, ese vocablo inglés trasladado al castellano, antes de generalizarlos con el nombre definitivo de Café o* Feca*, para los muchachos que hablan al vesre (revés).

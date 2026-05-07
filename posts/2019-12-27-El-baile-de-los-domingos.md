@@ -3,6 +3,7 @@ title: "El baile de los domingos"
 date: "2019-12-27"
 original_url: https://tangosalbardo.blogspot.com/2019/12/el-baile-de-los-domingos.html
 labels: ""
+tags: ["Francisco García Jiménez", "Alberto Castillo", "Lucio Demare", "Raúl Berón"]
 ---
 
 Hace tiempo hablé, brevemente de este tango que escribiera Francisco García Jiménez y musicalizara Oscar Arona. Y hoy vuelvo porque se trata de un tema que me envuelve en nostalgias y recuerdos juveniles, cuando salíamos a bailar con unas ilusiones tremendas y hasta nos pegábamos un doblete, los domingos por ejemplo, yendo por la tardecita a mover las tabas en el "Unione", que era el Unione e Benevolenza. ubicado en Cangallo al 1300 (hoy Presidente Perón) y de ahí, volvíamos al barrio, nos arreglábamos un poquito y la seguíamos en Huracán, el templo milonguero de Parque Patricios.

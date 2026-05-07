@@ -3,6 +3,7 @@ title: "María Luisa Carnelli"
 date: "2018-04-30"
 original_url: https://tangosalbardo.blogspot.com/2018/04/maria-luisa-carnelli.html
 labels: ""
+tags: ["Eladia Blázquez", "Sebastián Piana", "Edgardo Donato", "Rosita Quiroga", "Julio De Caro"]
 ---
 
 Estamos en un período de la humanidad en que las mujeres buscan equiparar su lugar en la sociedad, con el hombre. Los últimos acontecimientos vividos en España, las reivindicaciones femeninas, las manifestaciones populares, demuestran que la lucha va a ser ardua, larga y las perspectivas ayudan para que puedan lograr gran parte de los derechos que reclaman, con toda justicia y sentido común.

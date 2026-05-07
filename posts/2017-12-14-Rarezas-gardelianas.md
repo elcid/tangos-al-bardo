@@ -3,6 +3,7 @@ title: "Rarezas gardelianas"
 date: "2017-12-14"
 original_url: https://tangosalbardo.blogspot.com/2017/12/rarezas-gardelianas.html
 labels: ""
+tags: ["Carlos Gardel"]
 ---
 
 En la recurrida discografía de Carlos Gardel, algunas de las versiones autorizadas por el cantor -y otras que no lo fueron pero se han comercializado-, registramos varias rarezas que resulta bastante interesante mencionar. Por ejemplo, las siguientes:

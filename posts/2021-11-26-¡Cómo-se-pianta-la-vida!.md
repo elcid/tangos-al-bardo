@@ -3,6 +3,7 @@ title: "¡Cómo se pianta la vida!"
 date: "2021-11-26"
 original_url: https://tangosalbardo.blogspot.com/2021/11/como-se-pianta-la-vida.html
 labels: ""
+tags: ["Enrique Rodríguez", "Alberto Castillo", "Luis Petrucelli", "Azucena Maizani", "Anselmo Aieta", "Néstor Fabián", "Pedro Maffia", "Héctor Mauré"]
 ---
 
 Tal vez será porque uno va cumpliendo años, ves desfilar a tantas figuras que dejaron huella, amigos que se piraron, las limitaciones lógicas de los años, las ambiciones amenguadas y otra filosofía para encarar esa recta final que a veces es muy lunga y en otras se va acortando... La cuestión es que este tango te bate la justa, no hay tu tía, que diría un filósofo de café.

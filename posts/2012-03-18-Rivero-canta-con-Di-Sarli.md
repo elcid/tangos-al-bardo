@@ -3,6 +3,7 @@ title: "Rivero canta con Di Sarli"
 date: "2012-03-18"
 original_url: https://tangosalbardo.blogspot.com/2012/03/normal-0-21-false-false-false.html
 labels: ""
+tags: ["Manuel Romero", "Jorge Durán"]
 ---
 
 Dos grosos juntos produciendo algo groso.

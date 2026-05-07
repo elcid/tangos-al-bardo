@@ -3,6 +3,7 @@ title: "Lenguas de fuego"
 date: "2016-09-23"
 original_url: https://tangosalbardo.blogspot.com/2016/09/lenguas-de-fuego.html
 labels: ""
+tags: ["Juan D'Arienzo", "Héctor Varela", "Carlos Waiss"]
 ---
 
 Hace unos días escribía en el blog sobre los valores de la obra de Carlos Waiss, que en general no le han sido reconocidos por los críticos, pese a la cantidad de éxitos que logró con sus temas. Es cierto que el hecho de que fuera la orquesta de Juan D'Arienzo -tan poco agradecida incluso por los historiadores- la que le sirviera de pantalla, influyó también en la apreciación de éstos, y creo que injustamente.

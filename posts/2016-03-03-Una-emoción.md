@@ -3,6 +3,7 @@ title: "Una emoción"
 date: "2016-03-03"
 original_url: https://tangosalbardo.blogspot.com/2016/03/una-emocion.html
 labels: ""
+tags: ["Roberto Goyeneche", "Ricardo Tanturi", "Atilio Stampone", "Enrique Campos", "Lucio Demare", "Raúl Kaplún", "Raúl Berón"]
 ---
 
 El título ya está describiendo certeramente algunos de esos momentos que atravesamos en una pista de baile, cuando nos sentimos transportados por un sentimiento íntimo, poderoso, especial, que va guiando nuestros pasos. Cuando nuestro cuenta kilómetros milonguero está al mango, le prestamos más nuestra oreja a los versos que van acompañando a la música y seguimos descubriendo profundidades en algunos de ellos, como en éste del título, por ejemplo.

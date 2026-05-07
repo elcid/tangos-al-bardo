@@ -3,6 +3,7 @@ title: "Cuarteto Palais de Glace"
 date: "2014-03-22"
 original_url: https://tangosalbardo.blogspot.com/2014/03/cuarteto-palais-de-glace.html
 labels: ""
+tags: ["Leopoldo Federico", "Francisco Canaro", "Atilio Stampone"]
 ---
 
 Hace dos días que regresé de Buenos Aires y tengo el cuore inflado de romanticismo. Los amigos, los recuerdos, los hermosos días pasados en La reina del Plata y este sábado luminoso de Madrid, hacen que me levante romántico, porteño y bailarín.

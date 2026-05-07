@@ -3,6 +3,7 @@ title: "Troilo-Fiore"
 date: "2013-10-02"
 original_url: https://tangosalbardo.blogspot.com/2013/10/troilo-fiore.html
 labels: ""
+tags: ["Juan Carlos Cobián", "Osvaldo Pugliese", "Luis Petrucelli", "Alberto Marino", "Julio De Caro", "Alfredo Gobbi", "Pedro Maffia", "Orlando Goñi"]
 ---
 
 Una diada de director-cantor, que marca el inicio de Pichuco como gran protagonista de la historia del tango, abarca una época de lujo y deja inscriptas en la página curricular y discográfica una retahila de sucesos que aun hoy, a 76 años del debut en el Marabú, siguen iluminando las pistas de baile, como sucedió, por ejemplo, en *Noches porteñas*, la milonga que inauguré anoche en Madrid.

@@ -3,6 +3,7 @@ title: "“La vida no es un tango..."
 date: "2022-10-06"
 original_url: https://tangosalbardo.blogspot.com/2022/10/la-vida-no-es-un-tango.html
 labels: ""
+tags: ["Juan José Mosalini", "Leopoldo Federico", "Susana Rinaldi", "Horacio Salgán", "José Basso"]
 ---
 
 , pero le pasa raspando".

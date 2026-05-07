@@ -3,6 +3,7 @@ title: "De la milonga"
 date: "2016-02-27"
 original_url: https://tangosalbardo.blogspot.com/2016/02/de-la-milonga.html
 labels: ""
+tags: ["Alberto Podestá", "Pedro Laurenz"]
 ---
 
 Después de tantos años militando en ese mundo sonoro y plástico, sensual y social, cordial y ameno, uno podría estar días enteros hablando de sus experiencias en la milonga. Sobre todo ahora que se viaja por todo el mundo y uno se encuentra con salones de baile destinados al tango, convocando a legiones de milongueros de ambos sexos. Y que siguen girando con las viejas selecciones de grabaciones de los años treinta, cuarenta y cincuenta del siglo pasado.

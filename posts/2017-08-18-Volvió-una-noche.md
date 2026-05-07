@@ -3,6 +3,7 @@ title: "Volvió una noche"
 date: "2017-08-18"
 original_url: https://tangosalbardo.blogspot.com/2017/08/volvio-una-noche.html
 labels: ""
+tags: ["Alfredo Le Pera", "Carlos Gardel"]
 ---
 
 Este tango me conmueve desde las primeras veces que lo escuché grabado por Carlos Gardel y yo era algo así como un adolescente que de rebote, por mi hermano, me comía todas las audiciones tangueras que había en las emisoras radiales y los discos que él compraba. La letra de Alfredo Le Pera es tremenda, y uno se siente obligado a pensar que él habrá vivido esa circunstancia que narra en el tema, aunque murió en el accidente de Medellín y tenía apenas 35 años, por lo cual cabe descartar sus vivencias en ese sentido.

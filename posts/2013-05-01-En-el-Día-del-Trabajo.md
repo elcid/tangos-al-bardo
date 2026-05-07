@@ -3,6 +3,7 @@ title: "En el Día del Trabajo"
 date: "2013-05-01"
 original_url: https://tangosalbardo.blogspot.com/2013/05/en-el-dia-del-trabajo.html
 labels: ""
+tags: ["Enrique Santos Discépolo", "Francisco García Jiménez", "José María Contursi", "Juan Carlos Cobián", "Roberto Goyeneche", "Domingo Federico", "Francisco Lomuto", "Homero Expósito"]
 ---
 
 Los tangueros fueron siempre muy unidos, aunque hubiese algo de rivalidad, pero como había trabajo para todos, mucho talento, esto reforzó aquella unidad que les permitió fundar la Sociedad autoral de autores y compositores (SADAIC), como así también la de Directores de Orquesta y la de intérpretes.

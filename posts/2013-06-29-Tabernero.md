@@ -3,6 +3,7 @@ title: "Tabernero"
 date: "2013-06-29"
 original_url: https://tangosalbardo.blogspot.com/2013/06/tabernero.html
 labels: ""
+tags: ["Enrique Rodríguez", "Ignacio Corsini", "Aníbal Troilo", "Carlos Gardel"]
 ---
 
 Este tango fue una de las grandes creaciones de Fiorentino con la orquesta de Aníbal Troilo. Años antes lo había grabado Carlos Gardel y me gusta recordar cómo se hizo esta página porque contiene unos ingredientes y anécdota muy interesantes.

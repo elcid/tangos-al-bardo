@@ -3,6 +3,7 @@ title: "Bien Milonga"
 date: "2022-06-28"
 original_url: https://tangosalbardo.blogspot.com/2022/06/bien-milonga_28.html
 labels: ""
+tags: ["Juan D'Arienzo", "Aníbal Troilo"]
 ---
 
 Bailemos...

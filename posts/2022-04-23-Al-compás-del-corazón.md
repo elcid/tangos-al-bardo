@@ -3,6 +3,7 @@ title: "Al compás del corazón"
 date: "2022-04-23"
 original_url: https://tangosalbardo.blogspot.com/2022/04/al-compas-del-corazon.html
 labels: ""
+tags: ["Domingo Federico", "Homero Expósito", "Pedro Maffia", "Miguel Caló", "Raúl Berón"]
 ---
 
 Este tango que fue todo un suceso en los años cuarenta y se prolonga en el tiempo, encierra una historia realmente sorprendente, imaginativa, y borda imágenes con un intenso poder de sugestión. La música y la poesía de Domingo Federico y Homero Expósito se aúnan nuevamente con su potencia estética, luego del éxito de **Yo soy el tango**,** **y logran toda una creación con este tema que dejará huella.

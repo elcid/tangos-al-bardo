@@ -3,6 +3,7 @@ title: "Credo de Amor en Tango"
 date: "2023-04-21"
 original_url: https://tangosalbardo.blogspot.com/2023/04/credo-de-amor-en-tango.html
 labels: ""
+tags: ["Horacio Ferrer"]
 ---
 
 **M**e preguntás amor mío, pequeña mía, qué es Tango, y yo duende del asfalto, te digo:

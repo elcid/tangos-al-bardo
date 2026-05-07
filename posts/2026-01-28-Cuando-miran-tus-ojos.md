@@ -3,6 +3,7 @@ title: "Cuando miran tus ojos"
 date: "2026-01-28"
 original_url: https://tangosalbardo.blogspot.com/2026/01/cuando-miran-tus-ojos.html
 labels: ""
+tags: ["José María Aguilar", "Enrique Cadícamo", "Adolfo Carabelli", "Alberto Echagüe", "Roberto Firpo", "Charlo"]
 ---
 
 El valsecito criollo forma un terceto maravilloso junto al tango y la milonga, todos surgidos del tronco tanguero que les dio alas a sus compañeros musicales gracias a las virtudes de compositores, poetas e intérpretes. En la pista de baile el valsecito nos toca el* cuore* y nos llama a bailarlo y a disfrutarlo de manera distinta, pero siempre con la emoción que muchas veces nos desborda en los giros.

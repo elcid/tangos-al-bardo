@@ -3,6 +3,7 @@ title: "La cachila"
 date: "2013-07-27"
 original_url: https://tangosalbardo.blogspot.com/2013/07/la-cachila.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Carlos Di Sarli", "Rodolfo Mederos", "Eduardo Arolas", "Julio De Caro"]
 ---
 
 ¿Cuántas veces lo habré escuchado? ¡Cuántas lo habré bailado! Y este tangazo de Eduardo Arolas sigue haciéndome cosquillas en el cuore y en los pies cada vez que empieza a sonar en algún reproductor.

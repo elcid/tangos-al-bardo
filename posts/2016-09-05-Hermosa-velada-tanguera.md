@@ -3,6 +3,7 @@ title: "Hermosa velada tanguera"
 date: "2016-09-05"
 original_url: https://tangosalbardo.blogspot.com/2016/09/hermosa-velada-tanguera.html
 labels: ""
+tags: ["Luis César Amadori", "Horacio Salgán", "Aníbal Troilo"]
 ---
 
 Hay nochecitas especiales que te llenan el cuore y se te hacen cortitas, aunque duren dos horas y media. Me sucedió, sin ir más lejos, el pasado martes cuando fui a escuchar a un dúo muy especial. Leonel Capitano (bandoneonista, cantor, compositor) y Joel Tortul (pianista, director, compositor), que llegaban de Rosario -Argentina- para una gira europea que se prolongará durante dos meses.

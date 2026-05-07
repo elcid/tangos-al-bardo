@@ -3,6 +3,7 @@ title: "Quinteto argentino de cuerdas"
 date: "2014-12-28"
 original_url: https://tangosalbardo.blogspot.com/2014/12/quinteto-argentino-de-cuerdas.html
 labels: ""
+tags: ["Francisco Canaro", "Osvaldo Pugliese", "Osvaldo Fresedo", "Edgardo Donato", "Aníbal Troilo", "Carlos Gardel", "Vicente Greco", "Pedro Laurenz"]
 ---
 
 Después de estos días de vino y rosas, nada mejor que poner a andar la vitrola, o el reproductor para ser más precisos, y escuchar una música que nos serene, porque entre otras cositas, nos queda la Milonga-despedida del año, el día martes 30, la opípara cena del 31, más los consabidos cohetes, matracas, pitos, abrazos de buenos deseos, llamados de amigos y familiares y una madrugada a tutiplén.

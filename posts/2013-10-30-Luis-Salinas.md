@@ -3,6 +3,7 @@ title: "Luis Salinas"
 date: "2013-10-30"
 original_url: https://tangosalbardo.blogspot.com/2013/10/luis-salinas.html
 labels: ""
+tags: ["Horacio Salgán", "Roberto Grela", "María Graña"]
 ---
 
 Es un gigante de la guitarra que ha paseado su arte por el mundo, continuando la estirpe de grandes ejecutantes nacidos en Argentina, entre ellos Roberto Grela, de quien afirma que"*es el guitarrista de tango más grande que ha dado nuestro país".*

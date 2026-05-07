@@ -3,6 +3,7 @@ title: "BIEN MILONGA"
 date: "2019-03-12"
 original_url: https://tangosalbardo.blogspot.com/2019/03/bien-milonga_12.html
 labels: ""
+tags: ["Alberto Echagüe", "Ricardo Tanturi", "Juan D'Arienzo"]
 ---
 
 [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjacwS4WcuDx57Cj3dEEYMmYO-GDAt28iGOcRPVf7i42jRj9-eFbjrDBpzp1hpxImA9ESXzmm5tO-EK9dZkrPRtJhY0o-WFZ2FUuQYWR0hc-5_5P2klckvDSuR9e1CLdTuQvWIlJObNUGE3/s200/Claire-y-Dario-maestros.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjacwS4WcuDx57Cj3dEEYMmYO-GDAt28iGOcRPVf7i42jRj9-eFbjrDBpzp1hpxImA9ESXzmm5tO-EK9dZkrPRtJhY0o-WFZ2FUuQYWR0hc-5_5P2klckvDSuR9e1CLdTuQvWIlJObNUGE3/s1600/Claire-y-Dario-maestros.jpg) * A ver, quién baila este tango,*

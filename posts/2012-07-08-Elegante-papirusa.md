@@ -3,6 +3,7 @@ title: "Elegante papirusa"
 date: "2012-07-08"
 original_url: https://tangosalbardo.blogspot.com/2012/07/elegante-papirusa.html
 labels: ""
+tags: ["Edgardo Donato", "Miguel Caló"]
 ---
 
 En principio, este título del tango del violinista de la guardia vieja Tito Roccatagliata, sugiere una dedicatoria especial a una dama. Y lo tiene.

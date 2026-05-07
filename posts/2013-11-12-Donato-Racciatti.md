@@ -3,6 +3,7 @@ title: "Donato Racciatti"
 date: "2013-11-12"
 original_url: https://tangosalbardo.blogspot.com/2013/11/donato-racciatti.html
 labels: ""
+tags: ["Donato Racciatti", "Francisco Canaro", "Eduardo Arolas", "Juan D'Arienzo"]
 ---
 
 Este tano bajito, muy simpático y entrador, dirigió durante años la orquesta de tango más popular de Uruguay y realizó numerosas presentaciones a lo largo de la Argentina, en Buenos Aires y en provincias. Su estilo con evidente similitud al de Juan D'Arienzo, le permitió obtener el plácet de los milongueros y a eso le agregó la cantidad de buenos cantores que tuvo en su formación. Es digno de tener en cuenta que realizó nada menos que 14 viajes consecutivos a Japón entre 1983 y 1997, recorriendo todo el país y siendo muy aplaudido y querido por el público de ese país.

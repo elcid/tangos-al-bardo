@@ -3,6 +3,7 @@ title: "El drama de Fanny Navarro"
 date: "2024-04-23"
 original_url: https://tangosalbardo.blogspot.com/2024/04/el-drama-de-fanny-navarro.html
 labels: ""
+tags: ["Luis César Amadori", "Julio De Caro"]
 ---
 
 Era hermosa, talentosa, y comenzó a actuar siendo adolescente. Sin embargo, la imagen que proyectaba Fanny Navarro no cargaba el halo seductor de Zully Moreno, tampoco la cándida inocencia de Mirtha Legrand. Ella era la encarnación de la mujer fuerte y autosuficiente, capaz de abrirse paso en un mundo que muchas veces le resultaba adverso. Es decir, de acuerdo al imaginario de los años 40, ni sugerente ni idealista: peronista.

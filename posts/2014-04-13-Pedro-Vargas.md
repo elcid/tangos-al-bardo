@@ -3,6 +3,7 @@ title: "Pedro Vargas"
 date: "2014-04-13"
 original_url: https://tangosalbardo.blogspot.com/2014/04/pedro-vargas.html
 labels: ""
+tags: ["Libertad Lamarque", "Francisco Canaro", "Osvaldo Fresedo", "Hugo del Carril", "Alberto Gómez", "Charlo"]
 ---
 
 En los triunfantes años del tango, la maravillosa década del cuarenta, también el bolero hizo pie en las radios y discográficas porteñas y numerosos cantantes de este género melódico, cosecharon aplausos en la tierra del tango.

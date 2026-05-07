@@ -3,6 +3,7 @@ title: "La Tana Rinaldi"
 date: "2013-05-30"
 original_url: https://tangosalbardo.blogspot.com/2013/05/la-tana-rinaldi.html
 labels: ""
+tags: ["Leopoldo Federico", "Eladia Blázquez", "Cátulo Castillo", "Roberto Pansera", "Susana Rinaldi", "Aníbal Troilo"]
 ---
 
 Es una mina que, sin duda rompió todos los moldes y estereotipos de la cantante de tangos y supo imponer ese estilo que le permitió meterse a París en el bolsillo, llenar teatros y sitios de música en la fría Escandinavia y ser franca y directa en su vida pública.

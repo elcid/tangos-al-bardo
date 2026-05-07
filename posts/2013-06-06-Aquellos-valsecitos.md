@@ -3,6 +3,7 @@ title: "Aquellos valsecitos"
 date: "2013-06-06"
 original_url: https://tangosalbardo.blogspot.com/2013/06/aquellos-valsecitos.html
 labels: ""
+tags: ["Roberto Firpo"]
 ---
 
 Estábamos rememorando con amigos tangueros las viejas épocas porteñas, con guitarreros y fueyes anónimos, salpicando toda la geografía de la ciudad. Las serenatas que recuerdan algunos de aquellos valsecitos de antaño, eran moneda corriente. Se armaban espontáneamente, porque algún muchacho enamorado, que formaba en las inolvidables barras de la esquina, decidía repentinamente ir a cantarle a su novia y los animadores desenfundaban la guitarra o el fueye, había golas de troveros dispuestas a desagotar su repertorio, y las madrugadas de primavera o verano, veían iluminarse alguna ventana o abrirse una puerta amiga con la consabida invitación a tomar un generoso trago, después del canto.

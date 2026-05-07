@@ -3,6 +3,7 @@ title: "Pa'que seguir"
 date: "2016-02-18"
 original_url: https://tangosalbardo.blogspot.com/2016/02/paque-seguir.html
 labels: ""
+tags: ["Francisco Fiorentino", "Juan Carlos Cobián", "Francisco Canaro", "Aníbal Troilo", "Julio Pollero", "José Martínez", "Pedro Maffia", "Raúl Garello"]
 ---
 
 Es un tango que hemos escuchado en infinidad de ocasiones, lo hemos bailado en otras tantas y he decidido traer hoy al blog porque lo tengo zumbando en mi cabeza desde temprano y porque aúna motivos de sobra para merecer un análisis destacado. En primer término, sencillamente, por que es hermoso. Y tiene unas representaciones maravillosas, arrancando por la de Troilo con Fiorentino.

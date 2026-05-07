@@ -3,6 +3,7 @@ title: "El encopao"
 date: "2015-07-06"
 original_url: https://tangosalbardo.blogspot.com/2015/07/el-encopao.html
 labels: ""
+tags: ["Juan Carlos Cobián", "Enrique Rodríguez", "Celedonio Flores", "Francisco Canaro", "Osvaldo Pugliese", "Aníbal Troilo", "Carlos Gardel", "Enrique Dizeo"]
 ---
 
 Este tango de Osvaldo Pugliese y Enrique Dizeo tiene su pequeña historia. Porque lo realizaron en 1942, y con el el título ya alcanzó para ser perseguido por la censura del golpe militar que he descripto en estos últimos días. Lo grabó Troilo con Fiorentino el 1º de septiembre de 1942, y el tango tuvo muchísima aceptación, porque además, Pichuco ya había entrado en el gusto popular y la voz musical de Fiore, le daban un marchamo a todas esas históricas grabaciones, que en este caso era la número 41 de esa gran orquesta.

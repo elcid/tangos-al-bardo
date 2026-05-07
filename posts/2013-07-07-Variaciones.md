@@ -3,6 +3,7 @@ title: "Variaciones"
 date: "2013-07-07"
 original_url: https://tangosalbardo.blogspot.com/2013/07/variaciones.html
 labels: ""
+tags: ["Libertad Lamarque", "María Graña"]
 ---
 
 Las variaciones, ese empujón de ánimo a los milongueros en el momento culminante de un tango o un valsecito, debemos tratarlas en la pista con mucho mimo y polenta.

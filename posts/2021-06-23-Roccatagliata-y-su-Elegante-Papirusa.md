@@ -3,6 +3,7 @@ title: "Roccatagliata y su Elegante Papirusa"
 date: "2021-06-23"
 original_url: https://tangosalbardo.blogspot.com/2021/06/roccatagliatta-y-su-elegante-papirusa.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Eduardo Arolas", "Edgardo Donato", "Héctor Varela", "Julio De Caro", "Roberto Firpo", "Miguel Caló"]
 ---
 
 Se llamaba David, aunque para todo el mundo era Tito, y fue un destacado violinista de la guardia vieja. Fue un grande del instrumento y con su violín generó un modo muy personal y original de interpretar el tango. A tal punto que mucho aseguran que fue la fuente inspiradora de numerosos ejecutantes del violín, entre los cuales se puede encontrar nada menos que a Julio De Caro.

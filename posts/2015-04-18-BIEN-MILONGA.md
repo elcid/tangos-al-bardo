@@ -3,6 +3,7 @@ title: "BIEN MILONGA"
 date: "2015-04-18"
 original_url: https://tangosalbardo.blogspot.com/2015/04/bien-milonga_18.html
 labels: ""
+tags: ["Francisco Canaro", "Juan D'Arienzo", "Ángel Vargas"]
 ---
 
 Ángel Vargas lo cantaba así:

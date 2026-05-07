@@ -3,6 +3,7 @@ title: "Otoño con el Polaco"
 date: "2012-12-13"
 original_url: https://tangosalbardo.blogspot.com/2012/12/otono-con-el-polaco.html
 labels: ""
+tags: ["Roberto Goyeneche", "Armando Pontier", "Raúl Garello"]
 ---
 
 Miro por la ventana y no paran de caer las hojas de los árboles venteadas por el aire otoñal. Es como un mensaje subliminal para sumergirme obligadamente en esa melanco que nos teje la urdimbre de los tiempos pasados, y escribo mientras escucho atentamente al Polaco.

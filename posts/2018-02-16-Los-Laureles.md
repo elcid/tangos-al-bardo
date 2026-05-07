@@ -3,6 +3,7 @@ title: "Los Laureles"
 date: "2018-02-16"
 original_url: https://tangosalbardo.blogspot.com/2018/02/los-laureles.html
 labels: ""
+tags: ["Enrique Cadícamo", "Hugo del Carril", "Eduardo Arolas", "Carlos Gardel", "Anselmo Aieta", "Ángel Vargas"]
 ---
 
 Esta nota fue publicada en el periódico **Tiempo argentino**, y creo que vale la pena recrear la historia de este boliche del barrio porteño de Barracas que lleva tantos años dándole cuerda al tango, a milonguear y a la demostración de cantantes, guitarreros y músicos en general. Es una estampa vívida del tiempo transcurrido entre sus centenarias paredes, encerrando una vaga nostalgia no enturbiada por la modernidad del barrio y la ciudad. Por eso la traigo al blog.

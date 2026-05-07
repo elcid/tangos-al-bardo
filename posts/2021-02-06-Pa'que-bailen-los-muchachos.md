@@ -3,6 +3,7 @@ title: "Pa'que bailen los muchachos"
 date: "2021-02-06"
 original_url: https://tangosalbardo.blogspot.com/2021/02/paque-bailen-los-muchachos.html
 labels: ""
+tags: ["Enrique Cadícamo"]
 ---
 
 Desde que estamos confinados por la pandemia que azota al mundo entero, con los amigos y amigas de la milonga no dejamos de lamentarnos por tanto infortunio colectivo. De paso recordamos las noches en que le dábamos gusto al cuerpo y al cuore, bailando al compás de las grandes orquestas típicas que hoy son leyenda en tantos lugares. A ello hay que agregar la ilusión de seleccionar los temas de cada noche, ese preámbulo donde se va formateando la milonga.

@@ -3,6 +3,7 @@ title: "Orquesta Osvaldo Pugliese"
 date: "2019-08-08"
 original_url: https://tangosalbardo.blogspot.com/2019/08/orquesta-osvaldo-pugliese.html
 labels: ""
+tags: ["Juan José Mosalini", "Ismael Spitalnik", "Osvaldo Pugliese", "Rodolfo Mederos", "Eduardo Arolas", "Daniel Binelli", "Julio De Caro", "Pedro Laurenz"]
 ---
 
 **Del Decarismo al Pugliesismo**

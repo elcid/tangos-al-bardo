@@ -3,6 +3,7 @@ title: "La zandunga"
 date: "2016-10-14"
 original_url: https://tangosalbardo.blogspot.com/2016/10/la-zandunga.html
 labels: ""
+tags: ["Francisco Canaro"]
 ---
 
 Estuve varias veces en México, en alguna oportunidad permanecí un mes entero, por razones laborales, periodísticas. También pasé unas inolvidables vacaciones en las paradisíacas playas que tiene este país y que han ganado justa fama internacional. En una ocasión en que me invitaron a un boliche, la cantante que llenaba el escenario con su presencia artística, cantó este son tradicional del istmo, que nosotros conocíamos como vals.

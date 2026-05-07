@@ -3,6 +3,7 @@ title: "Los músicos figurantes"
 date: "2021-11-03"
 original_url: https://tangosalbardo.blogspot.com/2021/11/los-musicos-figurantes.html
 labels: ""
+tags: ["Alfredo De Angelis", "Francisco Lomuto", "Astor Piazzolla", "Cátulo Castillo", "Miguel Caló"]
 ---
 
 Al llegar el micrófono eléctrico, a mediados de la década del veinte, se fue extinguiendo la extraña profesión de *músico figurante*, en el tango. Estos personajes, denominados así, se limitaban a hacer bulto en los conjuntos, simulando tañer un instrumento que apenas dominaban. En el caso de los violinistas, empuñaban el mismo y frotaban las cuerdas con un arco de cerdas sin pez, para que no emitiesen ningún sonido.

@@ -3,6 +3,7 @@ title: "Angelito Vargas"
 date: "2012-09-10"
 original_url: https://tangosalbardo.blogspot.com/2012/09/angelito-vargas.html
 labels: ""
+tags: ["Enrique Cadícamo", "Reinaldo Yiso", "Ángel Vargas"]
 ---
 
 Es otra de mis debilidades tangueras. Este cantorazo de Parque Patricios, nacido en la calle Pepirí, juntito al parque, como *la piba mimada* del tango de Armando Tagini.

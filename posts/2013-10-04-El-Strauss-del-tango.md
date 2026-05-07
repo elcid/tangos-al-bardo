@@ -3,6 +3,7 @@ title: "El Strauss del tango"
 date: "2013-10-04"
 original_url: https://tangosalbardo.blogspot.com/2013/10/el-strauss-del-tango.html
 labels: ""
+tags: ["José María Contursi", "Juan Carlos Cobián", "Carlos Di Sarli", "Enrique Delfino", "Homero Expósito", "Cátulo Castillo", "Agustín Bardi", "Carlos Bahr"]
 ---
 
 En algún reportaje que le hicieron, hablando de músicos salió el nombre de Héctor Stamponi, el pianista de Campana (Provincia de Buenos Aires) y Ástor Piazzolla dijo que era "El Strauss del tango", lo que habla del respeto que le tenía en el ámbito de la composición a *Chupita*, como se le conocía en el ambiente tan propicio a los motes cariñosos.

@@ -3,6 +3,7 @@ title: "Son cosas mías"
 date: "2015-05-12"
 original_url: https://tangosalbardo.blogspot.com/2015/05/son-cosas-mias.html
 labels: ""
+tags: ["Alfredo De Angelis", "Leopoldo Federico", "Jorge Dragone", "Miguel Caló"]
 ---
 
 Este tango de Alfredo De Angelis y Francisco Yoni, lo grabó la orquesta del autor, con el cantor Roberto Mancini en Colombia. Fue en 1964, en los Estudios del SelloFuentes de dicho país, durante una exitosa gira de la orquesta del *Colorado* de Banfield, y allí mismo se estrenó la obra.

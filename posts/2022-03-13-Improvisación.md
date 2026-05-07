@@ -3,6 +3,7 @@ title: "Improvisación"
 date: "2022-03-13"
 original_url: https://tangosalbardo.blogspot.com/2022/03/improvisacion.html
 labels: ""
+tags: ["Juan Carlos Copes", "Aníbal Troilo"]
 ---
 
 “*Tú conoces el secreto de los tangos

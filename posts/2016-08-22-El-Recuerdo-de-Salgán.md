@@ -3,6 +3,7 @@ title: "El Recuerdo de Salgán"
 date: "2016-08-22"
 original_url: https://tangosalbardo.blogspot.com/2016/08/el-recuerdo-de-salgan.html
 labels: ""
+tags: ["Leopoldo Federico", "Osvaldo Pugliese", "Alberto Marino", "Horacio Salgán"]
 ---
 
 Es como un petit-homenaje a este gran músico, pianista, director, compositor y arreglador, que nos dejó con sus 100 años llenos de historia y de música. y la manera de traer hoy al blog a Horacio Salgán es la historia que publiqué en este espacio, un domingo de marzo de hace 4 años. Y que acá reproduzco, tal cual, nuevamente:

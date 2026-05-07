@@ -3,6 +3,7 @@ title: "Julián Centeya"
 date: "2020-09-01"
 original_url: https://tangosalbardo.blogspot.com/2020/09/julian-centeya.html
 labels: ""
+tags: ["Enrique Delfino", "Julián Centeya", "Aníbal Troilo", "Homero Manzi", "Miguel Caló"]
 ---
 
 Su figura se agiganta con el paso del tiempo, por su obra, por su trabajo como poeta, periodista, presentador de orquestas, chamuyador inigualable y dueño de una cultura basada en los libros leídos y su aprendizaje de la vida. Una existencia complicada desde que tuvo que salir con sus padres y familia en un barco desde Italia, rumbo a la Argentina para huir de los problemas que acechaban a su progenitor...

@@ -3,6 +3,7 @@ title: "Salimos a bailar"
 date: "2014-09-22"
 original_url: https://tangosalbardo.blogspot.com/2014/09/salimos-bailar.html
 labels: ""
+tags: ["Armando Pontier", "Ricardo Tanturi", "Tita Merello", "Raúl Kaplún"]
 ---
 
 Hoy se me metió este tango en el balero y llevo cantándolo toda la matina. Son cosas algo inexplicables, porque en las milongas casi no se pasa, y no es un tema que tenga gran difusión. Pero a mí me gusta la letra, por lo bien que pinta el romance milonguero y la descripción que va haciendo en el desarrollo del mismo. La interpretación de Juan Carlos Godoy, ese cantor de Campana, sobreviviente de la época del oro del tango, que sigue dándole a la gola, con sus 92 floridos años, es impecable y le da realce al tema.

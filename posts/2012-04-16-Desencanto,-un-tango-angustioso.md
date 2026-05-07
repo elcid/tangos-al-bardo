@@ -3,6 +3,7 @@ title: "Desencanto, un tango angustioso"
 date: "2012-04-16"
 original_url: https://tangosalbardo.blogspot.com/2012/04/desencanto-un-tango-angustioso.html
 labels: ""
+tags: ["Luis César Amadori"]
 ---
 
 La angustia metafísica que consumió a Enrique Santos Discepólo está reflejada en las letras de sus tangos y en los personajes que interpretó en las obras teatrales, donde participó como guionista.

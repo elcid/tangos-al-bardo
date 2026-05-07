@@ -3,6 +3,7 @@ title: "Bien Milonga"
 date: "2022-02-22"
 original_url: https://tangosalbardo.blogspot.com/2022/02/bien-milonga_22.html
 labels: ""
+tags: ["Alberto Castillo", "Alberto Echagüe", "Juan D'Arienzo", "Aníbal Troilo"]
 ---
 
 Tocar, cantar, bailar…

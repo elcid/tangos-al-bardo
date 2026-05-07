@@ -3,6 +3,7 @@ title: "Un millón de visitas..."
 date: "2019-05-23"
 original_url: https://tangosalbardo.blogspot.com/2019/05/un-millon-de-visitas.html
 labels: ""
+tags: ["Francisco García Jiménez", "Libertad Lamarque", "Juan Carlos Copes", "Alberto Castillo", "Cátulo Castillo", "Julio Camilloni", "Enrique Campos", "Edmundo Rivero"]
 ---
 
 Son las que acaban de completar en mi Blog: **Tangos al Bardo**. Una página que comencé a escribir el 25 de febrero de 2012, un poco a la bartola, hasta que vi que la posibilidad de contribuir no sólo a la difusión del tango en su conjunto (Música, verso, baile), sino también como una experiencia prsonal

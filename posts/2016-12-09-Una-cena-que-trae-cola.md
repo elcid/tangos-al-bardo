@@ -3,6 +3,7 @@ title: "Una cena que trae cola"
 date: "2016-12-09"
 original_url: https://tangosalbardo.blogspot.com/2016/12/una-cena-que-trae-cola.html
 labels: ""
+tags: ["Enrique Rodríguez", "Francisco Canaro", "Arturo De Bassi", "Julio De Caro", "Pedro Laurenz", "Homero Manzi", "Nelly Omar"]
 ---
 
 A lo largo de mi existencia y por frecuentar la amistad y conocimiento de numerosos tangueros, -cantores, directores, músicos, compositores, historiadores-, he escuchado versiones más o menos precisas, más o menos difusas sobre la obra y el trabajo de muchos profesionales. Por supuesto, hay algunos personajes que se llevan la palma sobre supuestas obras adquiridas o regaladas que luego firmaban con su nombre. Y también, *chimentos* de todo tipo.

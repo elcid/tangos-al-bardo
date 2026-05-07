@@ -3,6 +3,7 @@ title: "Bailongo de los sábados"
 date: "2015-07-18"
 original_url: https://tangosalbardo.blogspot.com/2015/07/bailongo-de-los-sabados.html
 labels: ""
+tags: ["Francisco García Jiménez", "Francisco Lomuto", "Alberto Castillo", "Ricardo Tanturi", "Raúl Garello", "Lucio Demare", "Miguel Caló", "Raúl Berón"]
 ---
 
 El título imita al del tango de Oscar Arona y Francisco García Jiménez: *Bailongo de los domingos*. Pero como en este caso la milonga la realizamos los sábados night, no me importa recurrir a los versos del gran vate que haría lucir a Alberto Castillo con la Orquesta de Ricardo Tanturi, en este gotán cortado a la medida del excelente cantor que fue el *Cabezón* del barrio de Mataderos. Aunque Raúl Berón con la orquesta de Lucio Demare no se quedó atrás en la interpretación de este tango. Claro, que por aquello de la censura, Demare lo grabó como: *El baile de los domingos*. ¡Mirá vos!

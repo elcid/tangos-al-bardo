@@ -3,6 +3,7 @@ title: "La bordona II"
 date: "2012-10-13"
 original_url: https://tangosalbardo.blogspot.com/2012/10/la-bordona-ii.html
 labels: ""
+tags: ["Aníbal Troilo"]
 ---
 
 Un amigo me pregunta en el Blog, cuántas veces grabó Aníbal Troilo el tango de Emilio Balcarce: *La Bordona.*

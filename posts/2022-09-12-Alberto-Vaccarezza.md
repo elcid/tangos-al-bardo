@@ -3,6 +3,7 @@ title: "Alberto Vaccarezza"
 date: "2022-09-12"
 original_url: https://tangosalbardo.blogspot.com/2022/09/alberto-vaccarezza.html
 labels: ""
+tags: ["Leopoldo Federico", "Francisco Canaro", "Enrique Delfino", "Azucena Maizani", "Juan D'Arienzo", "Carlos Gardel", "Mariano Mores", "Héctor Mauré"]
 ---
 
 Considero que es importante recordar la obra de este talentoso sainetero, comediógrafo, poeta, que dejó un tendal de obras teatrales y de tangos durante toda su etapa productiva. Una etapa que fue larga, homogénera, criollista y exitosa. Nacido en el barrio de Almagro el 1 de abril de 1888, pero criado en el barrio de Villa Crespo, nunca dejó atrás a esas calles donde creció y y en las cuales se fue familiariarizando con el habla de los amigos, vecinos, comerciantes y demás que habitaban aquellos conventillos proletarios, con inmigrantes europeos que buscaban un nuevo destino.

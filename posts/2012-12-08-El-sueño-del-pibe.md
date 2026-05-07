@@ -3,6 +3,7 @@ title: "El sueño del pibe"
 date: "2012-12-08"
 original_url: https://tangosalbardo.blogspot.com/2012/12/el-sueno-del-pibe.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Ricardo Tanturi", "Enrique Campos"]
 ---
 
 Es un tango con letra sencilla de Reynaldo Yiso y música de Juan Puey, que en 1945 grabaron Osvaldo Pugliese con la voz de Roberto Chanel y Ricardo Tanturi, cantando Enrique Campos.

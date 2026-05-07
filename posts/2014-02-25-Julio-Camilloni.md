@@ -3,6 +3,7 @@ title: "Julio Camilloni"
 date: "2014-02-25"
 original_url: https://tangosalbardo.blogspot.com/2014/02/julio-camilloni.html
 labels: ""
+tags: ["José González Castillo", "Domingo Federico", "Fulvio Salamanca", "Osvaldo Pugliese", "Carlos Di Sarli", "Julio Camilloni", "Aníbal Troilo", "Ernesto Baffa"]
 ---
 
 Este poeta representa en el tango el espíritu generoso de ese barrio de Boedo que dió tantas voces y plumas notables, no sólo para el tango sino incluso en la literatura, el teatro y el cine. De allí salió la palabra chúcara y orientadora de José González Castillo que acaudilló, entre otros, aquel movimiento en que se formaron muchos artistas destacados. Las pullas entre los hombres de Boedo y los de Florida, alumbraron durante un largo tiempo las páginas de periódicos cosechando simpatizantes de uno y otro bando.

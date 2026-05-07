@@ -3,6 +3,7 @@ title: "De puro guapo"
 date: "2012-09-01"
 original_url: https://tangosalbardo.blogspot.com/2012/09/de-puro-guapo.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Francisco Lomuto", "Juan D'Arienzo", "Aníbal Troilo", "Pedro Laurenz", "Alfredo Gobbi", "Raúl Garello"]
 ---
 
 Este es un tango que me da vuelta, cuando lo pinchan en la milonga, por su autor: Pedro Laurenz.

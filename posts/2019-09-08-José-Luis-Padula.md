@@ -3,6 +3,7 @@ title: "José Luis Padula"
 date: "2019-09-08"
 original_url: https://tangosalbardo.blogspot.com/2019/09/jose-luis-padula.html
 labels: ""
+tags: ["Francisco García Jiménez", "Alfredo De Angelis", "Osvaldo Fresedo", "Agustín Magaldi", "Juan D'Arienzo", "Roberto Firpo", "Lito Bayardo", "Ángel Vargas"]
 ---
 
 La historia del tango reúne biografía, anécdotas y travesías de los personajes más dispares que enriquecieron su cancionero y su voltaje emocional. Entre ellos figura este tucumano que se forjó a sí mismo con una confianza a prueba de dificultades y desgracias, como la temprana muerte de su padre italiano, el que le transmitió la pasión por la música y lo dejó huérfano de su guía cuando apenas el niño tenía 12 años.

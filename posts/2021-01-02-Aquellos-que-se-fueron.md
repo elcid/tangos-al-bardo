@@ -3,6 +3,7 @@ title: "Aquellos que se fueron"
 date: "2021-01-02"
 original_url: https://tangosalbardo.blogspot.com/2021/01/aquellos-que-se-fueron.html
 labels: ""
+tags: ["Eladia Blázquez"]
 ---
 
 Los sueños que alenté y en música forjé.

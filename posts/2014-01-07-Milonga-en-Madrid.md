@@ -3,6 +3,7 @@ title: "Milonga en Madrid"
 date: "2014-01-07"
 original_url: https://tangosalbardo.blogspot.com/2014/01/milonga-en-madrid.html
 labels: ""
+tags: ["José María Otero"]
 ---
 
 **NOCHES PORTEÑAS**

@@ -3,6 +3,7 @@ title: "El violín romántico de"
 date: "2024-05-07"
 original_url: https://tangosalbardo.blogspot.com/2024/05/el-violin-romantico-de.html
 labels: ""
+tags: ["Luis Adolfo Sierra", "Osvaldo Pugliese", "Carlos Di Sarli", "Alfredo Gobbi", "Mario Demarco", "Pedro Maffia", "Orlando Goñi"]
 ---
 
 ** Alfredo Gobbi.**

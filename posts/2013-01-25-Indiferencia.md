@@ -3,6 +3,7 @@ title: "Indiferencia"
 date: "2013-01-25"
 original_url: https://tangosalbardo.blogspot.com/2013/01/indiferencia.html
 labels: ""
+tags: ["Francisco Canaro", "Alberto Echagüe", "Hugo del Carril", "Juan D'Arienzo", "Jorge Ortiz"]
 ---
 
 Este tango de Rodolfo Biagi y Juan Carlos Thorry (Torrontegui), sigue rolando con viento a favor en las milongas porque tiene esa polenta que los bailarines necesitan para calentar motores y expresar todo su arte en la pista.

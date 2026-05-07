@@ -3,6 +3,7 @@ title: "Fabián Bertero y su Big Band Tango"
 date: "2014-07-07"
 original_url: https://tangosalbardo.blogspot.com/2014/07/fabian-bertero-y-su-big-band-tango.html
 labels: ""
+tags: ["Raúl Garello"]
 ---
 
 Fabián Bertero es un músico de alto nivel que ha mostrado toda su capacidad expresiva en orquestas filarmónicas,y la del Colón, pero que llega al tango desde los sonidos familiares que escuchó en su casa y que fueron germinando en su alma. En la fluidez del proceso, como solista o como director de orquesta típica, como se denomina a las que ejecutan tangos y otros frutos del mismo árbol, demuestra con hechos que el resultado de su obra es la consecuencia de una necesidad expresiva.

@@ -3,6 +3,7 @@ title: "\"Los arregladores..."
 date: "2024-02-09"
 original_url: https://tangosalbardo.blogspot.com/2024/02/los-arregladores.html
 labels: ""
+tags: ["Horacio Malvicino", "Eduardo Del Piano", "Fulvio Salamanca", "Ismael Spitalnik", "Roberto Pansera", "Carlos García", "Osmar Maderna", "Jorge Dragone"]
 ---
 
 * ...grandes olvidados del tango"*

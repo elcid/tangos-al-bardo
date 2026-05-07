@@ -3,6 +3,7 @@ title: "El tano Ruggiero"
 date: "2012-06-13"
 original_url: https://tangosalbardo.blogspot.com/2012/06/el-tano-ruggiero.html
 labels: ""
+tags: ["Ismael Spitalnik", "Osvaldo Pugliese", "Aníbal Troilo", "Pedro Laurenz", "Osvaldo Zotto"]
 ---
 
 Fui fana y lo sigo siendo de Osvaldo Ruggiero, el gran fueye que arrancó con la primera orquesta de Osvaldo Pugliese a fines de 1939, cuando tenía apenas 17 años y tocaba el fueye a puro instinto, con una garra impresionante, creando un estilo que podría fusionar las escuelas de Pedro Laurenz y Aníbal Troilo.

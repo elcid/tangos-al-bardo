@@ -3,6 +3,7 @@ title: "Tus ojos lejanos"
 date: "2015-09-21"
 original_url: https://tangosalbardo.blogspot.com/2015/09/tus-ojos-lejanos.html
 labels: ""
+tags: ["Roberto Pansera", "Osmar Maderna", "Carlos Dante", "Miguel Caló"]
 ---
 
 Se trata de un tango semidesconocido, que firman Aquiles Roggero (p) y Roberto Lambertucci, que fue grabado por la chilena Mercedes Serrano con la orquesta dirigida precisamente por Roggero. Pero no tuvo mayor trascendencia hasta que lo rescató el baladista Cacho Castaña y lo registró en un CD que también contiene otros tangos conocidos. El mismo Cacho contaba porque eligió este tema.

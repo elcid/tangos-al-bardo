@@ -3,6 +3,7 @@ title: "El que baila esencialmente escucha"
 date: "2018-07-06"
 original_url: https://tangosalbardo.blogspot.com/2018/07/el-que-baila-esencialmente-escucha.html
 labels: ""
+tags: ["Carlos Gavito"]
 ---
 
 Me gusta este artículo escrito por la Profesora argentina de baile de tango, **Andrea Uchitel**, que además es doctora en biología, se ha especializado en ecología, y visita muchos países del mundo dando clases de baile. Tiene un intenso curriculum y creo que vale la pena echarle una mirada a la nota que escribió en la **Revista argentina de Musicología,** además del acierto que simboliza el título de la nota.

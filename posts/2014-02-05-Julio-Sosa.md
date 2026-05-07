@@ -3,6 +3,7 @@ title: "Julio Sosa"
 date: "2014-02-05"
 original_url: https://tangosalbardo.blogspot.com/2014/02/julio-sosa.html
 labels: ""
+tags: ["Francisco Rotundo", "José María Otero", "Julio Sosa"]
 ---
 
 *“Tú conoces el secreto de los tangos”*

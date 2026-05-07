@@ -3,6 +3,7 @@ title: "Los recuerdos de Cadícamo"
 date: "2025-01-27"
 original_url: https://tangosalbardo.blogspot.com/2025/01/los-recuerdos-de-cadicamo.html
 labels: ""
+tags: ["Celedonio Flores", "Carlos Gardel"]
 ---
 
 "La Avenida de Mayo se entroniza con el cuplé. Sus estrellas son españolas y se llaman Raquel Meller, La Goya, Pastora Imperio, Paquita Escribano, La Maravillita, La Fornarina, Linda Thelma y muchas otras que desde los tinglados del *varieté *deleitaban con sus figuras, su belleza y su gracia castiza de majas, más que con sus cuplés, a los porteños de los años 20.

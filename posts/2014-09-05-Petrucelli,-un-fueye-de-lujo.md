@@ -3,6 +3,7 @@ title: "Petrucelli, un fueye de lujo"
 date: "2014-09-05"
 original_url: https://tangosalbardo.blogspot.com/2014/09/petrucelli-un-fueye-de-lujo.html
 labels: ""
+tags: ["Juan Carlos Cobián", "Luis Petrucelli", "Vicente Greco", "Julio De Caro", "Pedro Laurenz", "José Martínez", "Pedro Maffia"]
 ---
 
 Ya hablé en estas páginas de semejante bandoneonista del barrio porteño de Barracas, que fue pupilo nada menos que de Arturo Bernstein. Siempre recuerdo las palabras de Julio De Caro en una charla que tuvimos en mi programa de radio, sobre la capacidad de Petrucelli. Me contaba que el mismo Pedro Maffia se quedaba a veces embobado observándolo en los ensayos, cuando Luis era el segundo fueye en aquel Sexteto que revolucionó la historia del tango.

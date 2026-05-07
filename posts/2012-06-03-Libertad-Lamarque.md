@@ -3,6 +3,7 @@ title: "Libertad Lamarque"
 date: "2012-06-03"
 original_url: https://tangosalbardo.blogspot.com/2012/06/libertad-lamarque.html
 labels: ""
+tags: ["Luis César Amadori", "Libertad Lamarque", "Francisco Canaro"]
 ---
 
 Fue la gran dama del tango. La que lo paseó por toda América y España. Y con quien tuve la suerte de compartir hermosos momentos en Madrid.

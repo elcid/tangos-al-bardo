@@ -3,6 +3,7 @@ title: "BIEN MILONGA"
 date: "2016-02-20"
 original_url: https://tangosalbardo.blogspot.com/2016/02/bien-milonga.html
 labels: ""
+tags: ["Alfredo De Angelis", "Roberto Goyeneche", "Francisco Canaro", "Atilio Stampone", "Julio Martel", "Carlos Dante"]
 ---
 
 Hoy es día de milonga y la Casa de Aragón de Madrid la encendemos con la música en la cual nos formateamos de pibes, allá en los clubes y salones porteños. Es fundamental hacer una buena selección de piezas sumamente bailables para tener el entusiasmo milonguero en alza permanente y así, al final nos vamos con una senación maravillosa en el cuerpo por el disfrute del tango bailado.

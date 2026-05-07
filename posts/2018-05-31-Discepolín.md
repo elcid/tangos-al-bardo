@@ -3,6 +3,7 @@ title: "Discepolín"
 date: "2018-05-31"
 original_url: https://tangosalbardo.blogspot.com/2018/05/discepolin.html
 labels: ""
+tags: ["Enrique Santos Discépolo", "José María Contursi", "Alberto Marino", "Edmundo Rivero", "Aníbal Troilo", "Mariano Mores", "Homero Manzi", "Raúl Berón"]
 ---
 
 No es que los tangos de Discépolo fueran exactamente un calco de su vida. De su alma torturada desde la tierna infancia, cuando queda huérfano de padres y el sentir en carne propia y en el de sus semejantes la injusticia del poder, el hambre de tantos seres humanos, la prepotencia de las fuerzas públicas y la desigualdad social. Pero es evidente, a través de sus vivencias, que ambas cosas, su soledad síquica y la intuición sobre el drama social de hombres y mujeres, conviven en su sensibilidad, en la letra de sus tangos.

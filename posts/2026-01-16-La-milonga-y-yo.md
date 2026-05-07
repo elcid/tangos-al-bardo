@@ -3,6 +3,7 @@ title: "La milonga y yo"
 date: "2026-01-16"
 original_url: https://tangosalbardo.blogspot.com/2026/01/la-milonga-y-yo.html
 labels: ""
+tags: ["Armando Pontier", "Carlos Figari", "Tita Merello"]
 ---
 
 La letra es de Leopoldo Díaz Vélez y la música de Tito Ribero (Alberto Amado Ribero). ** La milonga y yo** fue concebida a pedido de Tita Merello, que la cantaría en la película *Esto es alegría.* dirigida por Enrique Carreras y estrenada en 1968. Tito Ribero le puso música. El propio Leopoldo Díaz la cantaba con la orquesta de Armando Pontier en los bailes de Carnaval del Centro Lucense, en 1980.

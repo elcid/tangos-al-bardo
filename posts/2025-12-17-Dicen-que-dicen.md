@@ -3,6 +3,7 @@ title: "Dicen que dicen"
 date: "2025-12-17"
 original_url: https://tangosalbardo.blogspot.com/2025/12/dicen-que-dicen.html
 labels: ""
+tags: ["Luis César Amadori", "Pascual Contursi", "Enrique Delfino", "Carlos Gardel", "Julio Sosa", "Ivo Pelay"]
 ---
 
 Tango compuesto en 1929 por Alberto Ballestero y Enrique Delfino, al que Gardel le daría el pase al éxito, grabándolo con sus guitarristas Aguilar, Barbieri y Riverol, en 1930. Es un tema que atraía a muchos cantores y por eso se fue acreciendo su interpretación, incluso por orquestas típicas con sus vocalistas, cada una de ellas con ese sello personal e intransferible.

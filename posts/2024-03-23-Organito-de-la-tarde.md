@@ -3,6 +3,7 @@ title: "Organito de la tarde"
 date: "2024-03-23"
 original_url: https://tangosalbardo.blogspot.com/2024/03/organito-de-la-tarde.html
 labels: ""
+tags: ["Francisco García Jiménez", "José González Castillo", "Carlos Di Sarli", "Cátulo Castillo", "Roberto Rufino", "Roberto Firpo"]
 ---
 
 En el año 1924 estaba en su apogeo el disco "Nacional", de la desaparecida compañía fonográfica Max Glücksmannn, y esta empresa resolvió efectuar concursos de tangos entre autores y compositores. El certamen inaugural se realizó dicho año en el cine-teatro Grand Splendid, de la calle Santa Fe, una de las tantas salas que por entonces pertenecían al circuito de los Glücskmann.

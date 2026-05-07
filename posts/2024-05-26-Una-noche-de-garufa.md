@@ -3,6 +3,7 @@ title: "Una noche de garufa"
 date: "2024-05-26"
 original_url: https://tangosalbardo.blogspot.com/2024/05/una-noche-de-garufa.html
 labels: ""
+tags: ["Francisco Canaro", "Eduardo Arolas"]
 ---
 
 Eduardo Arolas tenía apenas 19 años cuando compone su primer tema. Todavía no sabía escribir la música en el pentagrama y en ese sentido lo ayudó su intuición y sensibilidad artística, que lo llevarían a ser unos de los grandes pilares de la historia del tango.

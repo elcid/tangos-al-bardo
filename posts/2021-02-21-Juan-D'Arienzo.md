@@ -3,6 +3,7 @@ title: " Juan D'Arienzo"
 date: "2021-02-21"
 original_url: https://tangosalbardo.blogspot.com/2021/02/juan-darienzo.html
 labels: ""
+tags: ["Osvaldo Fresedo", "Juan D'Arienzo", "Héctor Varela", "Lucio Demare"]
 ---
 
 ***"El tango tiene tres cosas: compás, efecto y matices".***

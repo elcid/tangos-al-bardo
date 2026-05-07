@@ -3,6 +3,7 @@ title: "Alejandra Sabena"
 date: "2013-04-23"
 original_url: https://tangosalbardo.blogspot.com/2013/04/alejandra-sabena.html
 labels: ""
+tags: ["Alfredo Gobbi"]
 ---
 
 Esta querida amiga que se vino con sus bagajes de bailarina a Europa, está afincada en Sevilla desde hace años. Allí ha encontrado su lugar en el mundo y allí imparte clases, tiene su propio estudio de baile y también es contratada en diferentes lugares de Europa para apreciar su arte.

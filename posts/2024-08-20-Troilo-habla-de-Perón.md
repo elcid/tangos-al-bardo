@@ -3,6 +3,7 @@ title: "Troilo habla de  Perón"
 date: "2024-08-20"
 original_url: https://tangosalbardo.blogspot.com/2024/08/troilo-habla-de-peron.html
 labels: ""
+tags: ["Aníbal Troilo"]
 ---
 
 "Voy a hablar del Perón de la primera presidencia. Tuve la suerte de conocerlo. ése, del que la historia de Buenos Aires va a tener que hablar... La historia de la Argentina... Era entrador, simpático. Y con un talento extraordinario.

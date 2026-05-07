@@ -3,6 +3,7 @@ title: "Bien Milonga"
 date: "2018-05-08"
 original_url: https://tangosalbardo.blogspot.com/2018/05/bien-milonga_8.html
 labels: ""
+tags: ["Francisco Canaro", "Juan D'Arienzo"]
 ---
 
 * Sobre la pista al fin,*

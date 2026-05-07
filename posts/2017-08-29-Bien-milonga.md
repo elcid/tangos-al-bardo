@@ -3,6 +3,7 @@ title: "Bien milonga"
 date: "2017-08-29"
 original_url: https://tangosalbardo.blogspot.com/2017/08/bien-milonga_29.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Alberto Echagüe", "Juan D'Arienzo", "Teófilo Ibáñez"]
 ---
 
 *Notas que muerden las carnes*

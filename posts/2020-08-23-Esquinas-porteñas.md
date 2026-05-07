@@ -3,6 +3,7 @@ title: "Esquinas porteñas"
 date: "2020-08-23"
 original_url: https://tangosalbardo.blogspot.com/2020/08/esquinas-portenas.html
 labels: ""
+tags: ["Roberto Goyeneche", "Ignacio Corsini", "Sebastián Piana", "Mercedes Simone", "Ángel Vargas"]
 ---
 
 La tarde se ha vuelto romántica, envueltos los recuerdos en música. Y los valsecitos surten efecto cuando vienen cargados de sensibilidad, esa mezcla de gravedad y ligereza, la alegría de la música y esa poesía que te llena el espíritu de fecundas sensaciones. En este caso también me lleva de paseo por aquellas esquinas donde nos encontrábamos con los muchachos de la barra, junto al infaltable buzón. Y que también era la puntada inicial en la cita con la pebeta aquella que nos ilusionaba tanto.

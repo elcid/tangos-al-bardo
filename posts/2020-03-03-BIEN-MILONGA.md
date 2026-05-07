@@ -3,6 +3,7 @@ title: "BIEN MILONGA"
 date: "2020-03-03"
 original_url: https://tangosalbardo.blogspot.com/2020/03/bien-milonga.html
 labels: ""
+tags: ["José González Castillo", "Alberto Podestá", "Teófilo Ibáñez", "Edgardo Donato", "Miguel Caló"]
 ---
 
 Borracho de pasión

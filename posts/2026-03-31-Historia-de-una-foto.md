@@ -3,6 +3,7 @@ title: "Historia de una foto"
 date: "2026-03-31"
 original_url: https://tangosalbardo.blogspot.com/2026/03/historia-de-una-foto.html
 labels: ""
+tags: ["Enrique Santos Discépolo", "Alberto Marino", "Tita Merello"]
 ---
 
 "*Para Raquel, es decir para mí.*..". Debajo de la sentida dedicatoria fechada en 1946, un pentagrama ilustra los compases y la letra de una de las composiciones más célebres de Enrique Santos Discépolo: ***Canción desesperada***.

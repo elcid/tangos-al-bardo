@@ -3,6 +3,7 @@ title: "Yo no sé que me han hecho tus ojos"
 date: "2016-11-14"
 original_url: https://tangosalbardo.blogspot.com/2016/11/yo-no-se-que-me-han-hecho-tus-ojos.html
 labels: ""
+tags: ["Francisco Canaro", "Ada Falcón"]
 ---
 
 La vida de Ada Falcón es como una gran película de época. La dulce tristeza del tango necesitaba, quizás, un personaje de este calibre artístico y humano para instalarse definitivamente en los rincones del alma de los porteños. Ver ahora un documental sobre su vida, sus canciones, sus amores con el poderoso Francisco Canaro -el hombre que en un determinado momento guió sus pasos instalándola en el pedestal del disco para que permaneciera in eternum en ellos-, sumado a su belleza tan singular, y una voz que penetra hondo en el espíritu de quien la escucha, nos devuelve a la leyenda de quien fuera una genial cantante.

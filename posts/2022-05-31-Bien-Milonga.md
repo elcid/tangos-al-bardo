@@ -3,6 +3,7 @@ title: "Bien Milonga"
 date: "2022-05-31"
 original_url: https://tangosalbardo.blogspot.com/2022/05/bien-milonga_31.html
 labels: ""
+tags: ["Juan D'Arienzo", "Alberto Marino", "Aníbal Troilo", "Héctor Mauré"]
 ---
 
 Tango como ese del tiempo de antes,

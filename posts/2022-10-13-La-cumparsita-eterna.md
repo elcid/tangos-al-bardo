@@ -3,6 +3,7 @@ title: "La cumparsita eterna"
 date: "2022-10-13"
 original_url: https://tangosalbardo.blogspot.com/2022/10/la-cumparsita-eterna.html
 labels: ""
+tags: ["Enrique Delfino", "Juan D'Arienzo", "Roberto Firpo", "Aníbal Troilo"]
 ---
 
 Ya he escrito varias veces sobre este tango que, sin la menos duda, es el más conocido y escuchado en todo el mundo. Lo han grabado las grandes orquestas típicas, le han hecho diferentes arreglos, tanto esos conjuntos como tríos, cuartetos, quintetos, sextetos, orquestas de cámara, cantores y demás. Y son todos muy conscientes de lo que encierra el tango de Gerardo Matos Rodríguez.

@@ -3,6 +3,7 @@ title: "La Orquesta Donato-Zerrillo"
 date: "2013-10-29"
 original_url: https://tangosalbardo.blogspot.com/2013/10/la-orquesta-donato-zerrillo.html
 labels: ""
+tags: ["Celedonio Flores", "Enrique Delfino", "Azucena Maizani", "Agustín Magaldi", "Edgardo Donato", "Julio De Caro"]
 ---
 
 Dado que Edgardo Donato con su orquesta está de moda en las milongas de todo el mundo desde hace unos años, creo que vale la pena recordar un poco su historia para realzar los méritos de un violinista que creó páginas imperecederas como *A Media luz o Julián, El huracán*, y que después de vivir varios años en Montevideo, volvería a su ciudad natal -Buenos Aires-, para encontrar el aplauso de su público.

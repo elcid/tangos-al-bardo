@@ -3,6 +3,7 @@ title: "El Negro Cele"
 date: "2024-06-30"
 original_url: https://tangosalbardo.blogspot.com/2024/06/el-negro-cele.html
 labels: ""
+tags: ["Francisco Pracánico", "Celedonio Flores", "Dante Linyera", "Carlos Gardel"]
 ---
 
 Fue de los primeros en asumir poéticamente el voceo, cuando sus colegas renegaban de ello y seguían afirmados en el *tu* castellano. Es antológica su pintura de **Pa'lo que te va a durar,** donde bate: *"Estás cachuzo a besos, te han descolado a abrazos / se te arrugao la jeta de tanto sonreír. / si habrás gastao puños en mesas de esolaso. / Si habrás rayao alformbras muchacho bailarín".*

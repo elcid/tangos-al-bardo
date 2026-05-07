@@ -3,6 +3,7 @@ title: "Rosas de abril"
 date: "2024-08-09"
 original_url: https://tangosalbardo.blogspot.com/2024/08/rosas-de-abril.html
 labels: ""
+tags: ["Alberto Marino", "Carlos Gardel"]
 ---
 
 Vuelvo con este valsecito de Eugenio Cárdenas y el fueye mercedino Rafael Rossi, compuesto en 1927, año en que lo grabara y le diera cuerda Carlos Gardel con sus guitarristas José Ricardo y Guillermo Barbieri. Ya conté que lo conocí a Rafael Rossi por un compañero mío de la *colimba* que era también de Mercedes. Su padre, músico y cantor, fue compañero de aventuras de Rossi en sus comienzos.

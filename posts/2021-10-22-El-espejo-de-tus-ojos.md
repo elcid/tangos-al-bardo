@@ -3,6 +3,7 @@ title: "El espejo de tus ojos"
 date: "2021-10-22"
 original_url: https://tangosalbardo.blogspot.com/2021/10/el-espejo-de-tus-ojos.html
 labels: ""
+tags: ["Ángel Vargas"]
 ---
 
 Es sabido que el vals, como expresión musical, nació en los salones de Viena, la capital austríaca, allá por el año 1770, según reza la historia. Supo clavar su estaca triunfal entre otras danzas y muchos lo señalaron como la victoria de la burguesía sobre la aristocracia, aunque en principio se la tildara de indecente por el el abrazo abierto de las parejas y sus constantes giros.

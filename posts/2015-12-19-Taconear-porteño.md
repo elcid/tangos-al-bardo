@@ -3,6 +3,7 @@ title: "Taconear porteño"
 date: "2015-12-19"
 original_url: https://tangosalbardo.blogspot.com/2015/12/taconear-porteno.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Edgardo Donato", "Héctor Varela"]
 ---
 
 Esta milonga de Lorenzo Barbero y Ricardo Otero recuerda los comienzos de la milonga porteña en los bailongos donde tallaba el tango como rey y señor. El mismo tango que hoy es la gran atracción bailable en casi todos los países del mundo y que nosotros llevamos realizando en **BIEN MILONGA,** todos los sábados y martes del año en la Casa de Aragón de Madrid, de la Plaza República Argentina nº 6, de la capital de España.

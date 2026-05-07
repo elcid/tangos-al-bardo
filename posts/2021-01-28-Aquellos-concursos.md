@@ -3,6 +3,7 @@ title: "Aquellos concursos..."
 date: "2021-01-28"
 original_url: https://tangosalbardo.blogspot.com/2021/01/aquellos-concursos.html
 labels: ""
+tags: ["Francisco Canaro", "Horacio Ferrer", "Carlos García", "Pedro Maffia", "Oscar Alonso"]
 ---
 
 El cantor de orquesta -corre 1928- ha cobrado importancia en una de las ideas que se juegan para fortalecer el atractivo público del Tango: los concursos de obras. Han sido iniciativas de Max Glücksmann. Se realizó el primero en 1925, en la sala del Gran Splendid de la Avenida Santa Fe; lo ganaron Francisco Canaro y Juan Caruso con **Sentimiento gaucho**.

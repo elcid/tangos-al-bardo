@@ -3,6 +3,7 @@ title: "Fresedo y la ronda nueva (X)"
 date: "2025-11-04"
 original_url: https://tangosalbardo.blogspot.com/2025/11/fresedo-y-la-ronda-nueva-x.html
 labels: ""
+tags: ["Juan Carlos Cobián", "Osvaldo Fresedo", "Roberto Pansera", "Eduardo Arolas", "Vicente Greco", "Ernesto Baffa", "Augusto Berto", "Roberto Yanés"]
 ---
 
 ** Segunda etapa en Columbia “De academia”**

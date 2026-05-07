@@ -3,6 +3,7 @@ title: "El Polaco por dentro"
 date: "2018-06-06"
 original_url: https://tangosalbardo.blogspot.com/2018/06/el-polaco-por-dentro.html
 labels: ""
+tags: ["Juan Carlos Cobián", "Roberto Goyeneche", "Virgilio Expósito", "Enrique Cadícamo", "Aníbal Troilo"]
 ---
 
 En 1975, Roberto Goyeneche grabó éste, si puede llamárselo así, extraño elepé, con una orquesta de 35 músicos conducida por el dirctor argentino, residente en Estados Unidos, Carlos Franzetti. Si bien este notable músico ha militado por sobre todo en el jazz, aunque ha triunfado incluso en otros géneros, como el sinfónico, por ejemplo, sabe aplicarse a sí mismo aquella máxima de Aníbal Troilo: "*El tango sabe esperar".*

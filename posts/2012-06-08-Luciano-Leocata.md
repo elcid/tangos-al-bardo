@@ -3,6 +3,7 @@ title: "Luciano Leocata"
 date: "2012-06-08"
 original_url: https://tangosalbardo.blogspot.com/2012/06/luciano-leocata.html
 labels: Y
+tags: ["Florindo Sassone", "Alberto Morán", "Jorge Casal", "Abel Aznar"]
 ---
 
 El mes de junio viene duro en Buenos Aires. Ayer también se nos fue este maestro del fueye, hijo de pobres inmigrantes sicilianos, que se enamoró del bandoneón, oyéndoloselo tañer a un vecino, desde su casa.

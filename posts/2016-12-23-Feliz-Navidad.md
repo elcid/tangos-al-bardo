@@ -3,6 +3,7 @@ title: "Feliz Navidad"
 date: "2016-12-23"
 original_url: https://tangosalbardo.blogspot.com/2016/12/feliz-navidad.html
 labels: ""
+tags: ["Osvaldo Pugliese", "Romeo Gavioli"]
 ---
 
 A todos los seguidores y amigos de** TANGOS AL BARDO**, quería decirles en este día: ¡Que tengan una Feliz Navidad! y lo pasen muy bien con sus respectivas familias.

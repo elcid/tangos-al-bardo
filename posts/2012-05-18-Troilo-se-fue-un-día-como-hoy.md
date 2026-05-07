@@ -3,6 +3,7 @@ title: "Troilo se fue un día como hoy"
 date: "2012-05-18"
 original_url: https://tangosalbardo.blogspot.com/2012/05/troilo-se-fue-un-dia-como-hoy.html
 labels: ""
+tags: ["Eduardo Arolas", "Aníbal Troilo", "Carlos Gardel", "Agustín Bardi"]
 ---
 
 En el año 1975 fallecía el más querido de todos los tangueros, después de Carlos Gardel.

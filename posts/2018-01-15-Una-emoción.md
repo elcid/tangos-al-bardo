@@ -3,6 +3,7 @@ title: "Una emoción"
 date: "2018-01-15"
 original_url: https://tangosalbardo.blogspot.com/2018/01/una-emocion.html
 labels: ""
+tags: ["Eduardo Del Piano", "Ricardo Tanturi", "Atilio Stampone", "Enrique Campos", "Osmar Maderna", "Roberto Grela", "Lucio Demare", "Raúl Kaplún"]
 ---
 
 Este tango lo he escuchado tantas veces a lo largo de mi vida, lo he bailado en infinidad de ocasiones, en distintos países, con distintas compañeras, lo disfrutamos con la barra cuando acudíamos a la milonga, y sigue estando firme en mi cartelera particular. Porque continúa provocándome unas cosquillas en el alma, como un símbolo que refleja en sus versos y música las peripecias y sentimientos de la vida cotidiana de tantas personas que caminaron las calles porteñas.

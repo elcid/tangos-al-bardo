@@ -3,6 +3,7 @@ title: "Armando Pontier"
 date: "2013-07-26"
 original_url: https://tangosalbardo.blogspot.com/2013/07/armando-pontier.html
 labels: ""
+tags: ["José María Contursi", "Armando Pontier", "Alberto Podestá", "Homero Expósito", "Cátulo Castillo", "Roberto Rufino", "Horacio Ferrer", "Aníbal Troilo"]
 ---
 
 Apareció en un momento rutilante del tango, cuando tallaban las grandes luminarias del género, la calle Corrientes era una fiesta de música, los cabarés olían a tango, la radio los despachaba toda hora y los clubes desparramados a lo largo de la ciudad y su periferia, recibían multitudinariamente a estos conjuntos para darle rienda suelta a la pasión del baile.

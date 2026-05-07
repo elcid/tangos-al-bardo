@@ -3,6 +3,7 @@ title: "La última esquina"
 date: "2020-08-27"
 original_url: https://tangosalbardo.blogspot.com/2020/08/la-ultima-esquina.html
 labels: ""
+tags: ["Edmundo Rivero", "Alfredo Gobbi", "Néstor Fabián"]
 ---
 
 No me puedo resistir a traer estos hermosos y nostálgicos versos que se transformarían luego en valsecito. Ese entrañable poeta que fue Juanca Tavera (Juan Carlos Moscón), que llevaba sangre italiana en sus venas y que manejó instrumentos musicales desde su adolescencia, como el acordeón, entró tarde en el tango porque antes escribió distintas canciones. Tenía 37 años cuando se lanzó con su primer tango: **Sueño de hollín**. Éste le dio impulso para escribir a continuación otros tres: **Pastillas de dormir, Mordiendo el puño** y **Dos ilusos**.

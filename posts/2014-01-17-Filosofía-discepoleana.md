@@ -3,6 +3,7 @@ title: "Filosofía discepoleana"
 date: "2014-01-17"
 original_url: https://tangosalbardo.blogspot.com/2014/01/filosofia-discepoleana.html
 labels: ""
+tags: ["Enrique Santos Discépolo"]
 ---
 
 Discepolín decía cosas como éstas:

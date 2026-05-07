@@ -3,6 +3,7 @@ title: "Libertella-Grela"
 date: "2012-07-22"
 original_url: https://tangosalbardo.blogspot.com/2012/07/libertella-grela.html
 labels: ""
+tags: ["Leopoldo Federico", "José Libertella", "Aníbal Troilo", "Roberto Grela", "Julián Plaza", "Luis Stazo"]
 ---
 
 La dupla de bandoneón y guitarra es de larga data en el tango. En prácticamente todos los barrios de Buenos Aires, además de futbolistas y boxeadores, habían guitarreros y fueyeros.

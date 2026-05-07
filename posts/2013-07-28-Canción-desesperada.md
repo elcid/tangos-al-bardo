@@ -3,6 +3,7 @@ title: "Canción desesperada"
 date: "2013-07-28"
 original_url: https://tangosalbardo.blogspot.com/2013/07/cancion-desesperada.html
 labels: ""
+tags: ["Enrique Santos Discépolo", "Cátulo Castillo", "Osmar Maderna", "Pedro Maffia", "Nelly Omar"]
 ---
 
 Decía Cátulo Castillo sobre Enrique Santos Discépolo: "Su primer tango conocido fué Qué vachaché. Se lo "pasó" a Gardel en un teatrucho vetusto de provincia, donde Enrique era actor de una "rascada". Usó el piano de teclas *cachuzas* -arrumbado en vestidores- a la manera suya. Martillaba con la mano izquierda el acompañamiento y reemplazaba a la profana mano derecha canturreando la letra. A Gardel le gustó y se lo llevó para grabarlo en disco en Buenos Aires. Discépolo contaba después:
