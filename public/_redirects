@@ -1,0 +1,5 @@
+# Redirects for static hosting (Cloudflare Pages, Netlify)
+# Trailing slash normalization handled by Astro
+
+# Legacy pagination paths (if any existed before)
+/old-page / 301

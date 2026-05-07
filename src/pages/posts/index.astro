@@ -6,12 +6,11 @@ import { getCollection } from "astro:content";
 import { getSortedPosts } from "@/utils/posts";
 import { SITE } from "@/config";
 
+const base = import.meta.env.BASE_URL || '/';
 const PAGE_SIZE = SITE.postPerPage;
 const posts = await getCollection("posts");
 const sortedPosts = getSortedPosts(posts);
 const totalPages = Math.ceil(sortedPosts.length / PAGE_SIZE);
-
-// This is page 1 — first PAGE_SIZE posts
 const pagePosts = sortedPosts.slice(0, PAGE_SIZE);
 const page = 1;
 ---
@@ -33,7 +32,7 @@ const page = 1;
     <span></span>
     {totalPages > 1 && (
       <LinkButton
-        href="/posts/2/"
+        href={`${base}posts/2/`}
         class="px-4 py-2 border border-skin-border rounded hover:bg-skin-accent hover:text-white transition-colors"
       >
         Más antiguos &rarr;

@@ -1,7 +1,7 @@
 import type { SiteConfig } from "./types";
 
 export const SITE: SiteConfig = {
-  website: "https://tangosalbardo.blogspot.com/",
+  website: "https://elcid.github.io/tangos-al-bardo/",
   author: "José María Otero",
   profile: "https://tangosalbardo.blogspot.com/",
   desc: "Blog de tango, música y nostalgia porteña — 2012 a 2026.",
