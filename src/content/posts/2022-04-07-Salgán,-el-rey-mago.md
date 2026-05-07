@@ -1,0 +1,23 @@
+---
+title: "Salgán, el rey mago"
+date: "2022-04-07"
+original_url: https://tangosalbardo.blogspot.com/2022/04/salgan-el-rey-mago.html
+labels: ""
+tags: ["José González Castillo", "Sebastián Piana", "Edmundo Rivero", "Horacio Salgán"]
+---
+
+El sacudón llegó, otra vez por teléfono y en la voz de una mujer. Esta vez fue ella la que llamó, pero el asunto había empezado con una actuación mía casual, o no tanto. Mi amigo Guillermo Teruel me había llevado a LS9 Radio La Voz la Aire, cuyo dueño era el famoso Emilio Karlstulovic, propietario también de la revista *Sintonía*. Yo creía haber ido como público nomás y no imaginaba tener que cantar pero, una vez allí, vino el pedido de Kartulo al que traté de negarme cortésmente.* -Vea Don Emilio, hace muchos años que no canto. Además, no he traído mi guitarra.*
+El primer argumento lo pasó por alto y, en unos pocos segundos, me habían puesto ya en las manos una buena guitarra. No tenía salida. Canté acompañándome yo solo: hice una zamba cuyo nombre no recuerdo y cerré con *Caminito*. Cuando me iba, me avisaron que alguien había llamado pidiendo hablar con Edmundo Rivero "*ese cantor que estuvo cantando recién*"; había dejado su número y pedía que me comunicara. Copié el dato en una caja de fósforos y me la metí en el bolsillo.
+
+Dicen que la suerte llama siempre dos veces y, esta vez, aparte de que era ya la última, casi no le abro la puerta. Sólo después de unos días hice el llamado y resultó que era una dama allegada a quienes, créanme o no, también estaban formando una orquesta y tenían interés en mí como cantor. Cosa rara que la suerte llame las dos veces casi de la misma manera, que me busque en el tubo de un teléfono y, en las dos ocasiones, con la voz de mujeres vinculadas al ambiente musical.
+Esta vuelta lo decisivo fue el propio Salgán. Fui sincero con él cuando le previne: -*Vea que he dejado de cantar hace años y que mi estilo es muy personal. Mejor no se arriesgue*. El maestro Salgán fue, en esos momentos y en muchos otros después, quien me dio la confianza que podía faltarme, de modo que arreglamos, pero no sin que yo le abriese esta posibilidad: -*Mire, sea como sea, considéreme a prueba. Si la gente me aplaude, sigo. Si no, amigos lo mismo pero yo largo. *
+La prueba de fuego nos tocó de salida nomás, en un club de Avellaneda. Era una mano brava porque hacía de veras mucho tiempo que no cantaba en público y además porque mi repertorio era chico. Sólo tenía dos o tres canciones y no las de más *gancho *por aquellos años, pero la cosa fue yendo a más. Algunos ponían cara de extrañados ante el *zorzal jetón* y empezaban a sonreír ante mi voz de bajo, pero la mayoría se iba quedando pendiente de la letra porque les estaba cantando "con todo".
+Historias sencillitas, antiguas, como la de *La uruguayita Lucía,* prendían en la gente como nunca hubiera imaginado. Me acuerdo que fue el éxito de los carnavales del 46, en Boca Juniors, donde Salgán estuvo contratado junto con otra típica, de un cantor que por entonces hacía roncha. Sin embargo, la gente dejaba de bailar para escucharme. Habíamos ido de puntos y terminamos siendo banca.
+
+De la orquesta de Salgán y, sobre todo del señor Horacio Salgán, tengo un recuerdo querido e imborrable. No todas fueron fáciles para que aquellos tres años con él fueran de ascenso para mí. Alguna vez nos tropezamos todavía con algún baile peligroso, uno de esos lugares donde mi voz o mi pinta tenían aún que pagar derecho de piso.
+No olvido que el señor Horacio Salgán, no sólo se la *bancó* conmigo sin que, cuando hizo falta, fue el que me acercó el estímulo imprescindible. Edmundo Rivero
+(Y pese a lo que cuenta sinceramente Rivero en el libro "Una luz de almacén", tuvieron muchos problemas con directivos de la radio y con las grabadoras que no aceptaban la voz y el estilo de Rivero tan distinto a otros cantores de moda. La prueba está en que, de aquella etapa de Salgán-Rivero, no hay un solo disco grabado. Pasaron 15 años, ya se había consagrado definitivamente con Troilo y era una gran figura del tango, cuando en 1961, 1962 y 1969, realizó una serie de grabaciones con Horacio Salgán. Los escuchamos en este registro discográfico de 1969. El tango de José González Castillo y Sebastián Piana: **Sobre el pucho**.
+<iframe src="https://www.youtube.com/embed/TK5SbA99LjQ"></iframe>
+ O en este inolvidable concierto celebrado en el teatro Colón, el 17 de agosto de 1972, en el que estuve en las primeras filas. Rivero canta **Trenzas** con la orquesta de Salgán muy reforzada musicalmente. INOLVIDABLE...
+
+<iframe src="https://www.youtube.com/embed/1XySQs6PobI"></iframe>

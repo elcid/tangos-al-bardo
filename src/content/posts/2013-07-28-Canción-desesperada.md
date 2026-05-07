@@ -1,0 +1,36 @@
+---
+title: "Canción desesperada"
+date: "2013-07-28"
+original_url: https://tangosalbardo.blogspot.com/2013/07/cancion-desesperada.html
+labels: ""
+tags: ["Enrique Santos Discépolo", "Cátulo Castillo", "Osmar Maderna", "Pedro Maffia", "Nelly Omar"]
+---
+
+Decía Cátulo Castillo sobre Enrique Santos Discépolo: "Su primer tango conocido fué Qué vachaché. Se lo "pasó" a Gardel en un teatrucho vetusto de provincia, donde Enrique era actor de una "rascada". Usó el piano de teclas *cachuzas* -arrumbado en vestidores- a la manera suya. Martillaba con la mano izquierda el acompañamiento y reemplazaba a la profana mano derecha canturreando la letra. A Gardel le gustó y se lo llevó para grabarlo en disco en Buenos Aires. Discépolo contaba después:
+-Gardel se fue y yo volví a mi camarín destartalado y sucio, para caracterizarme. ¡Estaba loco de alegría, y estaba solo! De repente, noté el bulto de alguien que llega a mi lado. ¡Qué suerte! Me dí vuelta para contarle mi felicidad...y era una pulga. En aquel camarín las pulgas eran más grandes que yo.
+
+ [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgf1b_7r3xpQsHT6Bj8e8qUo3b_Jd3QP_WYMgK9kBYM-4FyYUjJZF6YoFGCi-Iq-93j0n0NOvXyN1sbaPGcr2iNpYwNsOauKnq0rXoCoMX7tnM5Wl3iXup781oKoCr1Xv4XKhGaYNOpp3M/s320/discepolo+y+Gardel.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgf1b_7r3xpQsHT6Bj8e8qUo3b_Jd3QP_WYMgK9kBYM-4FyYUjJZF6YoFGCi-Iq-93j0n0NOvXyN1sbaPGcr2iNpYwNsOauKnq0rXoCoMX7tnM5Wl3iXup781oKoCr1Xv4XKhGaYNOpp3M/s1600/discepolo+y+Gardel.jpg) Discépolo y Gardel en los cortos que filmó Eduardo Morera  En 1935 Discépolo debuta en Madrid con su orquesta en el cabaret *Casablanca*, refugio monárquico donde los viejos personajones de la historia negra de España preparan la contrarevolución. De allí saltará a Barcelona donde dirige una orquesta de 75 profesores y además charla entre tema y tema, ganándose el aplauso general. El próximo destino es Palma de Mallorca y el vate contará luego por medio de unas cartas:
+
+-*Mallorca es una isla que seguramente se le cayó a Dios de las alforjas. Porque aquello es maravillloso, el mar, el aire, el cielo limpísimo. Cuando llegamos a Mallorca era una fiesta de azahares, de perfumes, de verde tierno. Fue entonces cuando alguien nos recomendó visitar el Monasterio de Valldemossa, donde vivieron sus atormentados amores George Sand y Federico Chopin. Salimos en el atardecer de un día maravilloso. El Monasterio está a regular distancia de Palma. Resolvimos hacer el viaje a pie, por senderos de piedra que van ascendiendo en la montaña.*
+*
+* *A poco de andar, la excursión se puso seria. Se acercó la noche y comenzamos a divisar allá a lo lejos, las paredes del Monasterio. Desnudas, tétricas, horribles, porque llevábamos los ojos cargados del paisaje verde que quedó atrás.... La ascensión se hizo cada vez más difícil y pesada. Hasta que al fin entramos al Monasterio. Yo tuve la impresión de meterme en una tumba. Aquello era despiadadamente triste. Tal vez influyó en mi ánimo el recuerdo de aquel pobre músico que tuvo que confinar su enfermedad en ese apartado rincón de la isla...*
+*
+* *Recorrí entonces los corredores penumbrosos y húmedos. Y no pude dejar de pensar que por allí, arrastrando su tos, anduvo Chopin... Me imaginé la angustia de aquel hipersensible condenado a esconder su enfermedad en ese monasterio despiadado y sin poesía... Acosado por las dos fiebres terribles: la del cuerpo y la de la creación. Y componiendo, componiendo con locura, con esa locura de los condenados a morirse, a los que nunca les alcanza el tiempo para terminar la obra...*
+* *
+ * *
+* Entré al cuarto que ocupó Chopin y aquello me produjo una sensación terrible. Penetré en ese cuarto con una unción casi religiosa. Más que habitación, era una celda. Frente a su puerta estaba el cementerio del convento. ... Todo era descarnado, sin alma...Pero allí estaba el piano, el pequeño piano... Me acerqué y levanté la tapa. Hice jugar inconscientemente mis dedos sobre las teclas amarillentas y envejecidas. Todos los instrumentos tienen alma. Allí inmutable al tiempo, a la distancia, a todo, estaba el piano que utilizó Federico Chopin. *
+*
+* *El piano cuyas notas sonaban con algo de grito, de angustia, qué sé yo. Estaba sumamente impresionado, lo confieso. El viento sonando con fuerza, la noche entrando por los corredores y ese viento tremendo afuera, la tramontana, un viento desesperante, angustioso, crearon en mí un estado especial de ánimo que no puedo definir exactamente.... De pie, sin siquiera sentarme, esbocé siete o nueve compases de una canción que se me ocurrió angustiosa, desesperante, como ese vendaval que golpeaba implacable los maderos de aquella celda.*
+*
+* *Durante muchos años olvidé el motivo de esa canción. Y la canción nació después en Buenos Aires, pero bajo el *leit motiv* de aquellos compases que resonaron en el monasterio de Valldemossa. La titulé: "Canción desesperada", porque seguía pensando en aquel músico torturado y enfermo, cuyas canciones son todas desesperadas...*
+
+En 1945, y en uno de aquellos momentos en que sufría por las aventuras amorosas de Tania, Discépolo le llevó el tema a Lalo Scalise, que era entonces pianista de la orquesta de Pedro Maffia, en el cabaret *Tibidabo, *y quien le traducía al pentagrama muchos temas suyos. Aprovechaban los intervalos de la orquesta para avanzar, con la persistencia de Discépolo y la paciencia de Eduardo Scalise con quien habían fortalecido su amistad en aquella recordada gira de 1935... Cuando por fin, después de varias noches de trabajo, el tango quedó listo, Maffia lo estrenó allí mismo con el cantor Alfredo Castell entonando los dramáticos versos. Marino lo consagraría con Troilo, Nelly Omar con Canaro y hay numerosas versiones del mismo.
+
+ [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjU-Y8zSiWuwi9TGdd7WvQLkrM_wg7tLcHpVcka3ix1aBmJ_a7Qs8U-g68NTpjTX1vEsch1cRHSq7Kzc1r7n41S_OfoyaZ3tJFl1S1v6nt7ZGVGEm4ZlIeuMNIIozilQZAdIhoONN2Yxpw/s320/escanear0006.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjU-Y8zSiWuwi9TGdd7WvQLkrM_wg7tLcHpVcka3ix1aBmJ_a7Qs8U-g68NTpjTX1vEsch1cRHSq7Kzc1r7n41S_OfoyaZ3tJFl1S1v6nt7ZGVGEm4ZlIeuMNIIozilQZAdIhoONN2Yxpw/s1600/escanear0006.jpg) Lalo Scalise, Tania y Discépolo, al regreso de la gira europea
+Pero yo lo traigo en una grabación inédita de la orquesta del *Chopin del tango*, como denominaban a Osmar Maderna, el gran pianista muerto en accidente aéreo a los 33 años. Lo canta Luis Tolosa y aunque el disco, realizado en 1946, no salió a la venta, me parece recrear la historia en ese solo de piano del comienzo, tan chopiniano, del director. Sí, una joyita.
+
+ [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhikRQF-r6Bik16RpENvCTmgaQLUa7upgXoaxqnB421IVN1SYGxoLQx5fODSfcXoeRJ8dHHXTNcqowDRPtldndCyg-w9lHv3Xdpq2sDeLyHHigWhkrbM9wtmKYc4B2s_9f0tD3cpifLHE4/s1600/overri_Maderna_Tolosa.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhikRQF-r6Bik16RpENvCTmgaQLUa7upgXoaxqnB421IVN1SYGxoLQx5fODSfcXoeRJ8dHHXTNcqowDRPtldndCyg-w9lHv3Xdpq2sDeLyHHigWhkrbM9wtmKYc4B2s_9f0tD3cpifLHE4/s1600/overri_Maderna_Tolosa.jpg) Orlando Verri, Osmar Maderna y Luis Tolosa
+
+Y después de la historia, el tango **Canción desesperada**.
+
+[17- Canción desesperada - Osmar Maderna - Luis Tolosa](http://sdrv.ms/11nxav8)

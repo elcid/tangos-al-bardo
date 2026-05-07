@@ -1,0 +1,40 @@
+---
+title: "Dino Saluzzi"
+date: "2015-01-26"
+original_url: https://tangosalbardo.blogspot.com/2015/01/dino-saluzzi.html
+labels: ""
+tags: ["Joaquín Do Reyes", "Vicente Greco", "Carlos García", "Pedro Laurenz", "Alfredo Gobbi", "Mariano Mores", "Héctor Varela", "Julio Pane"]
+---
+
+Para varios expertos es el músico argentino vivo más importante y representatativo. Curiosamente, no es popular y en algunos países se lo reconoce mucho más que en el suyo propio. Su padre, conocido músico salteño, le regaló a Dino un bandoneón cuando éste tenía siete años y como sus hermanos, todos se impregnaron del espíritu del progenitor y estudiaron a fondo los diversos instrumentos, que les fueron confiados.
+
+Hay que tener en cuenta que nació en un pequeño pueblito salteño que está a más de 600 metros de altura y no llega a los 5000 habitantes, porque cada tantos años algún movimiento sísmico destruye algunas casas y lleva precariedad a sus habitantes. Ali también nació Ariel Petrocelli, destacado músico y uno de los grandes poetas del folklore argentino. Dino se trasladó a la capital de su provincia cuando tenía 14 años y allí conoció a Ciriaco Ortiz, cuando éste yiraba por diversos lenocinios con su fueye, y quedó "tocado".
+
+
+Su manejo del bandoneón era muy fluido y sus concepciones musicales y el espíritu lleno de talento lo llevaron a Buenos Aires en 1955. Se incorporó a la orquesta de Enrique Mario Francini y su nombre comenzó a circular entre la gente del ambiente. En la orquesta coincidiría con otros dos fenómenos del fueye: Calixto Sallago y Julio Ahumada. Éste último se encargaría de transmitirle los secretos del instrumento que aún no dominaba y lo pulió en todo sentido, igual que al formidable Julio Pane. De allí en más iría pasando por las orquestas de Carlos García, Alfredo Gobbi, Héctor Varela, Lorenzo Barbero, Joaquín Do Reyes, Roberto Caló y mantendría largas noches envinadas a puro piano y fueye con el inolvidable Osvaldo Tarantino, a quien conoció en su etapa con Alfredo Gobbi.
+
+Pero Saluzzi no dejó de estudiar nunca y también se formaría en percusión y se integraría en la formación de la Banda de Policía, como arreglador e instrumentista de música de cámara y temas sinfónicos. Su espíritu le impulsaba a otras metas y se integró en la Orquesta Estable de Radio El Mundo, mientras comenzaba a perfilar sus primeros conjuntos que ejecutaban especialmente música relativa "*a lo agreste del campo donde se había criado*", como él sugería. Siempre fue un paso más allá y comenzó a viajar en 1977 a Japón con la orquesta de Francini en una larga gira y sus arreglos fueron muy importantes para los espectáculos teatrales que dieron en numerosas ciudades niponas.
+
+ [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEivaKVNXOI52d6oWpfZlOfBvYMpziVZNKHYy6w7nh1ODclfqZ33AeyzoOXb1t7kQq_jMjbpj80Z05f8cMy67s6xavOxmfKqOq4BIghnTVQVs9P6zctbE8gRdRQe8lGWQuBwrVuaMIctbo4/s1600/Saluzzi-y-Pane.png)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEivaKVNXOI52d6oWpfZlOfBvYMpziVZNKHYy6w7nh1ODclfqZ33AeyzoOXb1t7kQq_jMjbpj80Z05f8cMy67s6xavOxmfKqOq4BIghnTVQVs9P6zctbE8gRdRQe8lGWQuBwrVuaMIctbo4/s1600/Saluzzi-y-Pane.png) Dos grandes del fueye: Julio Pane y Dino Saluzzi
+Cuando el tango entra en una etapa de declive, como Pîazzolla forma diversos conjuntos y encara otras metas que lo llevan a distintos países hasta que ingresa al sello alemán ECM (Editions of Contemporary Music) del legendario productor Manfred Eicher. Que no sólo lo contrata sino que además le señala a grandes músicos que pueden acompañarlo en sus conciertos y grabaciones. Así le produce un disco con Marc Johnson, el contrabajista norteamericano que tocaba con Bill Evans.
+
+Perfeccionista, incorformista, su nombre suena con fuerza en lugares tan disímiles como Canadá o Hong Kong, donde es admirado. O en Oslo donde también actúa y graba. Su arma es la inseguridad, y a la vez la fuerza motora que lo impulsa a mejorar siempre en lo artístico. Considera a toda la música como integradora de su arte, pero no olvida nunca ni al tango ni al foklore, aunque haya grabado jazz o sinfónica. En el tango grabó con la fantástica contrabajista alemana Anja Lechner un disco que incluye ocho tangos, la mayoría suyos y uno maravilloso de Vicente Greco, **Ojos negros**, imperdible. Anja descubrió el tango, visitó Buenos Aires y se enamoró de esta música.
+
+ [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEihSz26swgBMY9HMin6mUoMYqAc6fWAJt6DXf7pFcEgI525rg9n3uIWJAtX7MHz-uWeoLa9qoP_yZZ9qlHQ4gNau_LTFd7Dt90wmk6aRv8o5vkKn5yLpmBmm2Ampw5upY-O2Iqvln68Clw/s1600/Dino-Anja.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEihSz26swgBMY9HMin6mUoMYqAc6fWAJt6DXf7pFcEgI525rg9n3uIWJAtX7MHz-uWeoLa9qoP_yZZ9qlHQ4gNau_LTFd7Dt90wmk6aRv8o5vkKn5yLpmBmm2Ampw5upY-O2Iqvln68Clw/s1600/Dino-Anja.jpg) Dino saluzzi y Anja Lechner tocando *Ojos negros.*
+
+También tengo un registro de Dino donde toca con su familia. Félix Zenón, hermano, clarinetista y saxofón, que ha recorrido el mundo haciendo música en oquestas sinfónicas y de todo. Lo llaman* Cuchara* y también fabrica boquillas de clarinete y saxo. El disco se hizo en 1991, luego de un largo *tour* por países europeos. E intervienen en el mismo, el resto de la familia, hijos y sobrinos. José María Saluzzi en guitarra, Matías Saluzzi; bajo y contrabajo. También invitados como el conocido percusionista italiano Umberto Trombetta Gandi, Gabriel Said y Anja Lechner. En los últimos treinta años ha tocado y grabado con músicos del calibre de Al Di Meola, Rosamunde Quartet, Charlie Mariano Enrico Rava, Gato Barbieri, Thomazs Stanko, Metropole Orchestra dirigida por Jules Buckley o Mariano Mores y tantos otros.
+
+
+
+Como dice acertadamente el crítico Daniel Bagnera: ".Musicalmente culto y refinado, su secreto es quizá no haber ‘salido’ realmente nunca de su pueblo. Ese provincianismo universal tan de Chagall, Chejov u otros genios, unido a su privilegiada mente cosmopolita, hace de su música algo tan cercano al hombre contemporáneo de cualquier lugar, urbano o rural, hasta el punto de que, por ir a un extremo, el propio Pedro Almodóvar cogió de *Cité de la Musique* los dos últimos temas de ese disco para ambientar dos de los momentos cruciales de *Todo sobre mi madre* (al parecer, sin el consentimiento de Saluzzi, no sé en qué quedó aquello; espero que se resolviera entre ambos, que es lo que a priori uno desea entre dos tíos tan talentosos)".
+
+ [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiXMcEGphEQY6h4rj9Bp0KwVCZ99VWIVjeIXoBqFY1zTQaTs7G3ArPmU7aJ2ZhIpU89YvhXAqVIGBq9cRjkphfdW5Lupf22jbM5GbIkHBriWyADM0Y4_iQL6H_dfxM_q2558Wq7IpPfaeA/s1600/dino-saluzzi-group.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiXMcEGphEQY6h4rj9Bp0KwVCZ99VWIVjeIXoBqFY1zTQaTs7G3ArPmU7aJ2ZhIpU89YvhXAqVIGBq9cRjkphfdW5Lupf22jbM5GbIkHBriWyADM0Y4_iQL6H_dfxM_q2558Wq7IpPfaeA/s1600/dino-saluzzi-group.jpg) El familiar Dino Saluzzi Group
+Dino se acaba de presentar en el Café Vinilo de Palermo, en Buenos Aires con su grupo familiar y algunos refuerzos, tocando temas de su último disco producido por ECM, *El valle de la infancia*, que no se vende en Argentina.. En él hay diferentes músicas, e incluso el tango *Loca Bohemia* de Francisco De Caro. Y desde el escenario adelantó con sus palabras: "*Tengo la obligación de tomar riesgos*", lo que lo emparienta con Ástor Piazzolla a quien siempre reverenció por su inventiva y vanguardismo.
+
+
+
+Yo los invito a escuchar los dos temas citados en la nota: **Ojos Negros**,con Anja Lechner, que es un verdadero placer auditivo y sensorial. Y con su familia y el tano percusionista U.Gandi: la milonga de Pedro Laurenz: **Milonga de mis amores**.
+
+[Ojos negros. Dino Saluzzi-Anja Lechner](http://1drv.ms/1JNk38Q)
+
+[Dino Saluzzi group - Milonga de mis amores](http://1drv.ms/1JNkzDY)

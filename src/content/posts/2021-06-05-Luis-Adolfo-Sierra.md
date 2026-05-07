@@ -1,0 +1,45 @@
+---
+title: "Luis Adolfo Sierra"
+date: "2021-06-05"
+original_url: https://tangosalbardo.blogspot.com/2021/06/luis-adolfo-sierra.html
+labels: ""
+tags: ["Juan Carlos Cobián", "Luis Adolfo Sierra", "Francisco Canaro", "Osvaldo Pugliese", "Sebastián Piana", "Ignacio Corsini", "Edmundo Rivero", "Horacio Ferrer"]
+---
+
+Lo repito una y otra vez: Soy un eterno agradecido a todos aquellos comunicadores que a través de la radio me introdujeron en los vericuetos del tango. De todos ellos fui aprendiendo y nutriéndome tempranamente sobre orquestas, cantores, poetas, compositores. Luego, por supuesto, leí todo lo que pude, tengo una biblioteca importante que versa sobre el género y sigo aprendiendo.
+
+Por eso hoy quiero ocuparme de Luis Adolfo Sierra, uno de los investigadores más serios, capacitados que ha tenido el tango. Ha sido muy respetado por toda la gente importante del ambiente y su libro, pequeño pero fundamental: "HISTORIA DE LA ORQUESTA TÍPICA - Evolución instrumental del Tango", es básico para comprender a fondo el desarrollo y la evolución del tango en la faz instrumental.
+
+Este personaje que nos introduce en las entrañas tangueras, nació en París el 23 de enero de 1917. Su padre, Adolfo Sierra era médico psiquiatra y regresó a Buenos aires, cuando el pequeño Luisto tenía apenas tres meses de vida. Horacio Ferrer cuenta que su abuela, Ascensión Figueroa de Mackintach, le transmitió tempranamente la pasión por las artes populares. Se crió en un piso céntrico de Callao y Bartolomé Mitre, y allí conocería a personajes como Carlos Gardel y Juan Carlos Cobián.
+
+En la planta baja del edificio donde vivía estaban las oficinas de la Casa Max Gluckxmann y gracias a ello compartiría breves momentos con Francisco Canaro e Ignacio Corsini. Siguiendo la línea familiar, fue un gran estudioso y terminaría recibiéndose de Doctor en Abogacía. Se especializaría en Derecho Autoral Pero, a la vez, y es lo curioso, le tiraba mucho la música y quería aprender a tocar el bandoneón. No podía elegir mejor maestro: Pedro Maffia. Sebastián Piana lo curtiría en teoría y solfeo.
+
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg5xrM-nA4oSFTuRu5HQ3DZeTpODG9gPxQG06qgCJO1kan3AN8M0G9-gpi0gNYmG1ByyO6zHtIqvWxD2XiaBtSre6HuxPdiJD3-maPxKQfu2aPuWIfdo9ZpZpek2UMyaHETGSJyZ3H42p8P/w400-h279/Luis+Sierra1983+-+jueves+28+de+julio-Biblioteca+Sarmiento.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg5xrM-nA4oSFTuRu5HQ3DZeTpODG9gPxQG06qgCJO1kan3AN8M0G9-gpi0gNYmG1ByyO6zHtIqvWxD2XiaBtSre6HuxPdiJD3-maPxKQfu2aPuWIfdo9ZpZpek2UMyaHETGSJyZ3H42p8P/s943/Luis+Sierra1983+-+jueves+28+de+julio-Biblioteca+Sarmiento.jpg)Luis Sierra, Luis Alposta y Edmundo Rivero disertando en una Biblioteca
+
+Siempre escuché grandes elogios hacia su persona por parte de las profesionales del tango. Julio De Caro, al que Luis Sierra escuchó y conoció en el Vogue's Club y a quien destacó por sus raíces evolucionistas tan importantes en el futuro del tango, me comentaba, en la visita que hizo al programa que yo tenía en radio Argentina, los domingos de 8 a 12.30:
+
+-El Doctor Sierra es el investigador más importante que ha tenido el tango en su historia. Nadie trabajó tanto ni lo hizo tan bien como él en el estudio de las primeras horas, del desarrollo y lo que iría surgiendo en la década del treinta y en la evolución de los cuarenta. Por su formación de abogado, tenía además estilo para hablar por radio o escribir en medios gráficos y en libros. Yo creo que el tango le debe mucho más de lo que le han reconocido.
+
+Lo cierto es que ha sido un gran investigador y analista. "*Nuestro tango es así*", fue su programa emitido por diferentes emisoras desde el año 1956. Pero además colaboró en diferentes periódicos y revistas, y editó unos cuantos libros. Realmente, reconstruir toda su obra es un poco trabajoso, pero lo realmente importante es que estudió como ninguno, fue investigador al mango, hurgó en los más mínimos detalles y por su palabra y su obra merece el beneplácito de todos los tangueros.
+
+En 1987, la Fundación Konex le entregó el Premio Konex: Música Popular con este argumentario:
+
+Abogado, músico, escritor y crítico de tango. Doctor en Abogacía (UBA), especializado en derecho autoral. En 1955 publicó *Los sextetos inolvidables, El octeto Buenos Aires* y *El tango en París*; luego escribió *Perfiles del tango, El octeto del tango, Deslinde entre dos guardias, El tango en los últimos 25 años, El bandoneón: voz del tango, Discepolín, Tango* e* Historia de la orquesta típica*. También fue corresponsal de la revista La música Iberoamericana, de Tokio (Japón). En 1954 fundó el *Club de la Nueva Guardia* y en Montevideo la peña* Gente de tango*. Desde 1956 produjo y condujo *Nuestro tango es así* en las radios El Mundo, Belgrano, Libertad y Del Pueblo. Fue fundador y asesor de la Sociedad Argentina de Arregladores y Orquestadores y asesor de SADAIC. Miembro de la Academia Nacional de Lunfardo.
+
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjkoSaDdCdcYsQAlNB7An75PKp8yLiave7XJZi4IAerEhV8n0jtzcBk7bBzTlsTIkktyZA9RFSmjN2VY0traLhMByQmJ950euVqqzr1ZfmBDJuwhJ7Cg7EeDDSzgERF-x1kgiAhSNZiANju/w400-h263/Sierramagen+%25281%2529.png)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjkoSaDdCdcYsQAlNB7An75PKp8yLiave7XJZi4IAerEhV8n0jtzcBk7bBzTlsTIkktyZA9RFSmjN2VY0traLhMByQmJ950euVqqzr1ZfmBDJuwhJ7Cg7EeDDSzgERF-x1kgiAhSNZiANju/s1162/Sierramagen+%25281%2529.png)Luis Sierra con Osvaldo Pugliese y Francisco De Caro
+
+En una oportunidad que yo estaba en Mar del Plata, cubriendo los Torneos de Verano, por las noches, cuando no había partidos me iba a la boite **Re-fa-si**, que regentaba mi entrañable amigo Leonardo Izzo. Llegaba temprano y me sentaba en el recibidor. Troilo, que estaba actuando allí, también iba pronto y en una de esas noches estuvimos sentados juntos, Leonardo nos mandó unas cositas para picar y beber y no recuerdo cómo, en la charleta entre ambos, salió el nombre del Doctor Sierra. Pichuco hizo un gesto tocándose la frente, lanzó un soplido y me decía más o menos cosas así:
+
+-Es el gran maestro de la historia del tango. El que más y mejor lo ha estudiado. Además, con qué labia y con qué pluma. Son palabras mayores. Se puede decir que si otros también lograron contribuir a desarrollar y explicar todo lo que atañe al tango en su desarrollo, en los temas orquestales, en estilos y variantes, hay que reconocer que casi todo proviene de su investigación profunda, amplia, genial. Y además cómo defendía su trabajo, se enojaba ante infundios y aportaba pruebas... Un tipo genial y muy buen amigo.
+
+Entiendo que su libro sobre la **Historia de la Orquesta Típica** es fundamental para el estudio del género. En su prefacio dice entre otras cosas:
+
+-Pienso que los 34 microsurcos del long-play "*Historia de la Orquesta Típica"*, condensaban el primer intento realizado en nuestro medio -cuya prioridad reivindicamos enfáticamente, frente a posteriores incursiones de tal carácter que se atribuyen la iniciativa- de ofrecer una fidedigna y verídica síntesis sonora de todo un pasado y un presente musical de nuestro tango, a través de los instrumentos y de las agrupaciones orquestales de más trascendente gravitación. (En 1960, Argentino Galván grabó el disco *La Historia de la Orquesta Típica*, subtítulado *El Tango en su Evolución Instrumental*, que va desde *Don Juan* por un trío de guitarra, flauta y violín, hasta llegar a Piazzolla. Los principales instrumentistas de la época recreaban allí a los homenajeados, según el criterio de Galván y Sierra.)
+
+Pero entendimos de necesidad imprescindible, el agregado de un texto auxiliar que permitiera un tránsito más comprensivo a lo largo de las distintas imágenes musicales que se iban sucediendo sin solución de continuidad. O sea, una breve reseña descriptiva que fuera ubicando cronológica y conceptualmente los momentos, los lugares, los hechos, los nombres, los títulos y los caracteres diversos de todo ese cúmulo de elementos que configuran la historia del tango.
+
+Ese fue el origen de estas páginas. Una concisa monografía en forma de folleto adicional al disco de referencia. Pero ese valioso material informativo -pacientemente acumulado en muchos años de fervorosa consagración al estudio del tango en todos sus aspectos- tuvo una suerte de difusión tan exigua que solamente llegó al conocimiento de aquellos muy adentrados en el movimiento de la actividad fonográfica.
+
+Esa circunstancia de no haber llegado esta **"Historia de la Orquesta Típica"** a manos de muchos interesados por el tema del tango -a pesar de que varias publicaciones se han nutrido con datos sustraídos de aquel folleto, en la mayoría de los casos sin cita de procedencia-, nos insta ahora a su edición independiente del acople discográfico. (...)
+
+Al Doctor Luis Adolfo Sierra le debemos mucho todos los tangueros que nos interesamos en la historia del género. Y éste es apenas un pequeño homenaje-recuerdo a su figura.

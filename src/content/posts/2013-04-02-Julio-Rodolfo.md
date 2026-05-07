@@ -1,0 +1,37 @@
+---
+title: "Julio Rodolfo"
+date: "2013-04-02"
+original_url: https://tangosalbardo.blogspot.com/2013/04/julio-rodolfo.html
+labels: ""
+tags: ["Francisco García Jiménez", "Fernando Suárez Paz", "Juan Carlos Copes", "Florindo Sassone", "Fulvio Salamanca", "Enrique Campos", "Pedro Laurenz", "Ricardo Ruiz"]
+---
+
+Parque Patricios -mi barrio-, ha dado un manojo de cantores profesionales que dejaron huella en el tango y la siguen dejando. El más grande sin duda fue Ángel Vargas, nacido y criado en la calle Pepirí. Pero además hubo otros que destacaron, como Alfredo Del Río, Néstor Soler, Roberto Videla, Rodolfo Lemos -que sigue en la brecha- o Julio Rodolfo (Rodolfo Di Piazza), el caso más singular de todos.
+
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEinrAqRWsRRRltwc8DcqrXN8aww4lEhg3CekvuHxaWrgYPqJmP64zFY-ljjuduojFc9OTleanGxyV57IhWwEYnlaGrGwIpSw7SW61ysUeL-NXdtP1tjB9jNuIdj7ff6POGbzMYLpJJYhrs/s1600/Julio+Rodo.gif)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEinrAqRWsRRRltwc8DcqrXN8aww4lEhg3CekvuHxaWrgYPqJmP64zFY-ljjuduojFc9OTleanGxyV57IhWwEYnlaGrGwIpSw7SW61ysUeL-NXdtP1tjB9jNuIdj7ff6POGbzMYLpJJYhrs/s1600/Julio+Rodo.gif)Porque este polifacético artista tanguero arrancó su carrera como músico, dado que su familia estaba poblada por seguidores de la musa Euterpe. Su padre era contrabajista, lo mismo que dos tíos. Un hermano de su madre era bandoneonista y guitarrista. Otro intervenía en el conjunto cómico-musical que acompañaba al dúo Giovanetti-Catalano, que mi madre escuchaba siempre por Radio del Pueblo.
+
+Ese poder suasorio que lo rodeaba, lo llevó a tocar la armónica y luego la batería con 5 años apenas, en el conjunto familiar *Los errantes*. Al principio, de oreja, luego estudiando en el Conservatorio Municipal, aprendiendo los secretos del contrabajo junto a Hamlet Greco, su gran maestro. Y así seguía recorriendo la senda que había trazado su padre, que actuó en conjuntos importantes como Mancione, Emilio Orlando y aquellos cuartetos que pululaban en las radios porteñas.
+Parque Patricios era un barrio de grandes milongueros y también le inoculó el germen del baile. Lo cierto es que son escasos los músicos o cantores que desarrollaron esa cualidad, por lo cual aparecen muchas veces en viejas películas algunas figuras, simulando bailar el tango con poca gracia y mucho desconocimiento del tema.
+
+Y entonces, luego de cinco años de duro aprendizaje, Julio entró por la puerta grande del tango, enrolandose sucesivamente en las orquestas de Mancione, Miguel Caló, Pedro Laurenz, la temporada de verano en el *Re Fa Si* marplatense junto a Piazzolla y Troilo, más otras figuras del elenco.
+
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgYrMDzBN6Qh8TU8jfCbnGyZ8e29qT0Lcv9Y89mdVetD4FNXzEFi3uwYgeNWezvTql_p1p4O2j6UuHLTfJvTfLyMOs8r2puCzU2etxhC8pzEa4u6b_F5dinKSTzwKU_QNhI3GbuzLJYKL8/s1600/julio+rodolfo.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgYrMDzBN6Qh8TU8jfCbnGyZ8e29qT0Lcv9Y89mdVetD4FNXzEFi3uwYgeNWezvTql_p1p4O2j6UuHLTfJvTfLyMOs8r2puCzU2etxhC8pzEa4u6b_F5dinKSTzwKU_QNhI3GbuzLJYKL8/s1600/julio+rodolfo.jpg)Su hoja de servicios lo muestra en Japón con José Basso, o militando en la orquesta de Florindo Sassone, Fulvio Salamanca, Trípodi, Pansera, Fresedo, Osvaldo Requena. Con este último despunta incluso su pasión: el baile, junto a su esposa, que también devengará en resultados artísticos importantes. Viajó por medio mundo, media América, Europa, Nueva Zelanda, Estados Unidos.
+
+El otro metejón lo tuvo con el canto. Hincha de Gardel, de Floreal, de Fiore, de Marino, Ricardo Ruiz, Enrique Campos, Jorge Durán, la oportunidad le llegó de manera impensada. Salamanca necesitaba cubrir la baja muy importante de Armando Guerrico y llegó al local donde actuaban varios vocalistas. Luis Correa lo recomendó a él, que ignoraba la jugada. Por ello no le extrañó que este último le pidió que lo reemplazara en una vuelta porque se *sentía mal*. Lo hizo, con Fulvio Salamanca de espectador. Al terminar, Luis le preguntó: ¿Porqué no te vas de cantor con Salamanca? Pensó que era una broma hasta que lo llevaron a la mesa del ex pianista de D'Arienzo y éste se lo propuso formalmente. Incluso le dio la partitura de "*El último café"* y le pidió que la estudiara para grabar.
+ [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhKVBUM47zQsnoz7aKmFBnLPzW-rSQNw2SRVcWiWB51jIs_ZgRQgkNJEZeF2ahGIUE8sR3_u2mB6DXqIhuMP9CqC9f9EBNPNJEW-OYqGNGpIcmp8TT4nPDMARr3lzxHAGr4ZHQSGRVixsU/s1600/Rodolfo_Julio+y+Fulvio+Salamanca.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhKVBUM47zQsnoz7aKmFBnLPzW-rSQNw2SRVcWiWB51jIs_ZgRQgkNJEZeF2ahGIUE8sR3_u2mB6DXqIhuMP9CqC9f9EBNPNJEW-OYqGNGpIcmp8TT4nPDMARr3lzxHAGr4ZHQSGRVixsU/s1600/Rodolfo_Julio+y+Fulvio+Salamanca.jpg) Fulvio Salamanca y Julio
+El susto no le cabía en el cuerpo y Correa lo ayudó invitándole a tomar una ginebra. El 19 de diciembre de 1963 como regalo pre navideño debutó con la orquesta en condición de cantor y contrabajista. *"No sé que imagen daría a los demás pero a mí me temblaban las piernas, estaba nerviosísimo"*, confiesa hoy día.
+
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiEKm_3oj-8r-9g8567npq0lfuWxwKmdzh67fKUTp9FUln8GKXSFJ7z4wzRgL9U0JDBmP9LSN-_3I5ZoNJdm4jvsSDrVaXFNH5Csz-KCwUChZ5LyX4tI_5Zz0kTHRh0RgxUycTQdqfWO80/s1600/Rodolfo_Julio+bailando.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiEKm_3oj-8r-9g8567npq0lfuWxwKmdzh67fKUTp9FUln8GKXSFJ7z4wzRgL9U0JDBmP9LSN-_3I5ZoNJdm4jvsSDrVaXFNH5Csz-KCwUChZ5LyX4tI_5Zz0kTHRh0RgxUycTQdqfWO80/s1600/Rodolfo_Julio+bailando.jpg)Osvaldo *Pichuquito* Rizzo, fue su compañero de aventuras en una gira por media Europa en 1973, y quien le aconsejó a Osvaldo Requena que lo llevase a Japón como cantor y bailarín. No estaba preparado para danzar en un espectáculo, sólo era un milonguero, pero entre el *Negro* Raúl y los Dinzel le dieron el baño lustral, y así completó la trilogía -junto a su esposa milonguera-, que es única en el catastro tanguero: Músico, cantor y bailarín.
+
+En este último rol siempre destacará a Juan Carlos Copes y Miguel Ángel Zotto como grandes maestros que arrancaron en la milonga, antes de dar el salto artístico.
+
+ [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgTsa9StEnmQihEPko69-ieBwLBRzR9cBJdhNvjmEeycjjsP5IEXoGSsxGLP3g8QqTer5FzT_0ruKEX9ob-7TtACUw2t0-1np2cnW2kyL0Zua4ltki9NyfxEQupklOFdhb9hGyWtQNGH2U/s1600/julio-rudolfo.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgTsa9StEnmQihEPko69-ieBwLBRzR9cBJdhNvjmEeycjjsP5IEXoGSsxGLP3g8QqTer5FzT_0ruKEX9ob-7TtACUw2t0-1np2cnW2kyL0Zua4ltki9NyfxEQupklOFdhb9hGyWtQNGH2U/s1600/julio-rudolfo.jpg) Con La *flaca* Lucía alternando en una milonga actual  Y como broche de oro artístico vale la pena destacar que la última actuación de Pedro Laurenz tuvo lugar en 1970, en el Carnegie Hall de Nueva York, al frente de un cuarteto integrado también por Fernando Suárez Paz en violín, Osvaldo Potenza en piano y Julio Rodolfo en contrabajo.
+
+Vamos a escucharlo cantando con Fulvio Salamanca en dos temas: **Una canción para mi pueblo**, que grabó en 1964 y **Mariposita**, de Aieta y García Jiménez. Curiosamente, en este caso se trata de la primera letra que escribió Francisco García Jiménez, la menos conocida.
+
+[20- Una canción para mi pueblo](http://sdrv.ms/14BEWDV)
+
+[20- Mariposita](http://sdrv.ms/14BEZzm)
+
+
+La última actuación de Laurenz

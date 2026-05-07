@@ -1,0 +1,23 @@
+---
+title: "Piazzolla entrevistado por Guillermo Saavedra (2)"
+date: "2023-09-05"
+original_url: https://tangosalbardo.blogspot.com/2023/09/piazzolla-entrevistado-por-guillermo_5.html
+labels: ""
+tags: ["Cátulo Castillo", "Aníbal Troilo", "Orlando Goñi"]
+---
+
+* Entre las previsibles lágrimas de doña Asunta y los consejos de Nonino, el joven de dieciséis años partió a la Capital. Allí lo esperaban un cuarto de alquiler, el trabajo en una orquesta que tocaba en el cabaret Novelty y la amargura de descubrir rápidamente la espesa sordidez de la vida nocturna en Buenos Aires, que Piazzolla aprendió a matizar estudiando música con rigor prusiano y despejándose en la calma verde del billar. Cuando salía de tocar se iba, con unción religiosa, al Café Germinal a escuchar al bandoneonista Aníbal Troilo, "*por ese entonces*", afirma Piazzolla, "*el más grande de todos".
+
+De tanto ir a escucharlo, sabía el repertorio de Troilo de memoria; y me había obsesionado con algunos de sus músicos, especialmente con el pianista Orlando Goñi y el violinista Hugo Baralis, de quien me hice amigo. Una noche llego al Germinal y Baralis me recibe con cara de velorio. *¿Qué pasa?*, le pregunté. "*Justo hoy, un viernes, se enfermó el Toto. El Gordo está furioso y tiene razón; perdemos de tocar todo un fin de semana*", me respondió.
+
+Era mi oportunidad: el Toto Rodríguez, uno de los bandoneones, estaba fuera de combate. Con la irresponsabilidad de la adolescencia, le pedí a Baralis que le dijera a Troilo que yo podía tocar. Baralis me miró como si yo me hubiera vuelto loco: "*¿Lo decís en serio?". "Por supuesto que lo digo en serio. Sé todo el repertorio de memoria". "Es imposible*, -me dijo riéndose- *sos demasiado jovencito para esto*". Seguí insistiendo hasta que Baralis, con un poco de miedo, fue a hablarle a Troilo. El Gordo me miró, entre divertido y asombrado; me preguntó si me tenía tanta fe como para tocar allí mismo. Le dije que sí, que sabía música clásica y conocía sus tangos como para tocarlos con los ojos cerrados. Troilo hizo una seña con la cabeza, me acercaron un bandoneón, subí al escenario de un salto, y a una indicación suya, comencé a tocar. Me tenía tanta confianza que toqué todos los tangos, como a quien le piden el *Arroz con leche*. Cuando terminé, Troilo se quedó un momento en silencio, después se acercó hasta mí y lo único que dijo fue: "*Ese traje no va, pibe. Conseguite uno azul que debutás esta noche*".
+
+El pianista Arthur Rubistein estaba en Buenos Aires para una serie de recitales. Le llevé un concierto para piano que yo había escrito. Él, muy amablemente, se puso a tocarlo al piano. Cuando terminó, me dijo con simpatía: *¿Le gusta la música". ¿Sí, maestro", "¿Por que no estudia, entonces*?". Tenía absoluta razón. Sin perder tiempo, comencé a estudiar con Alberto Ginastera. Yo quería estudiar con Juan José Castro pero él no podía enseñarme y me recomendó a Ginastera, que en ese momento era también joven, al punto que yo fui el primer alumno que tuvo en su vida.
+
+Con él estudié frenéticamente entre 1939 y 1945; es decir, más o menos el tiempo que estuve en la orquesta de Troilo. De modo que el Gordo era el chanchito de la India. Cada nueva cosa que aprendía, me preguntaba si estaba loco o quería que los músicos me asesinaran al final de un ensayo; decía que lo que yo proponía no se podía bailar. De todos modos Troilo me quería, llegué ser su primer bandoneón, y durante los últimos años que estuve con él -1943 y 1944- hacía casi todos los arreglos. Claro que era una lucha constante: de mil notas que escribía, el Gordo me borraba seiscientas.
+
+Lo que hacía en el '40 estaba completamente ligado al Buenos aires de entonces. Una ciudad sin televisión, menos bombardeada por la publicidad y enamorada de los bailes. Si te fijás en un diario de esa época, vas a ver que todos los días se anunciaban docenas de bailes: por la orquesta de De Angelis, las de D'Agostino, la de Canaro, la de Pugliese... Cientos de orquestas de tango que hacían baile todos los días. D'Agostino o D'Arienzo trabajaban mucho más que Troilo, porque hacían una música más simple, más popular; pero yo con Troilo llegué a hacer treinta y cinco bailes en un mes.
+
+Además, al existir menos intermediarios, había una relación muy íntima entre los músicos y el público. Y una cantidad de creadores extraordinaria: Manzi, Francini, Cadícamo, los hermanos Expósito, Discépolo, Troilo, Cátulo Castillo, Stamponi, Mores... De modo que todas las noches se estrenaba un tango que, literalmente, a la mañana siguiente ya era un éxito.
+
+(Continuará)

@@ -1,0 +1,31 @@
+---
+title: "La musicalidad bailable en el tango"
+date: "2020-06-25"
+original_url: https://tangosalbardo.blogspot.com/2020/06/la-musicalidad-bailable-en-el-tango_25.html
+labels: ""
+tags: ["José María Otero", "Fulvio Salamanca", "Osvaldo Pugliese", "Carlos Di Sarli", "Aníbal Troilo", "Julio De Caro", "Alfredo Gobbi", "Orlando Goñi"]
+---
+
+**Las Orquestas y sus respectivos estilos**
+
+En la feraz década del cuarenta que produjo una revolución de estilos, de conjuntos, de cantores, poetas, compositores, arregladores y bailarines, se fijaron pautas para ese glorioso presente y para el futuro del tango. Y así como cada bailarín tiene su propio estilo para bailar, cada orquesta marcó con su sello personal el ritmo musical que las parejas danzantes deberían seguir con sus evoluciones en la pista.
+Precisamente por ser tan disímiles, era necesario tener un arsenal propio de figuras, pasos y caminatas que entraran dentro del “tempo” musical que aquellas les proponían para no “desafinar”. Es decir, bailar como si fueran integrantes de la orquesta de turno.
+
+El tango siempre evolucionó, desde su nacimiento hasta nuestros días, aunque la parte meramente bailable haya que situarla forzosamente en las fronteras de aquella década prodigiosa porque, si bien Piazzolla y sus acólitos le dieron un toque renovador musicalmente muy valioso, en lo que se refiere a la parte meramente bailable siempre hay que retroceder a aquellos discos del cuarenta (1935/1955). Porque las orquestas de entonces tocaban en ritmo bailable y atendían más a las necesidades de los bailarines que al lucimiento de sus integrantes, sin desmedro de la gran calidad instrumental de la mayoría de estos. Los arregladores y orquestadores que no figuran en los créditos del disco tuvieron un enorme mérito que la documentación no recoge pero que los bailarines agradecen cuando evolucionan en las pistas del mundo.
+
+ [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiccZh98P60C9iwnOLV3WI3zG0z8A0vpAMMgpORrOXV2sMtVhS9_p5EQ1X0Hvp9ktoSns0g6gULoAnGiVgeAp9u8pGfTTw8kOBrB4BVID2STzdhgXdNWaLKtirLi2n9QTs7NNaXM3f-fBP5/s400/pugliese-+radio+El+Mundo+1943.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiccZh98P60C9iwnOLV3WI3zG0z8A0vpAMMgpORrOXV2sMtVhS9_p5EQ1X0Hvp9ktoSns0g6gULoAnGiVgeAp9u8pGfTTw8kOBrB4BVID2STzdhgXdNWaLKtirLi2n9QTs7NNaXM3f-fBP5/s1600/pugliese-+radio+El+Mundo+1943.jpg) La orquesta de Osvaldo Pugliese en radio El Mundo. Año 1943
+Julio De Caro fue el que terminó de sellar el paso a la era canónica que dejaba atrás el empirismo, y sus sucesores siguieron el alumbramiento de sus pasos con enorme respeto. Osvaldo Pugliese fue el más ferviente adherente a este estilo musical de desarrollo brillante, pero con pausas constantes, que obligan al bailarín a estar siempre reconcentrado, deteniéndose en los adagios, pisando con suavidad y siguiendo esa marcación del piano macerada, musicalmente elaborada, sentida, puro corazón de tango. Alfredo Gobbi fue otro de los seguidores de ese estilo.
+
+Juan D’Arienzo, el gran revitalizador del tango fue la contrafigura. En el año 1935, con el apoyo fundamental de Rodolfo Biagi en el piano, retornó al 2x4 de la Guardia vieja, con temas de aquella época, relanzando al tango que estaba en horas bajas y produciendo una verdadera revolución, sobre todo con el aporte de los bailarines que los siguieron con un entusiasmo desbordante. Cuando Biagi abandonó la formación para dirigir su propia orquesta, Juan Polito y luego el jovencísimo Fulvio Salamanca tomaron las riendas del piano y la orquesta siguió imponiendo su vibrante estilo, con los bandoneones tocando en stacatto. Bailar D’Arienzo es una fiesta del ritmo y de los cuerpos que piden rienda suelta, como los caballos de carrera cuando se alzan las cintas y sus jockeys los azuzan.
+
+
+Carlos Di Sarli es una bisagra entre ambos conjuntos. El estilo del gran pianista de Bahía Blanca, si bien tiene un aire “fresediano”, contiene más emoción milonguera que su maestro y constituye todo un placer bailar Di Sarli con la suavidad de desplazamientos que pide la orquesta, especialmente el piano cadenero del director. Es el único conjunto donde los bandoneones quedan en segundo lugar, detrás de los maravillosos violines y las campanitas que produce sutilmente el piano. Por ello no se puede bailar el compás de esta orquesta como D’Arienzo o Pugliese. Técnica y musicalmente, se aprecian sutilezas creadas para el bailarín aunque la orquestación no contenga grandes secretos.
+
+Y deberíamos completar este póker de ases con Aníbal Troilo. En 1937 arranca la orquesta de Pichuco, transitando la estela abierta por D’Arienzo pero con la polenta milonguera que trasmite Orlando Goñi desde el piano, que le da un estilo definitivo, genial para los bailarines. Troilo arrancó ganando y arrastrando otra gran legión de milongueros. El swing de Goñi y sus contrapuntos con el bandoneón de Troilo son una invitación indeclinable a bailarlo. Con el agregado de Fiorentino en los cantables, que, como los cantores del cuarenta, cantaba en ritmo, como si fuesen un instrumento más de la orquesta. A partir de la deserción de Goñi (dejó 71 placas impresas, Troilo había estado 3 años sin grabar), la orquesta busca más la musicalidad, se vuelve más melódica, evoluciona, tiene grandes arreglos, pero no transmite la polenta y fuerza convidante que tenía para los bailarines.
+
+
+Conviene hacer notar que algunas de las grandes orquestas del cuarenta, que fueron muchas más que estas cuatro, digamos prototípicas, tuvieron directores que eran pianistas (Pugliese, Biagi, Di Sarli, Tanturi, D’Agostino, Demare, Basso, Figari) o tenían enormes ejecutantes al piano (Polito-Salamanca con D´Arienzo; Goñi o Basso con Troilo; Maderna-Stamponi, Nijensohn, con Caló; Martínez, Ricardi, Mores con Canaro; Posadas con Tanturi; Pugliese, Armando Federico o Héctor Grané con Laurenz; Smurra con Malerba, etc.). Esto demuestra la importancia vital que tiene el instrumento en la marcación del compás que bailamos en la pista. Y ese compás, es el ritmo que debemos seguir con los pasos adecuados al conjuro de las orquestas que intervienen desde el disco.
+
+Si no dominamos esta cuestión, jamás llegaremos a entender el tango como danza y, por ende, nunca llegaremos a bailarlo adecuadamente.
+
+José María Otero

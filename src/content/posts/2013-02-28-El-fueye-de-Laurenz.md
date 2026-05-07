@@ -1,0 +1,37 @@
+---
+title: "El fueye de Laurenz"
+date: "2013-02-28"
+original_url: https://tangosalbardo.blogspot.com/2013/02/el-fueye-de-laurenz.html
+labels: ""
+tags: ["José María Contursi", "Osvaldo Pugliese", "José Colángelo", "Pedro Laurenz", "José Rótulo"]
+---
+
+Mi experiencia milonguera me permite afirmar que el bandoneón de ese maestro enorme que fue Pedro Laurenz (*né* Pedro Blanco Acosta), es el único que en la pista me guía por encima del piano, inclusive.
+ Ya he explicado que para bailar, mi brújula generalmente es lo que brota del piano y el resto me aporta sugerencias y matices para figuras, caminatas, detenciones, variaciones y demás. En la orquesta de Pedro Laurenz, curiosamente, y aunque haya contado con muy buenos pianistas (Osvaldo Pugliese, Héctor Grané, César Zagnoli, José Colángelo), la tremenda polenta de su fueye cadenero, mueve los hilos de la orquesta y las piernas de los bailarines, al menos en mi caso particular.
+
+La escuela de Laurenz que tuvo destacadores seguidores como Osvaldo Ruggiero, entre otros, fue tan importante en el tango como la iniciática de Arolas y Berstein.
+ [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh1319nLWGwtEFhCnmBylMLixucyNwY14IBWVJCH8OzyFXtnDSZT75aahLi6OrnDhOuIuiZSRMORmmRMwDeAABeZ-eQQC5DCwq9zklZxgMMDC-CBQ3HqXJrf5jq6BQRw9gSXtDFa-GrQ8c/s1600/De_puro_guapo_tapa_72.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh1319nLWGwtEFhCnmBylMLixucyNwY14IBWVJCH8OzyFXtnDSZT75aahLi6OrnDhOuIuiZSRMORmmRMwDeAABeZ-eQQC5DCwq9zklZxgMMDC-CBQ3HqXJrf5jq6BQRw9gSXtDFa-GrQ8c/s1600/De_puro_guapo_tapa_72.jpg) Supo conservar y transmitir aquellos valores, pero a la vez le imprimió un toque evolucionista que galvanizó los pilares de esta música, y a más de cuarenta años de su desaparición física, su vitalidad tímbrica se mantiene intacta en las pistas de baile, arrastrando a los milongueros con la fuerza avasallante de su belleza rítmica. Y ese sonido impactante de su orquesta.
+
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjW1RKH7cTTo04kh4YeOdZ7B5a4DsGGX549xyGR8m88h-zk4vyF52BdQEviOZn6qRO-3wHdTiY6dmA_TCWsjL1UqI4HMI3bxT5HGMRil_XPj1Q48Vf9rMchk0er1k5k3OJOKSpda1SYDjU/s320/escanear0014.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjW1RKH7cTTo04kh4YeOdZ7B5a4DsGGX549xyGR8m88h-zk4vyF52BdQEviOZn6qRO-3wHdTiY6dmA_TCWsjL1UqI4HMI3bxT5HGMRil_XPj1Q48Vf9rMchk0er1k5k3OJOKSpda1SYDjU/s1600/escanear0014.jpg) Como ejecutante alcanzó formas brillantes, con polos de enorme tensión emocional. Tuvo ideas precisas y sabias sobre la sonoridad del bandoneón, lo que le llevó a encontrar en el instrumento notas inéditas y fraseos de concepción original y temperamental increíbles. Bastaría con decir que en el año 1926, fue el propio Laurenz quién modificó el tipo de afinación del fueye.
+
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgT3D0PWzUuNDi3xrXdXotOjzwhjcuyRR2ocduUT6zFO_K_ZOGWaJj36qcSU6nuBq9rv2CNjUmu9y74-Etkb0zPZ2kDwZCW3ULPcbcQZkjw5jPaHz8r97j7KuBMjWC9DYVC1e7DXNk0Hss/s1600/como_dos_extranos.gif)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgT3D0PWzUuNDi3xrXdXotOjzwhjcuyRR2ocduUT6zFO_K_ZOGWaJj36qcSU6nuBq9rv2CNjUmu9y74-Etkb0zPZ2kDwZCW3ULPcbcQZkjw5jPaHz8r97j7KuBMjWC9DYVC1e7DXNk0Hss/s1600/como_dos_extranos.gif)Como compositor dejó una herencia inagotable de ideas, de fiebre creadora que constituyen una fuente inagotable de recursos y de reclamos para tantísimos músicos. *Milonga de mis amores, De puro guapo, Orgullo criollo, Mala junta, Como dos extraños, Amurado* (con Maffia), *Vieja amiga, Berretín, Risa loca, Mal de amores* o *La revancha* bastarían para consagrar a a un gran creador de páginas tangueras.
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi-oowHfmPE-vMbZ2tBTH8x0ZctBxO-YADBUcoN5lYLzmt9AtMsrTB5k7q2-bzjyQBBTjPUdN_NApLgC3FHvESULKkCiQNxYKDgyyEJ3dAnW-PCcDE5ecEjEN5rPUbPxZciFuuM2VudcTg/s1600/P.Laurenz-Casas.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi-oowHfmPE-vMbZ2tBTH8x0ZctBxO-YADBUcoN5lYLzmt9AtMsrTB5k7q2-bzjyQBBTjPUdN_NApLgC3FHvESULKkCiQNxYKDgyyEJ3dAnW-PCcDE5ecEjEN5rPUbPxZciFuuM2VudcTg/s1600/P.Laurenz-Casas.jpg)
+[](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi-oowHfmPE-vMbZ2tBTH8x0ZctBxO-YADBUcoN5lYLzmt9AtMsrTB5k7q2-bzjyQBBTjPUdN_NApLgC3FHvESULKkCiQNxYKDgyyEJ3dAnW-PCcDE5ecEjEN5rPUbPxZciFuuM2VudcTg/s1600/P.Laurenz-Casas.jpg) Yo me voy mañana a Buenos Aires, para milonguear duro y parejo unas tres semanas y no se me ocurre mejor cosa que ensayar con Pedrito Laurenz y su orquesta. La que tuvo una duración de 25 años en el candelero, aunque haya dejado un mínimo de paisajes musicales pero que constituye un repositorio inagotable de ideas para lucir en la pista.
+
+Y le dediqué este poema en señal de reconocimiento:
+
+
+  **LAURENZ**   *“Vos dejá nomás que algún chabón /*  *  chamuye al cuete*  * y sacudile tu firulete”*     Rodolfo M. Taboada
+
+ Barrios orientales:  Reus, Unión, Aguada, Cordón  y el mandato del tango.  Vos, quinceañero Pedro Blanco   con tus hermanos Laurenz,   abrevabas en el fueye  y en esos atrios tauras  horneabas tu historia.
+ Te bendijo la laureada decareana  y abriste el conservatorio  del digitar catedralicio  ayuntado al otro Pedro, el gran baqueano.
+ Bardo cadenero  de páginas tremendas  que vistieron los paisajes de la ciudad feérica  y supusieron un antes y un después  en nuestra música patria  derramada en las calles:  Mala junta, Risa loca,  Mal de amores,  Berretín, Orgullo criollo, Amurado,  Como dos extraños, Milonga de mis amores…
+ Láminas que vuelven siempre; bailarines  Que reclaman el acento llamador  De tu paleta milonguera y tu fueye patricio.
+ Fuiste poblando pentagramas paicos   creando atmósferas en la comarca idílica  con una sonoridad distinta y revelada  y le arrancaste el nuevo latido al *bandónium *  que inventó un alemán, sin imaginar  que de esa caja salieran tales filigranas  desbordando los cálidos reductos  al hurgar en esa selva de botones  que domaste de pibe en aquella Villa Crespo  de patios de conventiyo con perfumes malvoneros  y maduraste junto a troesmas  que te dieron la chapa.
+ Con sombra de bailarines  dibujaste tu estela  y sembraste la nocturnal belleza de arrabal  que hoy regresa épica,  al estallar en la pista   el fértil racimo de tu savia nutricia,  La revancha, Vieja amiga, Marinera…
+ Ese instrumento  que se te incrustó en la sangre  se entregó acompañando   a tu pinta gardeliana  de percha y gomina  y anclaste en el corazón de Corrientes  junto a nuestro faro-obelisco  porque te lo ganaste a pulso.  De puro guapo.
+ Y para mover los remos en forma, mientras engraso los tarros, lo escuchamos en dos temas que levantan el ánimo en cualquier milonga de punta y hacha: **Es mejor perdonar**, de Laurenz y José María Contursi, registrado el 31 de marzo de 1942 y **Firuletear de bandoneón**, de Ángel Domínguez y José Rótulo , con la voz de Juan Carlos Casas ambos, del 2 de diciembre de 1942. Así como Laurenz hizo el hermoso *Mal de amores* para su ex compañero y amigo Osvaldo Pugliese, el fueye Ángel Domínguez parece haber compuesto *Firuletear,* a la medida de Pedro Laurenz. ¡Que bárbaro!
+
+[11- Es mejor perdonar - Laurenz - Casas](http://sdrv.ms/Xlo4M6)
+
+[18- Firuletear de bandoneón - Laurenz-Casas](http://sdrv.ms/Xlomme)

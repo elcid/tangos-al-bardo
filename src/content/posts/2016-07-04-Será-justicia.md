@@ -1,0 +1,22 @@
+---
+title: "Será justicia"
+date: "2016-07-04"
+original_url: https://tangosalbardo.blogspot.com/2016/07/sera-justicia.html
+labels: ""
+tags: ["Aníbal Troilo", "Raúl Berón"]
+---
+
+Está haciendo un calor tremendo en Madrid y toda la zona costera de España hacia el sur. Uno tiene más ganas de rajarse a la playa o zambullirse en la piscina, mientras espera la hora de partir. Por eso estaba pensando en hacer algo distinto y se me ocurrió traer estos versos porteños y muy logrados de Héctor Gagliardi.
+
+Fue un hombre que vendió muchos libros con sus poemas populares, y supo pintar los ambientes en que la gente se movía y conocía. Incluso compuso tangos con Aníbal Troilo (**Media noche** y **Claro de Luna)** y otros que tuvieron recorrido, como **Vencido**, con Oreste Cúfaro y lo bordara Echagüe con D'Arienzo. O **Hablemos francamente**, con Santos Lipesker. **Riachuelo**, con Juan de Dios Filiberto. **Alergia**, la milonga que hizo con Enrique Francini, y grabó la orquesta de Francini-Pontier cantando Raúl Berón, resultó también un tema con gracia y llegada.
+
+ [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhV2ch5HkX_aiU6ETsRX42w1nlEVfIczr-IiVI8xqCnbtIZZe7GdUBKvUt-ZB4fOuKcg2oXFe92YyU2myExyDpyF2lX100CvtgrN2UQmE1mjkJrBPc9tGnFJ5vxR9kYvwuEYMQNgHJp2Co7/s1600/H%25C3%25A9ctor+Gagliardi.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhV2ch5HkX_aiU6ETsRX42w1nlEVfIczr-IiVI8xqCnbtIZZe7GdUBKvUt-ZB4fOuKcg2oXFe92YyU2myExyDpyF2lX100CvtgrN2UQmE1mjkJrBPc9tGnFJ5vxR9kYvwuEYMQNgHJp2Co7/s1600/H%25C3%25A9ctor+Gagliardi.jpg) Héctor Gagliardi
+
+Los versos que hoy se me ocurrió traer al Blog, se basan en la carta que un preso, próximo a la sentencia, le escribe al juez que lleva su causa. Son realmente graciosos y bien trenzados, así que al menos nos reímos un cachito y yo me olvido del calor, rajándome a la piscina..
+
+**SERÁ JUSTICIA**
+
+
+ Sr. Juez de la sentencia/ que entiende el merengue mío/ a ver si me arregla el lío/ y me peina la condena/ francamente me da pena/ de que un hombre como Usía/ se meta en la vida mía/ siendo una cosa privada/ total, por esa pavada/ que hice los otros días// Yo sé bien que si Ud. busca/ dejo mucho que desear/ pero no puede negar/ que soy el rey de la furca/ la vida es café a la turca/ donde la borra se asienta/ y cada cual se la cuenta/ de acuerdo con lo que hace/ Ud. con la prima facie y yo con las herramientas/ Además queda muy feo/ como le dije en la audiencia/ que todo un juez de sentencia/ me venga a tratar de reo/ porque clarito lo veo/ de que a Ud. lo han chimentado/ y si estoy en su juzgado/ no ha sido porque he venido/ sino porque me han traído/ y de yapa incomunicado//
+ Yo soy José Luis Rochepu/ alias El zurdo mojarra/ o el clavija de guitarra/ o el colora’o rompe huesos/ apelativos traviesos/ que salpican mi prontuario/ y por llevarme el campanario/ de una iglesia en construcción/ me bautizaron Ding Dong/ en la cárcel de Rosario// Además es denigrante/ que andemos a cada rato/ peleando a lo perro y gato/ todo un juez y un asaltante/ los dos vamos adelante/ con distintos pareceres/ y un solo fin: las mujeres/ a Ud. lo manda Justicia/ y a mí, la ñata Felicia, hija del rengo Paredes// Y olvídese por un rato/ de tomárselo tan en serio/ Si ya no tiene remedio/ ¡para qué revuelven tanto!/ menos fojas, menos autos y menos farolería/ y además querido Usía/ hay que ser más imparcial/ Ud. saluda al fiscal/ y a mí ni los buenos días// Porque a Ud. con microscopio/ yo me lo tengo observado/ porque soy un procesado/ que tiene su motus propio/ ya son tres los hábeas corpus/ que se empeña en rechazar/ es que Ud. para firmar, ¿qué necesita... una alfombra?/
+ Tiene renglones de sobra y dice que no ha lugar// Ha visto que le decía/ la vida es café a la turca/ yo agarré para la furca/ y Ud. pa’ la abogacía/ y en eso querido Usía somos dos profesionales/ y si a Ud. en los tribunales/ le sacan mucho el sombrero/ también a mí donde llego/ me sacan las digitales// Y este asunto se ha corrido/ como el punto de una media/ y si Ud. se va de feria/ no me deje refundido/ es por eso que le pido/ que por ley se anule todo/ y no salpiquen de lodo/ la moral de un hombre apto/ a quien Ud. de ipso facto/ lo trató de grosso modo// Errare humanum est/ como dijo mi abogado/ que está en la celda de al lado/ por hacerse el japonés/ se limpió unos pagarés/ a nuevo como camisa/ y el asunto finaliza/ porque hablando entre nosotros:/ ¡en la calle hay cada rostro!/ ¡LARGAME... Y SERÁ JUSTICIA!    Héctor Gagliardi

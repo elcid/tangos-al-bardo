@@ -1,0 +1,30 @@
+---
+title: "Piana y Manzi"
+date: "2018-08-09"
+original_url: https://tangosalbardo.blogspot.com/2018/08/piana-y-manzi.html
+labels: ""
+tags: ["Enrique Santos Discépolo", "José González Castillo", "Carlos Di Sarli", "Cátulo Castillo", "Mercedes Simone", "Roberto Rufino", "Carlos Gardel", "Pedro Maffia"]
+---
+
+Constituyen una de las duplas más geniales que ha tenido el tango. Hay otras famosas como las de Cobián-Cadícamo, Aieta-García Giménez, que sin duda han dejado profunda huella en el género, pero hoy me toca revisitar a estos próceres del tango, la milonga y el valsecito porteño, que tanto han inluído en la música popular rioplatense. Sobre todo como creadores de la definitiva milonga, tan distinta de la anterior, que era una especie de payada pueblerina, con versos octosílabos que se acompañaban con rasguidos monódicos de guitarra.
+**
+** **Milonga sentimental** y **Milonga del 900**, creada por estos dos amigos que se conocieron en el Café del Carpintero, ubicado en San Juan y Loria del barrio de Boedo, en 1926, fueron la puntada inicial para que se incorporaran a la familia del tango, especialmente luego que las estrenara Pedro Maffia con su orquesta en el Teatro San Martín de la calle Esmeralda, transmitido por "La voz del aire". Las habían grabado Mercedes Simone y Carlos Gardel, pero interpretadas por la orquesta recibieron el pláceme de los milongueros de aquellos años treinta, en que comenzaron a bailarlas.
+
+
+Manzi estaba viviendo con su familia en la Avenida Garay, cuando en 1925, la revista *El alma que canta* organizó un concurso que llevaba como lema "*Buscamos al poeta del tango*". Homero tenía entonces 19 años y mandó su verso llamado *El ciego del violín*. Al ser publicado en la revista, Cátulo Castillo, que ya tenía amistad con Manzi, reconoció el tema y lo fue a ver para decirle que le gustaría ponerle música de tango. Así quedó excluído del certamen, Cátulo le presentó a Piana y entre los dos le adosaron la música. Lo estrenó Roberto Fugazot en la pieza teatral de Ivo Pelay: *"Patadas y serenatas en el Barrio de las latas".*
+
+Era el *diploma* que necesitaba para comenzar a ser "*el poeta de las cosas que se fueron*", como lo llamó Enrique Santos Discépolo.Y Manzi, que ya militaba en la política universitaria y se recibiría de Profesor de enseñanza secundaria, establecería con Piana una sociedad que nutriría al tango del polen hermoso que destilaban sus creaciones. Bajo la admonición de José González Castillo, padre de Cátulo, hombre de teatro y poesía, Boedo sería testigo de la obra consagrada al cancionero popular con la paleta estilística y tan personal de Manzi y el gran talento musical de Piana.
+
+
+Manzi dijo una vez que si tenía que elegir una de sus creaciones, se quedaría con **El pescante**, hermoso tango que hiciera con Piana y que retrata un cuadro de ayer, el del carrero volviendo al corralón, con su carga de recuerdos, que no me canso de escuchar. Y **De barro**, también obra de esta yunta es un tangazo. La dupla con Piana siguió produciendo milongas de fuste como: *Juan Manuel, Carnavalera, Milonga de los fortines, Milonga de Puente Alsina, Papá Baltasar, Pena mulata, Betinotti, Boina blanca, Milonga triste.*
+
+En la revista *Esto*, del 8 de junio de 1954, Facundo Flores dice que:
+
+-La milonga, tal como la crearon estos autores, no ha sido aún debidamente estimada en sus posibilidades universales y representativas de dos aspectos de nuestra cultura intrínseca a través de nuestras canciones populares. En *Milonga triste*, por ejemplo, la forma folklórica es tratada con lenguaje unviersal y estrictamente literario; la consustanción de música y letra, a la manera de un *lieds*, no fue el resultado de una agilidad profesional de intuitivos, sino, según propias palabras de Piana, *Milonga triste* la escribió Homero bajo la fuerte influencia que por esos años ejercía García Lorca sobre los poetas jóvenes de la órbita castellana, lo que, con su maravilloso poder de esclarecimiento nos lo hicieron comprender antes que el poeta nos abandonara.
+
+ [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjSpbdPpg9NxASMd5IFGgdKcEUYBrzfD8wpS-l-JP4XJI_vFzK5uXaYheYgI9OA2pExHLLiPeolObnKFXbmvcnPiuGXuOd54jFGkcJT7Hr1w_EPo_4FFkriUyebBkPYD5lwDeZETi_w6-7H/s400/manzipiana.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjSpbdPpg9NxASMd5IFGgdKcEUYBrzfD8wpS-l-JP4XJI_vFzK5uXaYheYgI9OA2pExHLLiPeolObnKFXbmvcnPiuGXuOd54jFGkcJT7Hr1w_EPo_4FFkriUyebBkPYD5lwDeZETi_w6-7H/s1600/manzipiana.jpg) Cátulo Castillo, Manzi, Piana y Pedro Maffia (cuñado de Piana). Eran jóvenes.
+Piana y Manzi dejaron una obra profusa y profunda. Valsecitos como *Esquinas porteñas, Paisaje, Volverás... ¿pero cuándo?, Sombras porteñas, Serenata gaucha, *que ahondan en la capacidad poética entrañable y depurada que lo hace incomparable en su estilo a Homero. Igual que la lista de los muchos tangos y canciones creadas entre ambos. Piana fue un compositor impresionante en cantidad y calidad y Manzi le canta a las cosas que van desapareciendo lentamente. Busca fijar los últimos coletazos de una ciudad que se transforma. Y en su perspectiva aparecen los personajes perdidos, los nombres olvidados. Incluso aquellos amores juveniles que se desdibujan en el tiempo. Y nos deja un friso que representa magistralmente, la poesía de Buenos Aires, pintada en tango. Su sociedad con Piana, desarrollada a lo largo de los años, es un regalo para el alma de los que amamos el tango.
+
+Recordamos a estos dos enormes creadores, con el tango **Cornetín**, compuesto entre ambos, y que grabara Carlos Di Sarli con su orquesta y el cantor Roberto Rufino, el 5 de marzo de 1943.
+
+[Cornetín _Carlos Di Sarli -Roberto Rufino](https://www.dropbox.com/s/gdp12mr7dziwiws/14%20-%20Carlos%20Di%20Sarli%20-%20Roberto%20Rufino%20-%20Cornet%C3%ADn.mp3?dl=0)

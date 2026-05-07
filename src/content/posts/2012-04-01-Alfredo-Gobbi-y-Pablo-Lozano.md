@@ -1,0 +1,17 @@
+---
+title: "Alfredo Gobbi y Pablo Lozano"
+date: "2012-04-01"
+original_url: https://tangosalbardo.blogspot.com/2012/04/alfredo-gobbi-y-pablo-lozano.html
+labels: ""
+tags: ["Edgardo Donato", "Julio De Caro", "Alfredo Gobbi", "Mario Demarco", "Orlando Goñi", "José Rótulo"]
+---
+
+Quiero extraer de mis recuerdos a una de las orquestas grandes de nuestra música ciudadana y un cantor que destacó de niño. Afortunadamente ambos se encuentran en un bello momento de su carrera, y lejos del triste final que les aguardaría bastantes años más tarde.
+  Alfredo Gobbi junto con Pugliese, Troilo y Orlando Goñi, amigos y colegas, eran el futuro en la época de Julio De Caro y mirándose en semejante espejo, escalaron con firmeza en la época dorada del cuarenta.
+  Pablito Lozano cantaba a los 10 años de edad en Radio Mitre, y dos años más tarde llegó a cantar con Edgardo Donato. A los 17 (año 1943) ya estaba con Gobbi en la boite Sans Souci.
+ [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhvCkDZBEiggwo4R1sEVaCdp1z7WREF3iq6FR_89VwzS5Hqi-oIP8Qbo9f_Z8vm_AF4POHL36GyAm5tDwvowTxwLGwdb7UDq5Sq_Fvb6bPEc4KElDoHIO9g7OxkiDh1iSiOMug2E9Dv2uuA/s1600/Orquesta+Donato.bmp)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhvCkDZBEiggwo4R1sEVaCdp1z7WREF3iq6FR_89VwzS5Hqi-oIP8Qbo9f_Z8vm_AF4POHL36GyAm5tDwvowTxwLGwdb7UDq5Sq_Fvb6bPEc4KElDoHIO9g7OxkiDh1iSiOMug2E9Dv2uuA/s1600/Orquesta+Donato.bmp) Pablito Lozano apoyado en un bandoneón, a la derecha de Edgardo Donato en 1937    El camino de ambos se bifurcó y el destino volvió a unirlos. El 12 de mayo de 1948, Pablo graba con “El violín romántico”, el tango de Natty Norton ( Nelly Esther P. de Paredes) *Muchachos yo tengo un tango*. El disco tiene en la otra cara *Tierrita*, cantando por Héctor Maciel. Tuvo mucho éxito el simple de 78 rpm. Natty fue comentarista de deportes, actriz y compositora, amén de letrista. Su tango con letra de José Rótulo: “*Nací en Pompeya*”, grabado por D’Arienzo con la voz de Echagüe es muy entrador. Tiene otros temas como *Tu pregunta* y *Dolor*.
+  La orquesta de Gobbi, en esta grabación está integrada por: los bandoneones Mario Demarco, Mauricio Shulman, Ernesto Rodríguez, Alberto Garralda y Ricardo Varela. Gobbi, su fiel Antonio Blanco, Luis Piersantelli, Miguel Silvestre, Osvaldo Monteverde y Agustín Carlevaro en la fila de vioilines. Juan Pecci en contrabajo y Ernesto Romero al piano.
+  Una orquesta con bella sonoridad y mucha polenta que al terminar ese año se quedó sin los dos cantores: Lozano y Héctor Maciel. En lugar de éstos ingresó una dupla que daría mucho que hablar por sus voces y talento: Jorge Maciel (Carlos Pellegrini) y Ángel *Paya *Díaz
+ [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiIKJ0h69UVk1ggo5Mu7MgOnOMHBiW1fw8lSCeF-YZj7KbrN-Nd7l3UmZfgSDqcqH1O4JDW8ejwOLuqPERDEy5V2-hFIC79I1jYycT307-6xgMibMtDiotMM8Lff_yjf2fEDszYKcMYz6rk/s1600/Gobbi+1943.bmp)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiIKJ0h69UVk1ggo5Mu7MgOnOMHBiW1fw8lSCeF-YZj7KbrN-Nd7l3UmZfgSDqcqH1O4JDW8ejwOLuqPERDEy5V2-hFIC79I1jYycT307-6xgMibMtDiotMM8Lff_yjf2fEDszYKcMYz6rk/s1600/Gobbi+1943.bmp) La orquesta de Gobbi en 1943. Lozano es el primero sentado a la izq.
+  Vale la pena recordar a esta excelente orquesta y al Pablito Lozano con 22 años maduros y muy buen gusto interpretativo.
+ [Muchachos yo tengo un tango-Gobbi-Lozano ](http://www.mediafire.com/?lumpvizu89gptaa)

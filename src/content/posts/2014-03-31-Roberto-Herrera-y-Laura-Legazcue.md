@@ -1,0 +1,50 @@
+---
+title: "Roberto Herrera y Laura Legazcue"
+date: "2014-03-31"
+original_url: https://tangosalbardo.blogspot.com/2014/03/roberto-herrera-y-laura-legazcue.html
+labels: ""
+tags: ["José María Contursi", "Leopoldo Federico", "Juan Carlos Copes", "Osvaldo Pugliese", "Horacio Ferrer", "María Graña", "Juan Maglio"]
+---
+
+Él es reconocido en el mundo como uno de los más grandes bailarines de tango. En la pista o el escenario su sello es nítidamente milonguero, pero su creatividad y dominio de la escena, le permiten improvisar permanentemente, aún sobre las coreografías creadas para cada tema que interpreta con su pareja de turno y constituye con ella/s un espectáculo fuera de lo común.
+
+Desde hace varios meses ha escogido como partenaire a la bailarina uruguaya Laura Legazcue. Laura procede de la danza clásica, el contemporáneo y es también coreógrafa, aunque ha intentado encontrarse en otros aspectos del baile artístico, y un buen día descubrió el tango, que la atrapó de inmediato.
+
+ [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjTPNEIzqG13Z7jJhwFHA4O1Bu7CGT4scLV6E7_9Y0ITzO2MQ8h5p6LOXQ33E82HE3nRCF3OG7INAENtg8ZBSxi25_GNfpC6jHSliBVLsKR2l-_kULHSP4lqX1jIqaNL9ObbB43ON2hw0s/s1600/Lau+y+Rob.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjTPNEIzqG13Z7jJhwFHA4O1Bu7CGT4scLV6E7_9Y0ITzO2MQ8h5p6LOXQ33E82HE3nRCF3OG7INAENtg8ZBSxi25_GNfpC6jHSliBVLsKR2l-_kULHSP4lqX1jIqaNL9ObbB43ON2hw0s/s1600/Lau+y+Rob.jpg) Laura Legazcue y Roberto Herrera  Fue la noche que vió al ballet de Juan Carlos Copes, cuando se le encendió la llama del deseo por aprender esa danza, que hasta allí la consideraba como "un cosa de viejos". Se dio cuenta entonces del potencial que tenía el tango como espectáculo e inspiración artística. Entonces decidió viajar seguido a Buenos Aires para tomar clases con todo tipo de maestros. Incluso encontró a Demián García a quien había visto en algunos videos, incluso, le habló para formar una pareja artística. Ensayaron junto, fueron contratados para una gira por España y luego actuaron con la orquesta Color Tango.
+
+
+
+Ya lanzada e instalada en Buenos Aires, también supo escuchar a los maestros que le aconsejaron tomar clases con viejos milongueros y así acudir a las milongas porteñas, porque en Montevideo son escasas y en Buenos Aires hay una cantidad enorme. No sólo lo hizo sino que comenzó a frecuentarlas, buscando impregnarse de esa "mugre" que sólo se consigue en la milonga.
+
+Trabajándose el futuro, disuelto su matrimonio, ascendió los primeros peldaños de la fama, logró consagrarse como coreógrafa, primera bailarina y directora del ballet Tango de la Orquesta Filarmónica de Uruguay, y montó la coreografía que realizó el espectáculo para la asunción del Presidente Tabaré Vázquez."*Ahí me di cuenta que esto es mi vida*", se sincera.
+
+
+
+En su camino se encontraría finalmente con Roberto Herrera, después de haber compartido escenarios con figuras como Copes, Miguel Ángel Zotto, María Graña y Horacio Ferrer entre otros. Herrera que ha rotado constantemente a sus parejas de baile, la eligió como compañera y una de las actuaciones que consolidaron esa unión, fue el cierre de *La Semana de la Moda*, en Milán, octubre de 2013, donde fueron ovacionados.
+
+*"Es un orgullo acompañar a un artista de esta categoría, porque él es un maestro de maestros",* confiesa Laura, que cree haber encontrado definitivamente esta gran pasión artística a sus 33 años felices años, después de haber bailado salsa, hip hop y otros bailes de salón.
+
+
+
+
+En la presentación del espectáculo "*Veranos en la Ciudad 2014*", en la Usina del Arte, Buenos Aires, a este maestro nacido en Jujuy, lo presentaron así:
+
+**Roberto Herrera** es profesor, coreógrafo y bailarín reconocido como uno de los mejores de todos los tiempos. Fue, entre otras cosas, el primer bailarín del Ballet Nacional Argentino, dirigido por Santiago Ayala "El Chúcaro" y Norma Viola; bailarín solista de la Gran Orquesta del Maestro Osvaldo Pugliese; coreógrafo y bailarín de los espectáculos que se presentan en Japón con la Orquesta de Beba Pugliese (hija de Osvaldo Pugliese); uno de los protagonistas de la película "*Tango Bar"*; trabajó con la Orquesta de Leopoldo Federico: participó en "*Los Grandes del Tango Argentino*", con la Orquesta Color Tango. En 1993 se unió al elenco de la película biográfica *"Muchas Gracias Maestro*", sobre la vida de Osvaldo Pugliese. En 2000 fue parte del espectáculo emblemático "T*ango Argentino*", dirigida por Claudio Segovia. Fue miembro del jurado del Campeonato Mundial de Tango de Buenos Aires desde su nacimiento y es el director de la **Compañía de Tango Roberto Herrera**, con más de 400 actuaciones en el mundo.
+Su estilo de baile y sus habilidades como maestro son universalmente considerados como el más alto nivel. En el tango Roberto Herrera, existe la tradición, la innovación y la experimentación. Se ha convertido en el referente más importante e influyente para el tango tradicional durante las más recientes formas de esta expresión artística.
+
+
+
+Afirmaciones con las que no dudo en coincidir. Roberto Tiene Academias de baile en Buenos Aires y en Milán, con una organización que atiende desde niños de cinco años a mayores. Ha recorrido medio mundo bailando y es ídolo tanto en Japón como en Argentina oItalia, Estados Unidos, toda Europa y ciudades de América, y Asia.
+
+
+
+Los podemos ver a Roberto y Laura en La semana de la Moda en Milan, con su famosa creación del tango-milonga: **El Llorón**, de Juan Maglio *Pacho*. Para entrar debes pinchar aquí en Internet.
+
+##  [*ROBERTO HERRERA Y LAURA LEGAZCUE* - YouTube](http://www.youtube.com/watch?v=VcKD-Tu7vYg)
+  [![](data:image/jpeg;base64,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)► 3:08► 3:08](http://www.youtube.com/watch?v=VcKD-Tu7vYg)    www.youtube.com/watch?v=VcKD-Tu7vYg‎  10/2/2014 - Subido por TIEMPO Iberoamericano *ROBERTO HERRERA Y LAURA LEGAZCUE*. TIEMPO ... Venue: Nishitetsu Hall and *Tiempo Iberoamericano* ...
+
+Y acá pueden verlos bailando en Baltimore. Lo hacen al compás del tango de Francini, Stamponi y José María Contursi:* Junto a tu corazón*, por Di Sarli-Podestá.
+
+- [189 reproducciones ](https://www.youtube.com/watch?v=VcKD-Tu7vYg)
+- [    ![](https://i1.ytimg.com/vi/4mIhpEs3tUg/default.jpg)     3:17   Roberto Herrera & Laura Legazcue ](https://www.youtube.com/watch?v=4mIhpEs3tUg)
+-  [Roberto Herrera & Laura Legazcue performing at Robin Thomas's Nocturne in NYC, March 15, 2014    de ** Tango Element**   308 reproducciones](https://www.youtube.com/watch?v=4mIhpEs3tUg)

@@ -1,0 +1,42 @@
+---
+title: "Carlos Bahr"
+date: "2014-07-23"
+original_url: https://tangosalbardo.blogspot.com/2014/07/carlos-bahr.html
+labels: ""
+tags: ["Fulvio Salamanca", "Armando Pontier", "Mercedes Simone", "Pedro Laurenz", "Floreal Ruiz", "Carlos Bahr", "José Basso"]
+---
+
+Dentro del Parnaso de los poetas o letristas del tango, a lo largo de su historia, este vate ocupa un lugar importante, ganado a fuerza de calidad en su lunga producción. Es de lo que vienen a rebufo de los Manzi, Cátulo, Expósito, el *Catunga* Contursi, Celedonio, González Castillo, Discépolo, Le Pera, pero con laureles propios conseguidos en base a versos de cuidada elaboración, fácil recordación y que han entrado en el corazón de los tangueros.
+
+Él mismo contaba que reflejaba emociones que le acontecían a otras personas o a él mismo. Le gustaba la literatura y devoró muchos libros. Nunca dejó de hacerlo. Y no le daba gran valor a su extensa obra, aunque haya logrado sucesos perdurables que se siguen cantando y bailando. Días pasados hablaba de su tango *Prohibido*. Pero además su mejor carta de presentación está en los numerosos temas que calaron hondo en aquella porteñidad ávida de obras nuevas.
+
+ [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEinBVrucA0qkVjUjV3aDtzG2Mwb6XFzVZqoN1CxS7IfLSFR1AIaRJk4CbyXDKXvQ1M84AL-M7DXyROpLfWdgbjfZ9RHvx0_JvN4LSaJDSU6TwWzRV_knBBp2Q-G8Eh1ADw7Cx3yHya9Qi0/s1600/escanear0013.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEinBVrucA0qkVjUjV3aDtzG2Mwb6XFzVZqoN1CxS7IfLSFR1AIaRJk4CbyXDKXvQ1M84AL-M7DXyROpLfWdgbjfZ9RHvx0_JvN4LSaJDSU6TwWzRV_knBBp2Q-G8Eh1ADw7Cx3yHya9Qi0/s1600/escanear0013.jpg) Carlos Bahr
+En su extensa hoja de servicios encontraremos delicias como: *Sosiego en la noche, Muriéndome de amor, Sin balurdo, Tomá estas monedas, Equipaje, Tango y copas, Mañana iré temprano, Soledad la de Barracas, No te apures Carablanca, Monotonía, Humillación, Amor y vals, Desconsuelo, Marcas, Me están sobrando las penas, Corazón no le hagas caso, Dame mi libertad, Valsecito, Precio, Donde estás,* o *Nada más que un corazón*, que dedicaría a su esposa y que en la primera parte arranca con esta hermosa declaración de amor: *"Nada más que tu cariño / es lo que quiero, / es el milagro que a la vida / le reclamo como premio / por tanta herida...*!". Como *Gracias*, que compuso con Elías Randall (Rubistein) en 1946 y también se lo dedicó: "*Gracias, / porque al borde del abismo / cuando estaba ya perdido / animaste mi esperanza..."*..
+
+
+
+A Carlos Bahr me lo presentó una noche en el Café, Manolo Sucher, con quien hizo varias páginas de gran pegada popular. Cuando el inquieto de Manolo se levantaba para ir a hacer alguna broma en otra mesa, o a charlar con alguna dama del ambiente, yo me iba enterando de su vida. Era un hombre de muy buena presencia que confesaba con algo de vergüenza no haber llegado a sexto grado. Pero esa carencia la compensaría con el hecho de hartarse de leer toda clase de libros, lo que le permitiría alcanzar el caudal de cultura que despacharía luego en versos.
+
+###
+
+###
+
+###  Nació en la Boca, donde había estado la vieja cancha de River, antes de mudarse a Núñez. Aquellas troupes de inmigrantes que se arracimaban en el puerto porteño buscando su nuevo lugar en el mundo propiciaron que Bahr fuera hijo de un alemán y una belga, y nieto de una francesa. Augusto, su padre, era capitán de un barco ballenero que atracaba en la Boca y cuando Carlos apenas alcanzaba los once años, se perdió de vista para siempre. El hombre había decidido partir hacia su patria para combatir en la Primera Guerra Mundial. Y pese a todas las gestiones, jamás pudo Carlos saber dato alguno de sus andanzas y de la suerte corrida en aquella contienda.
+
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhsjwEEDsak-K5a7eOAms1lspI7B3pX2d4g9vwcA7w2j8ExUuEc0hYvVxV5PEYNQK_lfTsWHIhz03uQlfUIodXgH7jAsRfyG-X84QiRvpQHnWZonv2L5ioX_sIrh6drxYLjLwHKQiPCTec/s1600/sobrando-penas-basso-galvan-bahr-biagi-5155-MLA4223006279_042013-O.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhsjwEEDsak-K5a7eOAms1lspI7B3pX2d4g9vwcA7w2j8ExUuEc0hYvVxV5PEYNQK_lfTsWHIhz03uQlfUIodXgH7jAsRfyG-X84QiRvpQHnWZonv2L5ioX_sIrh6drxYLjLwHKQiPCTec/s1600/sobrando-penas-basso-galvan-bahr-biagi-5155-MLA4223006279_042013-O.jpg)Como muchos otros colegas, Bahr comenzó haciendo letras para las comparsas carnavaleras de su barrio siendo un adolescente. Trabajaría en la Escuela de Mecánica de la Marina. De paso chapurreaba el piano en su casa. Comenzó componiendo con el bandoneonista y director de la orquesta que acompañaba a Mercedes Simone, Roberto Garza (José García López), algunos de los temas que llegaron a conocerse, como *Fracaso* que grabaría la gran cancionista platense. En un concurso de SADAIC ganaría el primer premio de milongas con *Milonga compadre*, a la que puso música José Mastropietro y llevó al disco Pedro Laurenz con el cantor Juan Carlos Casas, el 12 de mayo de 1938.
+
+Como anécdota me quedó dejó un lindo recuerdo personal. En una de las dos conversas que tuvimos me elogió la corbata y de inmediato me dispuse a sacármela para regalársela, cosa que él intentó de todas maneras impedir. Al final la aceptó entre risas, pero me dijo que para no "*dejarme en yanta"*, al menos me dejaba la suya para que pudiera recorrer la noche sin fallas en la vestimenta.
+
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg7QE-GhBSV0adGX6Wmn9pUs8U4fjuh-Jsw4EEwirCtrY5fGsjAbwMnYnjXURUgORrpzGfYz33QarJ_s_OAe_yChzWeruuHjG_PE5Jwe6LJEKhiHZIJXe2d6aHU-2ih1ipSy7t7GQfYU3E/s1600/En+carne+propia.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg7QE-GhBSV0adGX6Wmn9pUs8U4fjuh-Jsw4EEwirCtrY5fGsjAbwMnYnjXURUgORrpzGfYz33QarJ_s_OAe_yChzWeruuHjG_PE5Jwe6LJEKhiHZIJXe2d6aHU-2ih1ipSy7t7GQfYU3E/s1600/En+carne+propia.jpg)Hará unos cuatro/cinco años quise completar su biografía para un libro y me contacté con su hija, Inés María, que es odontóloga. Gentilmente suspendió su trabajo y a lo largo de dos días fue contándome pasajes importantes de su vida familiar. Bahr conoció a la que sería su novia, Lina Ferro, que era cancionista, en Radio Porteña. Luego de un cálido noviazo se casaron y del matrimonio nacerían Carlos Alberto (arquitecto) e Inés María. En el momento de la boda, Carlos Bahr tenía 40 años y Lina apenas superaba los 20. Recién dieciseis años más tarde, tendrían hijos y Lina fue la segunda. Por ello no tenía muchos recuerdos de su padre, pero sí me comentó que los que iban seguido a su casa eran Manolo Sucher o Fulvio Salamanca, con quienes compondría numerosos temas de éxito. Y también me dijo que disecaba mariposas, armaba cuadros con ellas y las vendía. Otra cosa, que salía mucho para poder colocar sus temas.
+
+Su gran éxito, curiosamente, fue *Pecado*, un bolero al que pusieron música Enrique Francini y Armando Pontier ("*Aunque sea pecado te quiero / te quiero lo mismo / aunque todo me niegue el derecho me aferro a este amor*"). Fue un suceso internacional que cantarían grandes del género como Caetano Veloso, Los Panchos, Lucho Gatica, María Bethania, Olga Guillot, Leo Marini.
+
+ Yo valoro estrofas preciosas de *Equipaje* (con Héctor Artola): "*Un sobrante de ternura / que no tuvo en quien quedarse.*.".O *Marcas*, con el mismo músico: "*Marcas que tu amor dejó en mi vida / un rencor que no te nombra / y un dolor que no te olvida..."*. Con Pontier, pegaron varios sucesos. *Cada día te extraño más*, fue uno de ellos. "*He querido borrarte de mi vida / y en cada pensamiento / te encuentro cada día. / He querido callar mi sentimiento / mostrando indiferencia / limando tu recuerdo..".*
+
+Escribió mucho, en SADAIC dejó 275 obras declaradas, 60 inédidas, 70 editadas, y 127 editadas y grabadas. Es uno de los grandes que transitaron las partituras de tango y cuyos versos nos persiguen con nostalgia en las grabaciones que reitero, o en la pista de baile.
+
+Podría poner tantos temas suyos que me rechiflan pero elijo dos al voleo. **Me están sobrando las penas**, al que le pusieron música Argentino Galván y Pepe Basso. De entre los buenos registros que existen del mismo, escojo éste del Polaco Goyeneche con el Sexteto Tango, grabado el 6 de diciembre de 1983. Y acto seguido, **Muriéndome de amor**, que compuso con Manolo Sucher. Lo recordamos por José Basso con la inconfundible voz de Floreal Ruiz, grabado el 9 de octubre de 1956.
+
+[03- Me están sobrando las penas - R.Goyeneche](http://1drv.ms/1nTKLRv)
+
+[064- Muriéndome de amor - José Basso -Floreal Ruiz](http://1drv.ms/1lurRRc)

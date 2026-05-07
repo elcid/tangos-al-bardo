@@ -1,0 +1,39 @@
+---
+title: "Los milongueros y los barrios"
+date: "2020-03-01"
+original_url: https://tangosalbardo.blogspot.com/2020/03/el-tango-milonguero-y-los-barrios.html
+labels: ""
+tags: ["Pepito Avellaneda", "Alberto Castillo", "Osvaldo Fresedo", "Antonio Todaro", "Julián Centeya", "Carlos Gavito", "Osvaldo Zotto", "María Nieves"]
+---
+
+A veces me dan ganas de recrear historias reales, vividas en primera persona, con la única finalidad de que dicha realidad prime sobre tantos mitos que se crean y perviven largamente. Incluso saltan por sobre las fronteras y se incrustan en relatos que navegan en la irrealidad, convirtiendo la historia en historieta. Nada grave, pero me gusta que los tangueros y milongueros cuenten sus vivencias y entre todos nos formemos una visión real del pasado que nos ha traído hasta acá.
+
+ Leo y escucho una y otra vez que en el barrio porteño de Villa Urquiza se bailaba un tango más elegante que en las demás zonas de la ciudad. Y lamento que esta afirmación cobre vuelo, con sus retazos del antes y el después, y el brillo mercenario de las palabras conviertan la calidez de la tradición en un juego de palabras que se afinca en la oreja, la lectura y la mente del que recibe este relato.
+ He sido milonguero en los años grosos del cincuenta, me formé en un barrio bien milonga como Parque Patricios y recorrí los grandes reductos de la época. Podría nombrar numerosos clubes y salones por donde desfilé, con amigos de la barra o sólo, disfrutando de aquellas milongas inolvidables y, a mi juicio, irrepetibles, por la cantidad y calidad de los bailarines de ambos sexos.
+
+
+ Podría citar el Sportivo Buenos Aires, Social Rivadavia, Villa Malcom, Unidos de Pompeya, Terremoto de Barracas, Sin rumbo, Estrella de Maldonado, Villa Sahores, Estrella de Maldonado, Pinocho, Pista de Lima, Premier, Estrella de Oriente, Palacio Rivadavia, Unione é Benevoleza, salón La Argentina, Italia Unita, Centro Asturiano, Centro Lucense, Palacio de las flores... etc. Pero, sobre todo, con la barra, crecimos como milongueros en las hermosas, modernas y grandes pistas del Club Atlético Huracán, en la avenida Caseros. Por donde pasaron todas las grandes orquestas de la época y bailamos en vivo con Pugliese, D'Arienzo, Di Sarli, Troilo, Gobbi y demás. Incluso en las 7 grandes noches de carnaval. Y venían milongueros/as de todos los barrios y era una muchedumbre que llenaba esos salones majestuosos inaugurados en 1941.
+ Jamás oí ni leí jactancias o alabanzas sobre el tango que se bailaba en esa sede maravillosa. Los domingos con grabaciones y algunos sábados con orquestas de tango y jazz. En nuestra barra había de todo. Teníamos dos o tres muy elegantes bailando, otros acopiadores de figuras, y en general un buen nivel porque practicábamos en el club del barrio durante la semana, y entre nosotros nos corregíamos y sacábamos pasos nuevas... En todos los barrios había muy buenos, buenos y regulares bailarines. Ninguna zona tenía prevalencia sobre otras.
+
+Si elogiamos por sobre todo a los milongueros de Villa Urquiza (el barrio en que nací), valdría la pena recordar que Copes era de Villa Pueyrredón, María Nieves de Saavedra, Miguel Ángel y Osvaldo Zotto de Villa Ballester, Fino Ribera de Villa Luro, Antonio Todaro de Mataderos, Milena Plebs de Temperley, Gloria y Eduardo de Parque Patricios, Pupy Castello de Boulogne, El Cachafaz de Balvanera, Virulazo y Elvira de Mataderos, Pepito Avellaneda de Avellaneda, Petróleo de Villa Devoto, el flaco Tin y Teté de Pompeya, Carlos Gavito de Avellaneda... Simplemente son citas que obligan a la reflexión.
+
+ [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiKNX3NqHrdYRrIIzvQhZ-Xppdf13q-B6nJe7WRL35J2sHHYcII1eZxqh3LAE0z2uppyQwIr1jknUydsE3UvELtAs_x4H8faGWhBGTYXph0gA8L8Q5g6Qc0HNdJ28lQyWRzzjhrcdt1cnRk/s400/Cops-l300+%25281%2529.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiKNX3NqHrdYRrIIzvQhZ-Xppdf13q-B6nJe7WRL35J2sHHYcII1eZxqh3LAE0z2uppyQwIr1jknUydsE3UvELtAs_x4H8faGWhBGTYXph0gA8L8Q5g6Qc0HNdJ28lQyWRzzjhrcdt1cnRk/s1600/Cops-l300+%25281%2529.jpg) Copes-María Nieves
+ Siempre discutíamos sobre nuestras preferencias. Se era hincha de una orquesta como de un equipo de fútbol. El tango y el fútbol eran las pasiones porteñas. También teníamos equipos, participábamos en torneos diversos y jugábamos contra muchachos de otras zonas. Como en todos los barrios y en todos los equipos, los había muy técnicos, o fuertes, o displicentes o acalorados. Igual que en el baile. En todos los equipos siempre había uno o dos que tenían un imán en el pie y manejaban la pelota y el juego. El resto nos complementábamos. No había un barrio que prevaleciera sobre los otros, ni siquiera los de Villa Soldati o Sarandí, por ejemplo, que tenían montones de campos de fútbol.
+
+Como decía Julián Centeya: "para contarlo hay que vivirlo", y es por eso que pretendo rescatar esas noches vividas a puro tango, con orquesta o con grabaciones. Cuando había infinidad de los que hoy llamamos *discjockeys *que pinchan tango en medio mundo. Pero entonces, jamás supimos quien era el que pasaba la música que estábamos bailando y nos era generalmente invisible porque no se veía su figura.. Y puedo asegurar que siempre salíamos hinchados de milonguear porque no le erraban en la selección. El tango se vivía a pleno todo el día, dado que había infinidad de audiciones radiales en las cuales se hablaba sobre la música popular, se escuchaban las novedades y las orquestas tocaban en vivo por la noche. Aprendí tanto que, gracias a ello, concursé a mis 25 años en el exitoso programa "Odol pregunta" sobre la Historia del Tango.
+
+Una vez al año hacíamos un "Festival" en algunos de los clubes sociales que teníamos en el barrio -y que tanto hicieron por la niñez y la juventud-, para reunir fondos y comprar camisetas, pantalones y medias de fútbol para nuestro equipo. Un locutor de Radio Libertad, que era vecino nuestro traía artistas y personajes conocidos y con 18 años yo hacía de presentador y musicalizador de la milonga. ¿Qué música ponía? La que tenían en la discoteca del club. Como cuando practicábamos: D'Arienzo, Di Sarli, Troilo, Pugliese, D'Agostino, Tanturi... Estaba todo inventado ya, con aquellos discos de 78 rpm.
+
+
+
+Sí, hoy estoy con muchas ganas de desmitificar tanta *sanata* que se escribe sobre el tango en artículos, libros, folletos y demás, y voy con otra del género. Algunos afirman, sin base alguna para fortalecer sus conceptos, que el tango bailable tenía acepciones distintas como **Tango salón**, T**ango milonguero** o T**ango del centro**. Pretendiendo basar sus teorías en las dimensiones del lugar o en la forma de bailarlo. Algo absurdo. Yo venía de bailar en un salón inmenso como el de Huracán, por ejemplo, y tempranamente me afinqué en la Confitería Montecarlo de Corrientes y Libertad. También bailé en la Nobel, la Dominó y otros lugares céntricos. Allí, los espacios eran reducidos y había que caminar con mucho tino, cuidando a la pareja de turno, con movimientos suaves y pasos controlados.
+
+Pero no cambiaba de denominación el tango, porque allí bailé con la orquesta de Armando Cupo que acompañaba al flaco Morán, con Osvaldo Fresedo, con Tito Martín, con Roberto Caló, con Lesica-Lavié y su orquesta, que hacían el tango de siempre y nosotros nos adaptábamos al espacio. Jamás oí hablar de todas esas denominaciones que intentan ahora introducir como históricas y que no existen ni existieron jamás... Incluso hay profesores/as de baile que le inventan más apellidos al Tango para captar alumnos...
+
+Como reza el tango de José Raúl Iglesias y Juan Bautista Gatti que cantaba Alberto Castillo con la orquesta de Tanturi en 1941:
+
+*El tango es el tango... por más que le pongan*
+*ribetes compadres o cintas de amor.*
+*El tango es el tango... si tiene milonga*
+*no importa que sea*
+*de ayer o de hoy...*

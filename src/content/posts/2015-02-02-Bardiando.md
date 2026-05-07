@@ -1,0 +1,36 @@
+---
+title: "Bardiando"
+date: "2015-02-02"
+original_url: https://tangosalbardo.blogspot.com/2015/02/bardiando.html
+labels: ""
+tags: ["Osvaldo Pugliese", "Carlos Di Sarli", "Vicente Greco", "Agustín Bardi", "Roberto Firpo"]
+---
+
+Sí, en lugar de* bardear* con el tango hoy me voy a ocupar del gran Agustín Bardi, uno de los pilares de la saga de compositores fundadora del material que iba a poblar los atriles de aquellos músicos de la guardia vieja, y que por la gran calidad musical de su obra, también estribaría en las partituras a las cuales recurrirían con harta frecuencia los futuros integrantes de las orquestas típicas.
+
+
+Porque los temas pergeñados por Bardi no tienen desperdicio y se enriquecen con nuevos arreglos permanentes, los cuales no desdeñarían ni Piazzolla (*Tiernamente, Tierrita, Nunca tuvo novio*), ni la gente de las Sinfónicas. Los temas de Bardi o Arolas, con quienes el tango tiene una enorme deuda de gratitud -como así con muchos otros de las primeras hornadas de músicos compositores-, serán siempre modernos, porque recogieron el espíritu de aquella época con una altura imaginativa sorprendente.
+
+ Por ese motivo se le ha llamado justamente, "*el compositor de los músicos"*. Sus temas pueden ser interpretados en el estilo Troilo, D'Arienzo, Canaro, Pugliese, Di Sarli, Piazzolla y mantener igualmente viva la llama de su creador. Curiosamente, Bardi no está considerado como un gran músico, pese a que comenzara tocando la guitarra, posteriormente el violín, y finalmente dedicado al piano. Incluso su primera obra: *Vicentito* (dedicado a Vicente Greco),de 1912, se lo transcribió al papel pautado el flautista Carlos Hernani Macchi, porque entonces no dominaba la música escrita.
+
+Nació en la localidad bonaerense de Las Flores (como Roberto Firpo) a unos 190 kilómetros de la Capital, que es zona de ganadería y agricultura, recortada sobre el río Salado y rodeada por lagunas y arroyos. Sus padres lo enviaron a casa de unos familiares en el barrio porteño de Barracas, donde crecería e integraría de pequeño comparsas carnavalescas con una guitarra que le había enseñado a manejar un amigo de la familia.
+
+ Luego estudiaría violín y finalmente piano, y se instalaría en los palcos del vecino barrio de la Boca, incialmente en un trío de violín, guitarra y flauta, con amigos musicantes de su zona. Lo curioso del caso es que Agustín Bardi no pudo ser profesional de la música porque desde los 13 años debió dedicarse al trabajo y así arrancó en el Ferrocarril Sur (hoy Roca), como aprendiz de telegrafista. Estaría allí hasta los 20 años en que le tocó hacer el servicio militar, y se las arreglaba para compaginar su presencia en aquellos palcos legendarios, en tríos o cuartetos, cuando comenzó a mostrar las uñas como ejecutante de piano. Los sábados solían animar bailes en un trío con el Tano Genaro en bandoneón, el *Tuerto* Camarano en guitarra y él con el violín.
+
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjNEVOAGz639P_l-ragi1riXUh3Pl8GF6WEkMgs0smqarfrHhDzEub6_x0d-WZSHN58tXsF5C8J0snosioNxUlpdTxqEpKTDvWRqBsl2PIWM4dMn_4_QXC-2q2b_3GPXwGeFFCZGwGmpjE/s1600/Oiga_compadre.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjNEVOAGz639P_l-ragi1riXUh3Pl8GF6WEkMgs0smqarfrHhDzEub6_x0d-WZSHN58tXsF5C8J0snosioNxUlpdTxqEpKTDvWRqBsl2PIWM4dMn_4_QXC-2q2b_3GPXwGeFFCZGwGmpjE/s1600/Oiga_compadre.jpg)Como le contara a los Bates, un día que volvían de un picnic, entraron en un café de la Boca para tomar algo. Ya calentitos con los vinos y la comida ingerida, se pusieron a tocar algo en el palco y Agustín se sentó al piano y comenzó a interpretar temas diversos en el piano. El público aplaudía instándole a seguir con la faena y ante el éxito conseguido, el trío se modificaría e intevendría el piano en lugar del violín, dándole otro sonoridad al conjunto.
+
+Cuando salió del servicio militar, Bardi ingresó de inmediato en *La cargadora*, una empresa de transportes, en la cual se jubilaría, para luego pasar a una casa de música. Su tango *Tinta verde* proviene precisamente de la tinta en que impregnaba el pincel para pintar los direcciones en los paquetes. Aunque siguió tocando en diversos conjuntos, la noche y las madrugadas no se condecían con los madrugones para ir a trabajar por lo que fue menguando su aporte en diversas orquestas (con Canaro incluso), pero no dejó jamás de inventar nuevos temas ni de trabajar por formar la Sociedad de autores y compositores.
+
+
+
+[](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiEChvS2d12_-GLX7wgKFk_YTwDbhSwTZKUzRnypaB2DEhL34nEYSNpeIKe8C53FwM9B0LRB_wo2rqidpbCv6gS49vtw7yB72FTGnarKwDuTUUDUlL4ReKCuRIK4mCEMAHySMcKOyni5Fg/s1600/Tinta_verde.jpg)[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiE6bCw6lyDjZNNaMThspraEXHf6HT1qZJJw6iKPtWr5C6wcat4UmDiqrEYZpezDEldR_4lrEoFx5t8v-58Na1gG1eKkpu0ZEAXpatVxh6DOJYQBZw4MLtRp-IG4FmquJ05cHZSGDDPgJU/s1600/-nunca-tuvo-novio-21658-MLA20215405978_122014-F.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiE6bCw6lyDjZNNaMThspraEXHf6HT1qZJJw6iKPtWr5C6wcat4UmDiqrEYZpezDEldR_4lrEoFx5t8v-58Na1gG1eKkpu0ZEAXpatVxh6DOJYQBZw4MLtRp-IG4FmquJ05cHZSGDDPgJU/s1600/-nunca-tuvo-novio-21658-MLA20215405978_122014-F.jpg)Entre sus maravillas podría citar temas como *C.T.V, Chuzas* (genial interpretación de Gobbi), *Gallo ciego*, de 1917 (magistral arreglo de Lavallén con Pugliese y de Salgán con su orquesta), *Qué noche *(por la nevada de 1919; el título se lo sugirió Arolas), *El baquiano, Se han sentado las carretas, Tierrita. El cuatrero* (algunos de sus temas que
+retienen el aroma campero), *Adiós Pueblo, Independiente Club, El buey solo, El abrojo,***Cachada* , La guiñada, El paladín, ***El rodeo*, *
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhkL0k334VVzoQt_ef1BaN1IGoMHyCMg-OkfaR0Nsnt-EJ0_1Bp6wqPzF_zt9Cg2AYc07MLxiAOc7qCzNkaPIxFf0Cvs68Y5DcpJpqrzF_1M0q1SlkrzmUHvRc7dX6QqvAkBK7REMwrB0w/s1600/Tinta_verde.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhkL0k334VVzoQt_ef1BaN1IGoMHyCMg-OkfaR0Nsnt-EJ0_1Bp6wqPzF_zt9Cg2AYc07MLxiAOc7qCzNkaPIxFf0Cvs68Y5DcpJpqrzF_1M0q1SlkrzmUHvRc7dX6QqvAkBK7REMwrB0w/s1600/Tinta_verde.jpg)*Tiernamente, La racha *(los violines de Di Sarli lo bordan), *No me escribas, Pico blanco, Madre hay una sola, Polvorita, Oiga compadre, El taura, Lorenzo, La última cita, Nocturno, Misterio, Sin hilo en el carretel, Florcita, Cabecita negra**,* algunos instrumentales y otros con diversos poetas. Y me quedo con estos títulos en una selección de sus hermosos temas.
+
+No alcanzó a disfrutar la década prodigiosa del tango porque en abril de 1941 cayó fulminado de un infarto en la calle, de camino a su casa en Bernal. Pero siguió latiendo en todos los atriles del cuarenta. Y sigue de moda, como lo muestra esta interpretación de la orquesta Vale Tango dirigida por el pianista Andrés Linetzky, cantando Esteban Riera, el tango de Bardi y Cadícamo:** Siempre los dos**. También los invito a deleitarse con **Qué noche**, grabado por Osvaldo Pugliese en 1969. Y **El abrojo**, por Carlos Di Sarli de 1958. Atenti.
+
+[Vale Tango - Siempre los dos](http://1drv.ms/1K2MWjm)
+
+[Osvaldo Pugliese - Qué noche](http://1drv.ms/1tV6diG)
+
+[El abrojo - Carlos Di Sarli](http://1drv.ms/1zMD2B9)

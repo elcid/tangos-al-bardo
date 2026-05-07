@@ -1,0 +1,31 @@
+---
+title: "De paicas y malevos"
+date: "2012-09-30"
+original_url: https://tangosalbardo.blogspot.com/2012/09/de-paicas-y-malevos.html
+labels: ""
+tags: ["José María Otero"]
+---
+
+El rito
+
+       *“Puedo vistear tu estampa, tu arquetipo…*”        Héctor Chaponick
+ La calza en un abrazo de rante malevaje  enfunyinado el mate, con aire de shofica,  masticando compases su sangre shomistraje,  y la paica ensobrada, lo chaira y lo replica.
+ El punto se embalurda de’sparo y farolea  dibujándole verduras de furca a la chirusa  que con sabia menesunda, el fato relojea  cinchándolo al breón, sarpada de carpusa.
+ En el orre bailetín, va diquera la papusa,  colibriando, reluciendo cartel con el bramaje,   alardeada de musa, abrojada al pogua como chusa,         pa' que su Cacha choree perfil en el baraje  arrastrando los fangruyos, ¡dequerusa!  mostrando en el leiba prontuario sin truchaje.
+ Y en la feria del engrupe taya fuerte el misturaje  del  gavión de gacho gris y la grela rantifusa,  floriándose bajo la luna naerma, ranera y comifusa.
+
+
+Poema de José María Otero sobre un dibujo de Carlos Killian.
+
+
+
+
+
+
+
+
+
+
+
+
+.

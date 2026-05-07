@@ -1,0 +1,29 @@
+---
+title: "Posadas y los negros del tango"
+date: "2013-02-23"
+original_url: https://tangosalbardo.blogspot.com/2013/02/posadas-y-los-negros-del-tango.html
+labels: ""
+tags: ["Carlos Di Sarli", "Aníbal Troilo", "Orlando Goñi"]
+---
+
+Una prueba irrefutable de la negritud fundacional del tango está en la cantidad de músicos de origen afro que salpican las partituras de los primeros temas y la participación de estos intérpretes en distintos dúos, tríos, cuartetos y demás formaciones de la primera etapa. Incluso los que tocaban en las casas de baile, eran en su mayoría de ese origen.
+
+
+Hoy hablo del talentoso guitarrista, violinista, compositor, director y maestro, Carlos Posadas, pero en su entorno están Rosendo Mendizábal, Harold Philips, José Ricardo, El Negro Almeida, Joaquín Mora, Plácido Simoni Alfaro, Eusebio Aspiazu, Guillermo Barbieri, Dafne Zenón Rolón, Leopoldo Thompson, Alejandro Vilela, Tiburcio Silbarrio, los hermanos Santa Cruz, El mulato Sinforoso, y muchos que se fueron dispersando en los distintos conjuntos que se formaron en la época iniciática.
+
+Carlos Posadas, que nació en 1874, fue discípulo de su hermano mayor, Manuel (14 años de diferencia), quien gracias a los esfuerzos de su padre pudo estudiar en Europa y, al regreso, terminaría siendo primer violín del Teatro Colón, Director de orquesta y figura destacada que, entre otros, tendría de alumno nada menos que a Juan José Castro. Los dos hermanos Castro y los Posadas actuaban conjuntamente en servicios religiosos y el futuro concertista y autor -Juan José- les rindió encendidos elogios, tanto a su maestro Manuel como a Carlos. Incluso le dedicó su tango*¡Qué titeo!*, a Carlos Posadas.
+
+ [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj0AVxUaRZq63wauYs-RcGhy9Tnjn9Nbr4ZTBpnWeQsZqDYmZZTMTbyyZ_Iv9VJOwqFP_zFaWdaAXbceQOuKRVzliIKAI496qTqHcQqiwY3_LKCmsVG7MUFKQJoW32tMrFaTLiZD-sOAcc/s320/Caarlos+posadas.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj0AVxUaRZq63wauYs-RcGhy9Tnjn9Nbr4ZTBpnWeQsZqDYmZZTMTbyyZ_Iv9VJOwqFP_zFaWdaAXbceQOuKRVzliIKAI496qTqHcQqiwY3_LKCmsVG7MUFKQJoW32tMrFaTLiZD-sOAcc/s1600/Caarlos+posadas.jpg) Carlos Posadas y la Buenos Aires del Centenario  Éste último, personalidad del Blog de hoy, fue el más destacado entre sus coetáneos, cuando el Tango todavía estaba en penumbras y la mayoría de los músicos era empíricos. Por eso Carlos le trascribía al pentagrama los temas que creaban algunos de ellos, como Juan Bergamino, padrino de su hijo homónimo, y autor de un tangazo: *Joaquina*, dedicado a Joaquina Marán, distinguida madama de una de las casas de citas donde se bailaba sin porteros ni vecinos y adentro cóctel y amor.
+
+También le pautó muchas obras a su amigo *Pacho* con quien compartían tangos y cafés. Posadas fue compinche de muchos de aquellos pioneros y el más ilustrado musicalmente. Su obra sirvió para templar la cuerda de quienes le sucedieron en la mirada pampa de aquella Buenos Aires silvestre, rodeada de campos, bañados, lagunas y juncos en flor. Los títulos de algunos de sus tangos lo reflejan claramente: *El gringo, El talero, El biguá, El chacarero, El jagüel, Indio muerto, La tacuarita, Guanaco*, todos temas que dedicaba a algún amigo o discípulo cómo se usaba en la época.
+
+ [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhg6GqsoQrUyIw-R7DC8_iBlX3mYjJRS4tLOF8ZwwudCSO3gITwYjNUctYh8d2qgGLE9Za60WplswngCYXBAudCbtfMyEt8YKzqZ9gD1U8B2xTRSkEeIgadAlH6Z7wwCkyFEnXaeBeS6dI/s1600/Retirao.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhg6GqsoQrUyIw-R7DC8_iBlX3mYjJRS4tLOF8ZwwudCSO3gITwYjNUctYh8d2qgGLE9Za60WplswngCYXBAudCbtfMyEt8YKzqZ9gD1U8B2xTRSkEeIgadAlH6Z7wwCkyFEnXaeBeS6dI/s1600/Retirao.jpg) Autores como Bardi y Arolas siguieron esa senda que desbrozara Carlos Posadas, en cuanto a la temática campera reflejada en tangos. Y aparte, éste último dejó algunos tangazos que fueron embellecidos en los atriles de las orquestas del cuarenta, como *El retirao, Cordón de oro, El tamango* y el citado *Jagüel*, llamado así inicialmente por el autor, sin el artículo delante, entre otros.
+
+Posadas murió joven, apenas tenía 44 años. Un sobrino nieto suyo, Facundo Posadas, negro también, viaja por el mundo, dando muestras de su herencia tanguera, en este caso como bailarín y señorazo, a quien tuve el gusto de tratar en Madrid. Incluso de bailar con su pareja morena, Kely (Clara Landam).
+ [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg8-LmccglzSvLT07TsyeCal4jjU5BtKacscCKkMTxHPC5mHocC-5nhD4FnMwlLge0KBX2QE8R3oNxHGRyL9q6NeTNFO85es49pu0yXZWy3m8to_jRpjG-L5KNFNWBCFtU3XTmnzs-uVjs/s320/instructors_facundoChing+(Sobrino+nieto+de+Carlos+Posadas).jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg8-LmccglzSvLT07TsyeCal4jjU5BtKacscCKkMTxHPC5mHocC-5nhD4FnMwlLge0KBX2QE8R3oNxHGRyL9q6NeTNFO85es49pu0yXZWy3m8to_jRpjG-L5KNFNWBCFtU3XTmnzs-uVjs/s1600/instructors_facundoChing+(Sobrino+nieto+de+Carlos+Posadas).jpg) Facundo Posadas baila con Ching- Ping Peng  De esta manera la negritud fundacional del tango sigue exhibiéndose con orgullo y dejando su marca en las pistas, ésas donde se inició esta fusión de música y danza, llegando reverberada al siglo XXI.
+
+Disfrutemos de un par de temas milongueros de Carlos Posadas. **El jagüel**, que Carlos Di sarli grabó en tres oportunidades. En este caso se trata del registro del 23 de febrero de 1956. Y a continuación **Cordón de oro**, realizado por la orquesta de Aníbal Troilo en la sala de grabación ,el 18 de julio de 1941, con Orlando Goñi al piano. ¡Que tangazos para bailar!,¡*Per favore signori*!
+
+[01- El jagüel -Di Sarli](http://sdrv.ms/YKkIkQ)
+
+[12- Cordón de oro - Troilo](http://sdrv.ms/YKkOZM)
