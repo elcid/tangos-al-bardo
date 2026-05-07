@@ -1,0 +1,29 @@
+---
+import { SITE } from "@/config";
+
+const { pathname } = Astro.url;
+const currentPath = pathname.endsWith("/") && pathname !== "/" ? pathname.slice(0, -1) : pathname;
+
+const isActive = (path: string) => {
+  return currentPath === path || currentPath.startsWith(path + "/");
+};
+---
+
+<header class="flex flex-col items-center justify-between sm:flex-row">
+  <div class="py-4 sm:py-6 border-b border-skin-border relative w-full bg-skin-background flex items-baseline justify-between sm:items-center">
+    <a href="/" class="text-xl leading-8 font-semibold whitespace-nowrap sm:text-2xl sm:leading-none text-skin-accent hover:opacity-80">
+      {SITE.title}
+    </a>
+    <nav class="flex items-center space-x-4">
+      <a href="/" class:list={["font-medium hover:text-skin-accent", { "text-skin-accent": isActive("/") }]}>
+        Inicio
+      </a>
+      <a href="/posts/" class:list={["font-medium hover:text-skin-accent", { "text-skin-accent": isActive("/posts") }]}>
+        Artículos
+      </a>
+      <a href="/tags/" class:list={["font-medium hover:text-skin-accent", { "text-skin-accent": isActive("/tags") }]}>
+        Creadores
+      </a>
+    </nav>
+  </div>
+</header>

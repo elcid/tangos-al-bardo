@@ -1,0 +1,56 @@
+@import "tailwindcss";
+
+@theme {
+  --color-skin-background: #fdf6ec;
+  --color-skin-text: #2c1810;
+  --color-skin-accent: #8b0000;
+  --color-skin-muted: #7a6a5c;
+  --color-skin-border: #d4c5a9;
+  --color-skin-fill: #fff9f0;
+  --color-skin-link: #8b0000;
+}
+
+@layer base {
+  body {
+    @apply bg-skin-background text-skin-text;
+    font-family: 'Crimson Text', Georgia, 'Times New Roman', serif;
+    line-height: 1.85;
+    font-size: clamp(1.05rem, 1.5vw, 1.25rem);
+  }
+
+  a {
+    @apply text-skin-link transition-colors duration-200;
+  }
+
+  a:hover {
+    @apply underline;
+  }
+
+  h1, h2, h3, h4, h5, h6 {
+    font-family: 'Playfair Display', 'Crimson Text', Georgia, serif;
+  }
+
+  .app-layout {
+    @apply mx-auto max-w-3xl px-4 sm:px-6;
+  }
+
+  article.post .content p {
+    @apply mb-5 leading-relaxed;
+  }
+
+  article.post .content img {
+    @apply max-w-full h-auto my-6 block;
+  }
+
+  article.post .content iframe {
+    @apply max-w-full my-6 block;
+  }
+
+  article.post .content blockquote {
+    @apply border-l-4 border-skin-border pl-4 my-6 italic text-skin-muted;
+  }
+
+  article.post .content hr {
+    @apply border-0 border-t border-dotted border-skin-border my-8 mx-auto max-w-[200px];
+  }
+}

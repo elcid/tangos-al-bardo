@@ -1,0 +1,45 @@
+---
+import Layout from "@/layouts/Layout.astro";
+import LinkButton from "@/components/LinkButton.astro";
+import { getCollection } from "astro:content";
+import { SITE } from "@/config";
+
+const posts = await getCollection("posts");
+
+// Build tag -> count map
+const tagMap = new Map<string, number>();
+for (const p of posts) {
+  const tags: string[] = p.data.tags || [];
+  for (const t of tags) {
+    tagMap.set(t, (tagMap.get(t) || 0) + 1);
+  }
+}
+
+// Sort by count descending
+const sortedTags = [...tagMap.entries()].sort((a, b) => b[1] - a[1]);
+---
+
+<Layout title={`Etiquetas — ${SITE.title}`} description="Navegar por creadores del tango">
+  <section>
+    <h1 class="text-3xl sm:text-4xl font-bold text-skin-accent mb-8">
+      Creadores
+    </h1>
+    <p class="text-lg text-skin-muted mb-8">
+      {sortedTags.length} creadores del tango encontrados en los artículos.
+    </p>
+
+    <ul class="grid grid-cols-1 sm:grid-cols-2 lg:grid-cols-3 gap-4">
+      {sortedTags.map(([tag, count]) => (
+        <li>
+          <LinkButton
+            href={`/tags/${tag.toLowerCase().replace(/\s+/g, "-")}/`}
+            class="block p-4 border border-skin-border rounded hover:bg-skin-accent hover:text-white transition-colors"
+          >
+            <span class="font-medium">{tag}</span>
+            <span class="ml-2 text-sm text-skin-muted">({count})</span>
+          </LinkButton>
+        </li>
+      ))}
+    </ul>
+  </section>
+</Layout>

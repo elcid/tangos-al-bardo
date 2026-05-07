@@ -1,0 +1,54 @@
+---
+import Layout from "@/layouts/Layout.astro";
+import Card from "@/components/Card.astro";
+import { getCollection } from "astro:content";
+import { SITE } from "@/config";
+import type { GetStaticPaths } from "astro";
+
+export const getStaticPaths = (async () => {
+  const posts = await getCollection("posts");
+  const tagSet = new Set<string>();
+  for (const p of posts) {
+    for (const t of p.data.tags || []) {
+      tagSet.add(t);
+    }
+  }
+
+  return [...tagSet].map((tag) => {
+    const slug = tag.toLowerCase().replace(/\s+/g, "-");
+    const taggedPosts = posts.filter((p) =>
+      (p.data.tags || []).includes(tag)
+    );
+    return {
+      params: { tag: slug },
+      props: { tag, posts: taggedPosts },
+    };
+  });
+}) satisfies GetStaticPaths;
+
+const { tag, posts } = Astro.props;
+---
+
+<Layout
+  title={`${tag} — Creadores — ${SITE.title}`}
+  description={`Artículos sobre ${tag} en Tangos al bardo`}
+>
+  <section>
+    <h1 class="text-3xl sm:text-4xl font-bold text-skin-accent mb-2">
+      {tag}
+    </h1>
+    <p class="text-lg text-skin-muted mb-8">
+      {posts.length} artículo{posts.length !== 1 ? "s" : ""}
+    </p>
+
+    <ul>
+      {posts.map((data) => <Card variant="h2" {...data} />)}
+    </ul>
+  </section>
+
+  <div class="mt-12 text-center">
+    <a href="/tags/" class="text-skin-accent hover:underline">
+      &larr; Todos los creadores
+    </a>
+  </div>
+</Layout>

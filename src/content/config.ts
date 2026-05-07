@@ -8,6 +8,7 @@ const posts = defineCollection({
     ),
     original_url: z.string().optional().default(''),
     labels: z.string().nullable().optional().default(''),
+    tags: z.array(z.string()).optional().default([]),
   }),
 });
 

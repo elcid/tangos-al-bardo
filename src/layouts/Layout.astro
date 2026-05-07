@@ -1,0 +1,86 @@
+---
+import { SITE } from "@/config";
+import Header from "@/components/Header.astro";
+import Footer from "@/components/Footer.astro";
+import "@/styles/global.css";
+
+type Props = {
+  title?: string;
+  author?: string;
+  description?: string;
+  ogImage?: string;
+  canonicalURL?: string;
+  pubDatetime?: Date;
+  modDatetime?: Date | null;
+};
+
+const {
+  title = SITE.title,
+  author = SITE.author,
+  description = SITE.desc,
+  ogImage = SITE.ogImage,
+  canonicalURL = new URL(Astro.url.pathname, Astro.url),
+  pubDatetime,
+  modDatetime,
+} = Astro.props;
+
+const socialImageURL = ogImage ? new URL(ogImage, Astro.url) : undefined;
+
+const structuredData = {
+  "@context": "https://schema.org",
+  "@type": "WebSite",
+  name: title,
+  url: Astro.url.href,
+  ...(pubDatetime && {
+    datePublished: pubDatetime.toISOString(),
+  }),
+  ...(modDatetime && {
+    dateModified: modDatetime.toISOString(),
+  }),
+};
+---
+
+<!DOCTYPE html>
+<html lang={SITE.lang} dir={SITE.dir}>
+<head>
+  <meta charset="UTF-8" />
+  <meta name="viewport" content="width=device-width, initial-scale=1.0" />
+  <title>{title}</title>
+  <meta name="description" content={description} />
+  <meta name="author" content={author} />
+  <link rel="canonical" href={canonicalURL} />
+
+  <link rel="preconnect" href="https://fonts.googleapis.com" />
+  <link rel="preconnect" href="https://fonts.gstatic.com" crossorigin />
+  <link href="https://fonts.googleapis.com/css2?family=Crimson+Text:ital,wght@0,400;0,600;0,700;1,400;1,600&family=Playfair+Display:ital,wght@0,500;0,700;1,500&display=swap" rel="stylesheet" />
+
+  <!-- Open Graph -->
+  <meta property="og:url" content={Astro.url.href} />
+  <meta property="og:title" content={title} />
+  <meta property="og:description" content={description} />
+  <meta property="og:type" content={pubDatetime ? "article" : "website"} />
+  {socialImageURL && <meta property="og:image" content={socialImageURL.href} />}
+
+  <!-- Twitter -->
+  <meta name="twitter:card" content="summary_large_image" />
+  <meta name="twitter:title" content={title} />
+  <meta name="twitter:description" content={description} />
+
+  <!-- Structured data -->
+  <script type="application/ld+json" set:html={JSON.stringify(structuredData)} />
+
+  <!-- Astro scoped styles placeholder -->
+  <slot name="head" />
+</head>
+<body class="min-h-screen">
+  <div class="app-layout">
+    <Header />
+
+    <main id="main-content" class="py-8 sm:py-12">
+      <slot />
+    </main>
+
+    <Footer />
+  </div>
+</body>
+</html>

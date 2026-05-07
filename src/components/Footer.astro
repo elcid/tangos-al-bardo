@@ -1,0 +1,14 @@
+---
+import { SITE } from "@/config";
+---
+
+<footer class="py-8 border-t border-skin-border text-center text-sm text-skin-muted">
+  <p>
+    {SITE.title} &copy; {new Date().getFullYear()} &mdash; {SITE.author}
+  </p>
+  <p class="mt-1">
+    <a href={SITE.website} target="_blank" rel="noopener" class="hover:text-skin-accent underline-offset-4 hover:underline">
+      Blog original
+    </a>
+  </p>
+</footer>
