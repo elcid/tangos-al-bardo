@@ -1,23 +1,43 @@
 ---
-import Layout from '../../layout/Layout.astro';
-import posts from '../../data/posts.json';
-import slugify from '../../lib/slugify';
+import BaseLayout from '../../layouts/BaseLayout.astro';
+import { getCollection } from 'astro:content';
+import type { GetStaticPaths } from 'astro';
 
-export async function getStaticPaths() {
-    return posts.map(p => ({
-        params: { slug: slugify(p.title) },
-        props:  { post: p }
-    }));
-}
+export const getStaticPaths = (async () => {
+  const posts = await getCollection('posts');
+  return posts.map((p) => ({
+    params: { slug: p.slug },
+    props: { post: p },
+  }));
+}) satisfies GetStaticPaths;
 
 const { post } = Astro.props;
+const { Content } = await post.render();
+
+const [y, m, d] = post.data.date.split('-');
+const meses = ['enero','febrero','marzo','abril','mayo','junio',
+               'julio','agosto','septiembre','octubre','noviembre','diciembre'];
+const fecha = `${parseInt(d)} de ${meses[parseInt(m)-1]} de ${y}`;
 ---
 
-<Layout title={post.title}>
-    <article class="wrapper prose">
-        <h1>{post.title}</h1>
-        <time>{new Date(post.date).toLocaleDateString('es-AR')}</time>
-        <div set:html={post.body} />
-        <a href="/">← Volver</a>
-    </article>
-</Layout>
+<BaseLayout pageTitle={`${post.data.title} — Tangos al bardo`}>
+  <article class="post">
+    <h2>{post.data.title}</h2>
+    <div class="meta">
+      <time datetime={post.data.date}>{fecha}</time>
+      {post.data.labels && (
+        <span> · {post.data.labels}</span>
+      )}
+      {post.data.original_url && (
+        <span> · <a href={post.data.original_url} target="_blank" rel="noopener">Ver original</a></span>
+      )}
+    </div>
+    <div class="content">
+      <Content />
+    </div>
+  </article>
+
+  <div class="back-link">
+    <a href="/">← Volver al inicio</a>
+  </div>
+</BaseLayout>

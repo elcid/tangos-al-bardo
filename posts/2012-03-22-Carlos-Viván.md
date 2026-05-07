@@ -1,0 +1,19 @@
+---
+title: "Carlos Viván"
+date: "2012-03-22"
+original_url: https://tangosalbardo.blogspot.com/2012/03/carlos-vivan.html
+labels: ""
+---
+
+Le dedicamos este espacio a un galán-cantor, de voz pequeña e incurable vibrato, que paseó sus artes de *torcan* y seductor por numerosos países: **Carlos Viván** (1903/1971)
+ Se llamaba Miguel Rice Treacey, era descendiente de irlandeses y, a la par que trabajaba en el Ferrocarril Oeste, Unión Telefónica, o de administrador de una compañía inglesa por su fluido dominio del inglés (ganando mucho dinero por ello), también alternaba con el fútbol. Su espigada figura y buena técnica del llevaron a militar en las filas de Estudiantil Porteño (en la canchita de Campichuelo y Gaona), Huracán y Ferro Carril Oeste, como *centrehalf.*
+ Pero pudo más su pasión por el arte, la noche y la bohemia. Debutó en una compañía de revistas en el viejo Teatro de la Ópera con Manuel Romero. Siguió con otras compañías y el tango lo enganchó jovencito, incluso.  Debutó en el disco con la orquesta de Juan Bautista Guido, *el lecherito*, en diciembre de 1927. Pasó por los conjuntos de Brignolo, Maffia, Bonavena, Fresedo, Donato, Firpo y fundamentalmente con Juan Maglio *Pacho*, con el cual estuvo más tiempo. Dejó unas 150 grabaciones.
+ También quiso comerse el mundo y estuvo casi dos años en la compañía de revistas de Casino de Urca  en Río de Janeiro, donde acreció notablemente su número de conquistas. Incluso le consiguió a Juan Carlos Cobián que estaba de bohemia por allí, la dirección de la orquesta del Casino. Y filmó dos películas.
+ Pasó por varios países y se radicó en Norteamérica. En Nueva York cantó tangos, jazz, presentó todo tipo de espectáculos en los grandes clubes nocturnos y al final regresó a Buenos Aires porque lo llamaba su madre y la nostalgia. Por eso no volvió a viajar. En 1938 cantaría con la orquesta de Julio De Caro dejando 5 registros.
+ Creó una serie de temas hermosos, especialmente: *Cómo se pianta la vida*, -quizás su propia confesión- que grabó con Pedro Maffia. . Y destacadas como *Domani, Hacelo por la vieja* (¿otra confesión?), *El barco María, Palomita mía, la vida es corta*, *Milonga para Gardel, Vivián de París, ¿Y entonces que más querés?,* entre otras. Fue letrista o compositor, según los temas.
+ Alberto Castillo lo adoraba y grabó varias de sus letras. Nos contaba una tarde en los baños turcos de Colmegna que cuando le grabó *Cómo se pianta la vida, con Tanturi, a *Vivá*n * se le piantaron dos lagrimones y lo abrazó emocionado.
+ Fue muy querido y respetado en el ambiente tanguero. La noche, el güisqui, los amigos y las mujeres fueron su metejón. Así vivió y murió una fría mañana de invierno de 1971 en el Hospital Británico.
+ Les dejo dos temas. El primero, cantando Viván con Maglio, el tango de Di Sarli y Carrera Sotelo: *Milonguero viejo* (que Di Sarli dedicó a su ídolo: Osvaldo Fresedo). Y Alberto Castillo con Tanturi: *Cómo se pianta la vida*.   [
+](http://www.blogger.com/goog_117037847)  [Milonguero viejo.Carlos Viván.mp3](http://www.mediafire.com/?qotxg6b7akhb1vr)
+ [Como se pianta la vida.Alberto Castillo.mp3 ](http://www.mediafire.com/?4w91sxdvugus34r)
+ [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh1U2WPbtKqO1vNn4nShqi1colIeszcN6aKSD6CERqktJEbDH6O2sEYkStD3SSEh5T8KLaiOOsSI2oZCNiD0wPGTpCFkgmsbtvT_IPW43Iq_j3gh5EefhqN9Fe5KZWIQP6z65ye3do5DNc6/s1600/Viv%C3%A1n+I.bmp)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh1U2WPbtKqO1vNn4nShqi1colIeszcN6aKSD6CERqktJEbDH6O2sEYkStD3SSEh5T8KLaiOOsSI2oZCNiD0wPGTpCFkgmsbtvT_IPW43Iq_j3gh5EefhqN9Fe5KZWIQP6z65ye3do5DNc6/s1600/Viv%C3%A1n+I.bmp)

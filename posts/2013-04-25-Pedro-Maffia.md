@@ -1,0 +1,32 @@
+---
+title: "Pedro Maffia"
+date: "2013-04-25"
+original_url: https://tangosalbardo.blogspot.com/2013/04/pedro-maffia.html
+labels: ""
+---
+
+Su nombre impone un antes y un después en la historia del tango. Por todo lo que representó su enorme talento para manejar el bandoneón, y un estilo que fue básico para tantos bandoneonistas que vinieron detrás suyo en el tiempo, como el caso de Aníbal Troilo.
+
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhgDClk3EmosjjOsk_nuqnz1WWld2w0OUYkD0DTiQsaOIluyh9T57OtH_AEAhp0GwhclyLbFqY0sHLawtyE2KXXz0FxmTzEvhkG88qD9pi-v8_CkTOXhmUNU3tPOrpvq7yRPM5DzdTkxcE/s320/Pedro-Maffia-joven.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhgDClk3EmosjjOsk_nuqnz1WWld2w0OUYkD0DTiQsaOIluyh9T57OtH_AEAhp0GwhclyLbFqY0sHLawtyE2KXXz0FxmTzEvhkG88qD9pi-v8_CkTOXhmUNU3tPOrpvq7yRPM5DzdTkxcE/s1600/Pedro-Maffia-joven.jpg)Su peculiar modo de ejecución, su postura firme sin aspavientos, el cuerpo erguido, soldado al respaldo de la silla, con su espalda, muslos y piernas unidas y en invariable ángulo recto, rodillas y pies juntos sin separarse. Los brazos siempre pegados al torso, únicamente los dedos deslizándose sabiamente por la botonera, eran los artífices de expresar la música.
+
+Con él se terminaría la vieja modalidad de tocar "*a la verdulera*", la modalidad de estirar al máximo el fueye y flexionarlo aparatosamente. Nunca le hizo falta moverlo demasiado, porque con su destreza y conocimientos musicales, le bastaba para arrancarle al instrumento el sonido deseado, sin alardes. Es la escuela que había inaugurado años antes *el alemán* Bernstein. Sólo en alguna vena del cuello hinchada, o en los músculos tensos del cuello podía adivinarse ese fuego interior que lo impulsaba.
+
+Con esa especie de liviana maestría fue atravesando los distintos mojones que lo llevarían al pináculo de la fama entre sus colegas. Pocos sabían que esa categoría le venía dada por el aprendizaje del piano. El padre, que siempre tuvo bares, almacenes, mercados y negocios divesos, viendo su predisposición por la música, lo inscribió en el Conservatorio Williams y en seis años de estudio, saltándose por adelantado y dedicación los distintos libros, egresó como profesor de música y solfeo.
+
+ Su progenitor cambiaba constantemente de barrio y de negocio, pero uno de ellos lo hechizó. Era un nuevo bar ubicado en el barrio de Flores, al cual concurrían por las noches celebrados payadores, bandoneonistas, cupleteros, "*algo así como un teatro de barrio*", diría después. En otro anterior que tuvieron en Floresta, había conocido a los famosos payadores: José Betinotti, Gabino Ezeiza, Higinio Cazón. Pedro era una criatura y los escuchaba cantar en esas noches mágicas y los veía como seres sobrenaturales. Así fue formando su espíritu.
+
+En el boliche de Flores, una noche se le ocurrió a un hombre de Mataderos rifar un bandoneón, y costaba un peso cada rifa. El destino quiso que lo ganara la madre de Pedro y entró el bandoneón en su vida de la manera más inesperada. Tenía 65 voces entre la mano derecha y los bajos. Pedrito a sus 11 años, estaba inmerso en el estudio del piano y su madre le preguntó: "*¿No querés estudiar el bandoneón?".* La respuesta positiva del niño fue inmediata.
+
+El padre había escuchado a un bandoneonista llamado *Pepín* Piazza en el café *La morocha* de Corrientes y Río de Janeiro y lo había entusiasmado tanto, que hasta allí llevaría a Pedrito, quien quedó maravillado de las cosas que hacía *Pepín *con ese instrumento y se esfumó su amor por el piano, cosa que le transmitió a su padre. Éste se enojó al principio, pero terminó cediendo a su elección y lo anotó como alumno de Piazza, que le daba clases nocturnas. El nuevo alumno llegaba antes que los demás y se iba después de ellos. Al año, Pepín le dijo a su padre: "*No puedo enseñarle más, si sigue acá, dentro de poco me va a enseñar él a mí". *
+* *
+ * *A los 13 años iniciaría su carrera artística, tocando en casas de baile y su ascenso fue imparable. Incluso se escapó de la casa y anduvo exhibiendo su eximio manejo del fueye por distintos burdeles, locales de baile y bares en pueblos bonaerenses*, *hasta que la policía, por orden de su padre, lo devolvió al hogar.* *Pedro se dió cuenta de que los estudios del piano le permitieron un manejo que los demás desconocían, dado que no había métodos para estudiar el bandoneón. Y día que tuvo el fueye de 71 voces, que le compró su padre porque había "*perdido*" el otro, su prestigio creció velozmente.
+
+ [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi7WD38WmUPWDPRJAEAOhX6HGvRRApNcecSSHIFHZgCsoKuByEP4q75Pn9dhR3824dwa4IniqSegybojL3dfe584XdbsRrZ-QM1xrbIVkjQDhlSaXEyE3X3R7P6GQg27ao8lTt2glZDh9I/s320/pedro+y+pedro.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi7WD38WmUPWDPRJAEAOhX6HGvRRApNcecSSHIFHZgCsoKuByEP4q75Pn9dhR3824dwa4IniqSegybojL3dfe584XdbsRrZ-QM1xrbIVkjQDhlSaXEyE3X3R7P6GQg27ao8lTt2glZDh9I/s1600/pedro+y+pedro.jpg) El dúo legendario: Pedro Maffia y Pedro Laurenz  Con 19 años se sentaría junto a otro crack: Luis Petrucelli, en la orquesta del "*Gallego*" Martínez. Esa dupla se entendería a las mil maravillas. Compartirían fila en varias orquestas y serían junto a Francisco De Caro la base del futuro Sexteto revolucionario de Julio De Caro, que todos los músicos que apuntaban al futuro, irían a escuchar. Cuando se retiró Petrucelli, un novel Pedro Laurenz ocupó su sitio y esa dupla de bandoneones ocupa un lugar preponderante en la historia, por su genialidad. Juntos hicieron un tema; *Amurado*, con letra del violinista y poeta José De Grandis, al que le otorgaron el don de la inmortalidad.
+
+Maffia tuvo su propia orquesta, y compuso unos temas de enorme peso. De entre ellos destaco a: *Taconeando, La mariposa, Pelele, No aflojes, Pura maña, Diablito, Noche de Reyes, Cornetín, Abandono, Pobre gallo bataraz, ¿Porque no has venido?, Se muere de amor, Sentencia, Te aconsejo que me olvides, Tiny (*con Julio De Caro*), Turbión. *Obviamente, en colaboración con poetas, muchos de estos.
+
+Podemos escucharlo con su orquesta interpretando: **Tiny**, el tango que realizó con Julio De Caro y dedicó a un caballo con ese nombre, dado que era asiduo al hipódromo.Y a continuación, también con su conjunto y el cantor Luis Díaz, en el tango de Augusto Gentile y Enrique Dizeo, **Romántico bulincito**, grabado en 1930.
+
+[Tiny - Pedro Maffia](http://sdrv.ms/XZ0juY)
+
+[18- Romántico bulincito- P.Maffia-Luis Díaz](http://sdrv.ms/XZ04zR)

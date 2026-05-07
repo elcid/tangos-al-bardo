@@ -1,0 +1,55 @@
+---
+import BaseLayout from '../../layouts/BaseLayout.astro';
+import { getCollection } from 'astro:content';
+import type { GetStaticPaths } from 'astro';
+
+export const getStaticPaths = (async () => {
+  const PAGE_SIZE = 50;
+  const allPosts = await getCollection('posts');
+  const sorted = allPosts.sort((a, b) => b.data.date.localeCompare(a.data.date));
+  const totalPages = Math.ceil(sorted.length / PAGE_SIZE);
+  
+  const paths = [];
+  for (let p = 2; p <= totalPages; p++) {
+    paths.push({
+      params: { page: String(p) },
+      props: {
+        page: p,
+        totalPages,
+        posts: sorted.slice((p - 1) * PAGE_SIZE, p * PAGE_SIZE),
+      },
+    });
+  }
+  return paths;
+}) satisfies GetStaticPaths;
+
+const { page, totalPages, posts: pagePosts } = Astro.props;
+---
+
+<BaseLayout pageTitle={`Tangos al bardo — Página ${page}`}>
+  <h2 class="page-heading">
+    Página {page} de {totalPages}
+  </h2>
+
+  <ul class="post-list">
+    {pagePosts.map((p) => {
+      const [y, m, day] = p.data.date.split('-');
+      const meses = ['enero','febrero','marzo','abril','mayo','junio',
+                     'julio','agosto','septiembre','octubre','noviembre','diciembre'];
+      const fecha = `${parseInt(day)} ${meses[parseInt(m)-1]} ${y}`;
+      return (
+        <li>
+          <span class="date">{fecha}</span>
+          <a href={`/posts/${p.slug}/`}>{p.data.title}</a>
+        </li>
+      );
+    })}
+  </ul>
+
+  <div class="pagination">
+    <a href={page === 2 ? '/' : `/page/${page - 1}/`}>← Más recientes</a>
+    {page < totalPages ? (
+      <a href={`/page/${page + 1}/`}>Más antiguos →</a>
+    ) : <span></span>}
+  </div>
+</BaseLayout>

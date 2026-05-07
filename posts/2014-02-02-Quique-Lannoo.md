@@ -1,0 +1,55 @@
+---
+title: "Quique Lannoo"
+date: "2014-02-02"
+original_url: https://tangosalbardo.blogspot.com/2014/02/quique-lannoo.html
+labels: ""
+---
+
+Este excelente violoncellista está radicado en Mar del Plata, después de haber lucido su arte en tantas orquestas, con tantos maestros. Su madre, la profesora Eugenia Pereiro fue quien le dio las primeras lecciones de música que completaría con Ernesto Cobelli. Como Ruben Juárez comenzó tocando en la orquesta juvenil del Club Atlético Independiente -cuando los clubes de fútbol eran a la vez sociales y no existían los barrabravas-. Enrique Lannoo es de mi barrio porteño de Parque Patricios, estudió en el prestigioso Colegio Bernasconi de la zona, y en el periódico *Página 12* le ha hecho un excelente reportaje mi colega periodista Carlos Rodríguez y las fotos son de Pablo Piovano, un buen amigo.
+
+En la entrevista, toca ligeramente la situación política del país, algo que a los argentinos nos ha enfrentado a la largo de toda nuestra historia. Como yo respeto todas las opiniones, siempre que no sean ofensivas, por el interés de esta nota la traigo hoy aquí. Y porque reporta tantas cosas que viví en mis carnes y en mi sangre porteña y tanguera. Acá lo tienen.
+
+
+
+
+   ENRIQUE “QUIQUE” LANOO, TANGUERO Y PERSONAJE DE MAR DEL PLATA
+
+##  Un mar de cello
+Tocó con Troilo, Pugliese, Piazzolla y tantos otros. Y compuso más de un centenar de temas. Su vida transcurre ahora en Mar del Plata, donde rememora sus historias.
+
+[](https://www.blogger.com/null) ![](https://blogger.googleusercontent.com/img/proxy/AVvXsEi4RaQFgfzpPnKSxdZGinqLjp1ZO8Xme2SevoT1VSSYloWgDOKq8qfjn0Wp74zmPHGkowZ3WXBpAs27Gp_LEi_IqMTyMVGCeQ0Kghi9j8W17GJjyPwdkg7hS6H_p5MGTHXapybOrv_nUYL7AWBfnW6Vd06N=s0-d-e1-ft) Por Carlos Rodríguez
+ Desde Mar del Plata
+
+Enrique “Quique” Lanoo es como Rodolfo Orozco, el personaje de la canción de León Gieco, porque “tocó con John, tocó con Pol, tocó con todos”. A los 73 años, desde su refugio en Mar del Plata, lejos de su Parque Patricios natal, recordó su trayectoria como violoncelista de orquestas tan grandes como las de Osvaldo Pugliese, Aníbal Troilo, Astor Piazzolla, Armando Pontier, Leopoldo Federico, Eduardo Rovira, Osvaldo Piro, Atilio Stampone y sus grabaciones con cantores de la talla de Roberto Goyeneche, Susana Rinaldi, Virginia Luque, Edmundo Rivero, Angel Vargas, Roberto Rufino y un sinfín más, a lo largo de una carrera que comenzó con 14 años recién cumplidos. A los 17 años, en el mítico Marabú, tocó por primera vez con la orquesta de Troilo. Entre tanto nombre ilustre del tango de todos los tiempos, guarda un lugar preferencial para sus “dos maestros”: Pugliese y Rovira. “Con don Osvaldo, que me llevaba 35 años, fuimos como padre e hijo.” Quique Lanoo, además de un talento musical es el hombre de las mil anécdotas, desde un encuentro con Pablo Neruda (ver aparte) hasta la primera vez que tocó con Piazzolla: “Esa primera vez fue debut y despedida; me echó porque hice un chiste cuando me hizo una reprimenda porque me apuré a entrar con el cello en un ensayo”.
+
+
+
+
+Desde los 5 años estudió piano con su madre, Eugenia Pereiro, y a los nueve años empezó con el violoncello, con el profesor Ernesto Cobelli, director del Conservatorio Santa Cecilia de Italia. También se perfeccionó en la Escuela de Música del Instituto Bernasconi, en el Conservatorio Santa Cecilia y en el Conservatorio Municipal Manuel de Falla, los tres en la ciudad de Buenos Aires. Entre 1973 y 1976, fue director artístico del viejo Canal 7, en Leandro Alem y Viamonte. Fue uno de los primeros funcionarios del gobierno constitucional de entonces que fue desalojado de su lugar de trabajo por orden de la Junta de Comandantes, al producirse el golpe militar del 24 de marzo de 1976.
+ Como compositor es autor de más de un centenar de temas, entre los que se destacan A mis dos maestros, dedicado a Pugliese y Rovira, y Elegía para el amigo negro, en memoria de Martin Luther King. En su casa, tiene la cinta todavía inédita de un disco de poemas que incluye la lectura de “La fundación mítica de Buenos Aires”, de Jorge Luis Borges, de su libro Fervor de Buenos Aires, en la voz de Luis Medina Castro. Entre otros premios, nacionales e internacionales, fue distinguido como Ciudadano Ilustre de la Ciudad de Buenos Aires por la Legislatura porteña.
+ La charla, en la casa del barrio Alfar de Mar del Plata, donde vive solo desde que enviudó, es amenizada con música: Goyeneche con Atilio Stampone, Alfredo Gobbi y una selección de temas grabados por el Quinteto de Quique Lanoo, que incluye una versión de “Adiós Nonino”, el tema que Piazzolla le dedicó a su padre, con un conmovedor solo de cello. “Lo tuve que tocar en vivo cuando murió mi padre; creo que fue una buena versión, pero lo supe después porque ese día yo estaba en otro lado.”
+
+
+
+
+Guarda una foto con sus padres una noche que fueron a verlo tocar en Caño 14. “La foto la hizo un fotógrafo al que le decíamos ‘Fogonazo’.” Y una carta manuscrita de Pugliese, dirigida “a la juventud”, pero que se la entregó a él, personalmente, para decirle que “el tango necesita de jóvenes talentosos como vos y los compañeros de tu conjunto”.
+ –¿Cómo lo conoció a Pugliese?
+ –Yo venía haciendo varias orquestas, estaba con Armando Pontier, con Atilio Stampone y con otras tres. Un día Stampone me dijo que lo había llamado Osvaldo Pugliese para decirle que él quería que fuera el cellista de su orquesta, pero si aceptás no podés tocar en ninguna otra. Fui a hablar con Pugliese y me enamoró el viejo loco ése. Dejé todo y me fui con él. Estuve tres meses ensayando porque la orquesta no permitía leer (la partitura) y tuve que aprender todo el repertorio. La primera actuación fue en La Cigala, un boliche de la calle Corrientes. En medio de la actuación prendieron las luces y fuimos todos presos. Como Pugliese era comunista, nos llevaron presos. Debuté en 1962 y fui en cana (se ríe).
+ –¿Cómo eran esos años de represión política?
+ –Nosotros no hablábamos de política, pero vivíamos con política, porque si no vivís con política dejás de ser lo que tenés que ser. Pugliese no hablaba de política, no bajaba línea, pero era un comunista declarado y por eso tuvimos una época en la que iba preso. Nosotros poníamos un ramo de flores sobre el piano y tocábamos sin Pugliese. Cuando llegamos a Japón, en 1965, la SIDE de la Argentina mandó a un japonés a una conferencia de prensa para preguntar quiénes éramos los comunistas que estábamos en la orquesta de Pugliese. Osvaldo contestó que él había ido a tocar tango y no a hablar de política. Pero si querían saber, él era comunista y si había algún otro, que se parara. Se llevó una sorpresa porque nos paramos todos. Eramos todos comunistas, nadie pudo saber quién era peronista, quién era radical.
+
+  [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEghVMbLu60rixBfnaUnRUzNsDeeg_IGwdqlB8hTpX4GdrZb9wMifJc1WEIQMTHUa6or01AgGHB48WJGjcu8gOu-EIU6CM3HXK9CA-nnVmdCf7Ciryp6zLYBL_iN_uPF9j7hYuux_vAHTrw/s1600/Lannoayy.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEghVMbLu60rixBfnaUnRUzNsDeeg_IGwdqlB8hTpX4GdrZb9wMifJc1WEIQMTHUa6or01AgGHB48WJGjcu8gOu-EIU6CM3HXK9CA-nnVmdCf7Ciryp6zLYBL_iN_uPF9j7hYuux_vAHTrw/s1600/Lannoayy.jpg) Quique Lannoo con su madre
+–Dicen que lo acompañó a Pugliese cuando se entrevistó con Juan Domingo Perón y éste le pidió perdón por las veces que había ido preso durante el peronismo.
+ –La entrevista fue en la residencia presidencial. Perón lo ve entrar a Pugliese desde una distancia de 50 metros, se fue acercando y le dijo: “Le pido disculpas por todo”. Pugliese le respondió, con su voz chillona: “Yo perdono, pero no olvido”. Esas palabras se han dicho muchas veces en la historia reciente de la Argentina. Pugliese se las dijo a Perón, en mi presencia. Yo a Pugliese lo quise como a un padre y él me quiso como a un hijo. Me dijo una vez: “Sos el hijo varón que nunca tuve”. Todavía me conmueve cada vez que lo recuerdo. Jamás le dijo a nadie “vos tenés que afiliarte a mi partido para tocar en mi orquesta”. Pugliese fue un hombre perseguido. Muchas veces el piano estuvo vacío. Uno de los pocos que se sentó a ese piano fue Osvaldo Manzi, uno de los mejores pianistas que tuvo el tango. Eran otras épocas, hoy podemos decir todo lo que queremos decir, hoy podemos putear por todo y contra todos. Dicen que tenemos problemas de seguridad, pero la seguridad la hacemos entre todos, no tenemos que andar echándole la culpa a otro. Si yo cierro bien la puerta de mi casa y le doy de comer a quien tiene hambre, sin esperar que lo haga el Estado, la vida sería más buena. El problema de la seguridad pasa por el estudio, la formación y el hambre, pero no le podemos echar siempre la culpa al que votamos, hay que acompañar.
+ –¿Cómo llegó a la orquesta de Troilo?
+ –Con el Gordo Troilo estuve en 1957. Era un fenómeno. Estuve seis meses porque había un cellista que tocaba con él que se llamaba Faneggi y tenía problemas de salud. Cuando él no podía estar, yo lo reemplazaba. El personaje más grande se llamaba Carlos Olmedo, que escribió un tango que se llamaba “De puro curda”. Cada vez que salíamos con él íbamos en cana todos. Viví una época increíble, cuando el país estaba en la cima de la cultura, con Borges, con Sabato, Rovira, Piazzolla, era un momento increíble. Yo hice un disco con poesías sobre Buenos Aires y le pedí permiso a Borges para hacer la “Fundación Mítica de Buenos Aires”. Incluía “El día que me quieras” y poemas de Raúl González Tuñón. Al único que no pude conocer fue a Evaristo Carriego, a quien Rovira le dedicó un tango y lo grabamos juntos.
+
+  [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhaWdupEEumdUSZiL4sAk9WIzH5w7adLoW-z_52Pc5Rtn0dENPJpeJ1F8p2tdDYEDp4r0KJ5MrJlHyPy_M1vJ9JqkFWwLyIhNnxUAaRwCQPZnZbvsH-qlM3oB0OwvMDBJCez1CPl4CE-1E/s1600/Sexteto+Francini.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhaWdupEEumdUSZiL4sAk9WIzH5w7adLoW-z_52Pc5Rtn0dENPJpeJ1F8p2tdDYEDp4r0KJ5MrJlHyPy_M1vJ9JqkFWwLyIhNnxUAaRwCQPZnZbvsH-qlM3oB0OwvMDBJCez1CPl4CE-1E/s1600/Sexteto+Francini.jpg) Violoncellista del conjunto de Francini  –¿Cómo fue su encuentro con Piazzolla, que tenía fama de ser un tipo duro cuando se enojaba
+–Piazzolla era un tipo de sentimientos muy profundos y muy querible.
+ Yo debuté con él y me echó. Estaban ensayando el tango “Si se salva el pibe” que lo cantaba Jorge Sobral. Cuando viene el solo de cello, yo por los nervios me apresuro y él me dice: “Adónde va tan apurado, viejo”. Y yo le digo en broma, con ese sentido del humor que me acompañó toda la vida: “A ver si se salva el pibe”. Me echó, me dijo, “retírese de acá, mocoso de mierda”. A los tres o cuatro años yo iba a la casa de Piazzolla por Diana, la hija, de la que me había enamorado. Nos reconciliamos con Piazzolla y después grabé con él, con un dúo de cellos: yo y (José) Bragato.
+
+Los invito a escucharlo en dos versiones de su Quinteto: Un popurrí de tres valsecitos. Y en un arreglo especial suyo: **La cumparsita**.
+
+[08- Quique Lannoo - Popurrí Valsecitos](http://sdrv.ms/LnXj7J)
+
+[04- La cumparsita - Quique Lannoo](http://sdrv.ms/1bjT7QH)

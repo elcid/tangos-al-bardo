@@ -1,0 +1,23 @@
+---
+title: "Antonio Arcieri"
+date: "2016-03-09"
+original_url: https://tangosalbardo.blogspot.com/2016/03/antonio-arcieri.html
+labels: ""
+---
+
+Hoy quiero ocuparme de uno de los tantos músicos que pasaron en puntas de pie -para el público- por las filas del tango, pobladas por las grandes figuras que lo orlaron, lo popularizaron y engrandecieron. Porteño del barrio de Balvanera, de chico tuvo el berretín de aprender a tocar el violín, que fungía de a ratos su hermano mayor. El padre quería que estudiase y dejase ese instrumento y buscó muchas artimañas para negárselo. Pero las ganas del pequeño fueron tantas que lo tocó a escondidas, aunque, entre otras cosas, tuviese que trabajar en la zapatería de su progenitor.
+
+ [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjzf7d6bdrHV1SYvx69VLP6dYDcCiQiM3Oy9LGWTKNorHDGa3fRWlBcxKf5RARyTwZd4etfCHCmTx_xUFxJnwHTbf2-RGwLDDDE6i5umEZMaNnZM5uJAFGMTLz6N1BC4uvE3bzA-Xrjb8ZD/s400/img081.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjzf7d6bdrHV1SYvx69VLP6dYDcCiQiM3Oy9LGWTKNorHDGa3fRWlBcxKf5RARyTwZd4etfCHCmTx_xUFxJnwHTbf2-RGwLDDDE6i5umEZMaNnZM5uJAFGMTLz6N1BC4uvE3bzA-Xrjb8ZD/s1600/img081.jpg) Arcieri en 1933  Finalmente y mediando sus promesas de estudiar, el hermano sería quien le daría las primeras lecciones con el instrumento que tanto lo ilusionaba. Tenía un amigo del barrio, Juan Carlos Aquilini que estudiaba piano, y en casa de éste se juntaban e intentaban dúos iniciáticos. El almacenero de la esquina de ambos, era un entusiasta de la música y conformó un pequeño equipo con los dos chicos para lucirse en algunas fiestas de la vecindad. Entonces el berretín se le metió a fondo al pequeño Antonio, desde esa aventura infantil.
+
+El bandoneonista Antonio Sureda le vió condiciones y el entusiasmo de ambos, les motivó a formar un cuarteto con Aquilini en el piano y Humberto Canataro en guitarra. Aparecieron los contratos en cine y en bailes, de la mano dae Adolfo R. Avilés. El cuarteto quedaría reducido a lo que llamaron el "Trío América" -Sureda, Aquilini-Arcieri-, que debutaría en Radio Brusa y extendería su radio de acción y popularidad creciente a otras emisoras.
+
+En esa época (comienzos del año veinte), Aricieri compondría su primer tango: *Mi nena*, ayudado por su hermano. Y avanza en sus afanes integrándose en la orquesta Rostán, que co-dirigían Rosich y Ricardo Tanturi, que años más tarde lo llevaría a su notable orquesta. Ya era alguien en el ambiente y Julio De caro lo convoca a su consgrada formación y viajarán tres años seguidos a Brasil. Incluso De Caro lo dejaría al frente de una orquesta suya, mientras él actuaba con la "titular", en el vecino pais.
+
+Sería en Brasil donde Arcieri forma su primer conjunto, con Luis Visca al piano, los bandoneonistas Fortunado y Caruso, y Abruzese en violín, además del propio Arcieri. Le iría muy bien con este conjunto en Río de Janeiro donde estuvo un período prolongado y a la vuelta decidió parar un poco, hasta que retornó al ruedo convocado por Raúl Sánchez Reynoso, con el conjunto *Los matreros*, como un club de rugby que acababa de fundarse en Morón, provincia de Buenos Aires. En dicho conjunto sería el director, imprimiéndole su estuilo decareano.
+
+ [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh41JfeDtLDyETdVvmNjGrnztKZwPBUKT-wj8Mkxytn1LLyi_SrgyVUqYlYJHcoGo8Ouo7J6BaNqjslIaWBP5ruF-T22lX_R00VeqpVx8yDfiaeInEKhd-pybZWs9KuSzUrwnChBSGa4nVF/s320/img080.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh41JfeDtLDyETdVvmNjGrnztKZwPBUKT-wj8Mkxytn1LLyi_SrgyVUqYlYJHcoGo8Ouo7J6BaNqjslIaWBP5ruF-T22lX_R00VeqpVx8yDfiaeInEKhd-pybZWs9KuSzUrwnChBSGa4nVF/s1600/img080.jpg) Reporteado en Radio Fénix por Héctor Bates en 1935
+Después despuntó su talento durante unos años en la orquesta de Ricardo Tanturi que haría roncha en los años cuarenta y estuvo aprovechando ese tirón para gozar de aquella bien ganada popularidad. En el ínterin, siguió plasmando algunos temas que tuvieron recorrido y otros de menor fortuna. Vale la pena destacar a **Pinta orillera**, que grabó Rodolfo Biagi con Jorge Ortiz o **Derrotado**, que tendría una linda versión de Carlos Di Sarli, cantando Rodolfo Florio, y Enrique Rodríguez con Oscar Galán..
+
+Falleció cuando aún no había cumplido los 45 años y dejó escasos registros discográficos con su orquesta. Hoy lo traigo al blog con un tango desconocido, y que se hizo en homenaje a una colonia que alojaba a enfermos de lepra. Se llama **Soldadito ausente** y lo canta Juan Carlos Miranda. Lo grabó la orquesta de Arcieri el 12 de septiembre de 1942.
+
+[23- Soldadito ausente- Antonio Arcieri-Juan Carlos Miranda](http://1drv.ms/1XcfOvj)

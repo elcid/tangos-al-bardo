@@ -1,0 +1,21 @@
+---
+title: "Antonio Todaro. El Maestro."
+date: "2019-08-29"
+original_url: https://tangosalbardo.blogspot.com/2019/08/antonio-todaro-el-maestro.html
+labels: ""
+---
+
+En el desarrollo del tango como danza escénica, las corrientes renovadoras crecen en patrones similares sucesivos. Ciertos bailarines y maestros dan forma a generaciones enteras de profesionales en cada época. Si se reconstruyera la historia del tango sobre la base de estas referencias, habría que mencionar al menos a cuatro maestros fundamentales: José Benito Bianquet - "El Cachafaz" - a principios de siglo; José Méndez en sus 40 años; más cerca que Juan Carlos Copes; y en la década de los 80 Antonio Todaro - "El Tano" o simplemente "El maestro / The master".
+ En la dirección estilística de la gran mayoría de los jóvenes bailarines de hoy, uno reconoce la influencia exclusiva de Antonio Todaro, el excepcional bailarín y maestro del tango original. Ya cuarenta años antes era conocido en el entorno limitado de los bailarines populares. Pero recientemente, a principios de la década de 1980, los bailarines, que fueron moldeados de acuerdo con su estilo, comenzaron a aumentar en los escenarios de Buenos Aires y Europa. Algunos al hacer una distinción rigurosa como re-creador de la personalidad y la coreografía de Todaro, otros con un tratamiento más personal de su material. Todos claramente marcados por su escuela.
+
+ Antonio Todaro nació en el barrio de Chacarita y se crió en el barrio de Mataderos y, aunque se ha mudado varias veces, nunca se ha movido más allá de cuatro cuadras. Si bien enseñó durante cuatro décadas, dependió de su trabajo como albañil durante muchos años. Solía ​​decir que no tuvo suerte con sus parejas: dos de sus compañeras bailarinas murieron jóvenes. Durante un tiempo formó una pareja de baile muy recordada con su hija: hasta que ella, a la edad de quince años, decidió abandonar el entrenamiento y el tango bailado.
+ Curiosamente, Antonio Todaro nunca apareció en un escenario: su hábitat de actuación y disfrute siempre era la de las milongas, los clubes de baile, ocasionalmente la de los cabarets (con su amigo Virulazo, reemplazando a la esposa, daba actuaciones legendarias en Rosario). A una edad muy temprana Todaro enseñó en la escuela de Méndez.
+ Más tarde pasó horas con Arturito "el rey de la Milonga". Nunca dejó de entrenar en diferentes salones, ni siquiera durante los años de mayor declive en los años sesenta y setenta, cuando el tango prácticamente se había reducido a un culto marginal.
+ En 1986 tuvo su escuela en Primera Junta. A este salón llegaron Miguel Angel Zotto y Milena Plebs, quienes ya formaban parte del exitoso elenco del espectáculo "Tango Argentino", pero como pareja todavía buscaban identidad. Todaro, con Zotto y Plebs, hizo un trabajo profundo e intenso (cuatro horas diarias de práctica), creando un estilo que rápidamente llamó la atención. Pronto, por iniciativa de Claudio Segovia, el director de Tango Argentino, las jóvenes parejas del programa tomaron lecciones del maestro anónimo. A medida que avanzó el desarrollo del tango, muchas más parejas vinieron a Todaro, profesionales y principiantes, incluidos adultos y niños.
+
+La calidad de sus bailarines lo hizo famoso en Europa, en todas aquellas ciudades donde en medio de baile crece el fervor del tango. En estos pocos años, viajando de ida y vuelta entre Alemania, Holanda, Bélgica, Francia y Buenos Aires, ha establecido una verdadera escuela de danza. Toda una generación hizo brillar su estilo ya que el atractivo del baile más íntimo se había desmayado debido a la falta de estímulos, y en algunos casos las direcciones estilizadas se habían derivado en fórmulas sin sentido para la exportación.
+ Todaro ha renovado la concepción del tango escénico, cerrando la brecha entre los orígenes populares de la danza y el trabajo que requiere el escenario. En esta unión se derrama su estilo, consistente en la esencia del tango original y una riqueza coreográfica inagotable. Antonio murió en febrero de 1994 a la edad de sesenta y cinco años.
+ Irene Amuchástegui (Publicado en la revista La Maga. Marzo 1994)
+ Podemos verlo al Maestro Todaro practicando con Milena Plebs y mostrándole la diferencia al bailar distintas orquestas
+
+<iframe src="https://www.youtube.com/embed/N9dE-mxvtbI?feature=player_embedded"></iframe>

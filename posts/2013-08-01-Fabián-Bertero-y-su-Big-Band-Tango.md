@@ -1,0 +1,35 @@
+---
+title: "Fabián Bertero y su Big Band Tango"
+date: "2013-08-01"
+original_url: https://tangosalbardo.blogspot.com/2013/08/fabian-bertero-y-su-big-band-tango.html
+labels: ""
+---
+
+Es la orquesta dirigida por este violinista, compositor, arreglador, con un concepto renovador y a la vez clásico, respetuoso de los grandes que hicieron el camino. Da verdadero gusto ver y escuchar a Fabián Bertero manejando su instrumento y codeándose con próceres de la cuerda.
+
+Pero, a la vez ha sabido conjuntar a sus músicos para lograr un sonido refinado y de llegada larga y profunda. Lo contratan permanentemente en Teatros, en *Los 36 billares*, donde tuve la suerte de estar presente para deleitarme y aplaudirlo, en giras y en Festivales de Tango.
+
+
+Precisamente el crítico musical del Diario *Clarín*, Andrés Casak, que los vió y apreció recientemente en un concierto, dejó escrito:
+"*Eminentemente rítmica ybailable, sin perder el sentido de música y concierto...los pasajes más destacados estuvieron marcados por la obra del director...la orquesta se mostró con un ensamble ajustado y preciso. El cierre del concierto con Tierra querida (Julio De Caro) y Cara Sucia (Franciaco Canaro) no dejó espacio para la distracción.*"
+
+Los genes influyeron porque todos los descendientes, desde el bisabuelo, y una lunga familia piamontesa que se instalaron en la colonia de un pueblo santafesino, llamado mágicamente: Esperanza, se dedicaron a la música. Y allí sonaban flautas, bandoneones, violines y hasta había alguna ración de mandulinatta para recordar los orígenes.
+
+A Fabián le colocaron un violín entre sus manos y peregrinaba a Buenos Aires para tomar clases nada menos que con el maestro Ljerko Spiller. Y ya instalado en la Capital, olfateando el tango, pero dedicado a la música clásica, continuó sus experiencias previas de violín solista en las Sinfónicas de Santa Fe y Entre Ríos y en 1989 lo enrolaron en la Filarmónica de Buenos Aires y 1990 en la orquesta estable del Teatro Colón.
+
+Afortunadamente para la música ciudadana, el tango que le inocularon su padre y su abuelo, le permitió costearse una vida de recién casado, en una de las crisis que cada tanto sacuden al Cono Sur. Y ahí anduvo, foguéandose con Daniel Binelli, Con Osvaldo Piro, Leopoldo Federico, tango de prima que en su instrumento sonaba goloso. Y en medio de una inflación asfixiante, Carlos García lo engancha en su orquesta y viaja por primera vez a un Japón económicamente floreciente.
+
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjwWFECmB8hRo_Wbpy6_tBPjLdpILlhaqo97VkhheTZ8efI_t6Vs4uJUZIlj5lvDLlBJY1H9vyc87jI2cel_zHRGOJdqHB9HWTYIm2YZl9Tw3I0ZtKM6AvTxGJ1UNCV1uppMy0DE5G98tY/s400/_Bertero4.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjwWFECmB8hRo_Wbpy6_tBPjLdpILlhaqo97VkhheTZ8efI_t6Vs4uJUZIlj5lvDLlBJY1H9vyc87jI2cel_zHRGOJdqHB9HWTYIm2YZl9Tw3I0ZtKM6AvTxGJ1UNCV1uppMy0DE5G98tY/s1600/_Bertero4.jpg)Será la primera de las siete estancias en el país del Sol naciente, porque seguirá yendo y rebibiendo parabienes de los oídos expertos de melómanos tangueros nipones. Y mientras se gradúa haciendo arreglos a lo bestia, acompañando a estrellas como Libertad Lamarque y el *Polaco* Goyeneche en su carácter de violín solista dentro de la orquesta de Carlitos Buono o en la estable del local, recorre Europa con el Quinteto de Fernando Marzán y así conoce las mieles del reconocimiento en Francia, Finlandia, Suecia, Lituania, Israel, Martinica, Japón, Dinamarca y Chile.
+
+Se codeó con los grandes violines de su época, compartiendo atriles con Fernando Suárez Paz, Antonio Agri, Mauricio Marcelli, Ariel Spandrio, Mario Abramovich o Raúl *Finito* Domínguez. Este último le pasó muchos secretos de su militancia en las filas de Di Sarli, Basso y Rotundo. Este tono orquestal de época, de época gloriosa, también se fue metiendo en sus venas y así Fabián Bertero nos puede sorprender con un tango sinfónico o un tango bien milonga para gastarse las tabas.
+
+Y entonces enfoca el futuro en su gran creación: *La Bertero Big Band tango* que intenta superar las limitaciones económicas que implica tener una orquesta estable de 15 personas, cuando el Estado nunca apoyó este tipo de actividades artísticas, que representan nuestra música con gran dignidad en el mundo. Pero los sueños sueños son, decía Calderón de la Barca y por algo Fabián es descendiente de esforzados inmigrantes y nació en un lugar llamado Esperanza.
+
+ [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhPyIodyiz1tKZMy7M7JURr9isTIKrhMZSCK0uRe7DsuiMp62Wn3V7UMmcZ_m5KNfQ866jUMNMjbYVSTVtkXlB8baZfPLwGN5Il8anys5fK_-VEbU2xh3DaclVr9rphwzBwprUJp_pTeco/s400/general+no+tan+liviana.png)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhPyIodyiz1tKZMy7M7JURr9isTIKrhMZSCK0uRe7DsuiMp62Wn3V7UMmcZ_m5KNfQ866jUMNMjbYVSTVtkXlB8baZfPLwGN5Il8anys5fK_-VEbU2xh3DaclVr9rphwzBwprUJp_pTeco/s1600/general+no+tan+liviana.png) La Bertero Big Band Tango al completo. Un lujo.
+Él pondrá su talento, su fervor, su trayectoria vital y su sueño del pibe. Lo demás lo harán las grabadoras, los productores y la fuerza de su hinchada que espera cada aparición de la orquesta para deleitarse con la calidad del tango que emana de ese violín y de los integrantes de su Big Band. Que son: Violín solista, arreglos y dirección: Fabián Bertero. Primer bandoneón *Pocho* Palmer y completan la fila: Bruno Longoni, Santiago Cirmi Obón y Simone Tolomeo. Violines: Laura Bertero, Manuel Quiroga, Emanuel Taper, Gustavo Bertero. Viola: Carlos Ghiraldi. Violoncello: Diego Sánchez. Piano: Adrián Enríquez. Contrabajo: Nicolás Zacarías y canta (muy bien) Alfredo Pittis.
+
+ [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhVA5D1cN4T34xMD6U84h1l6im1L_E_mhgIOS1XDIsX2AUGD_gV8DE32yzlfp2Hl4IAXSTVjSL8UOpP2nZdtBDahfrSFg5QhhaNjnktvGjZGJdSft30LIKyXr8tSPhXNcP1wPSc1GEjcIw/s320/FABIAN_BERTERO_Y_HORACIO_FERRER.JPG)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhVA5D1cN4T34xMD6U84h1l6im1L_E_mhgIOS1XDIsX2AUGD_gV8DE32yzlfp2Hl4IAXSTVjSL8UOpP2nZdtBDahfrSFg5QhhaNjnktvGjZGJdSft30LIKyXr8tSPhXNcP1wPSc1GEjcIw/s1600/FABIAN_BERTERO_Y_HORACIO_FERRER.JPG) Fabián con Horacio Ferrer  Su último CD rubrica la categoría de la orquesta. Contiene 16 temas y en uno de ellos: *Balada para un loco,* está la voz de Horacio Ferrer, su autor y padrino artístico de la orquesta. Sacamos dos temas del mismo al voleo, porque son todos muy lindos y escuchamos *Cara sucia*, el tango de Canaro, en una versión algo salganiana, con hermoso arreglo. Y la *Milonga de la calle,* del propio Fabián, donde, de repente se instala en el imaginario, un afán de vehículos y de gentes nerviosas desfilando por las calles porteñas.
+
+[12- Cara sucia - Fabián Bertero](http://sdrv.ms/141GRQI)
+
+[8- Milonga de la calle - Fabián Bertero](http://sdrv.ms/141H0Ui)

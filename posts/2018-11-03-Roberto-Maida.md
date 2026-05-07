@@ -1,0 +1,30 @@
+---
+title: "Roberto Maida"
+date: "2018-11-03"
+original_url: https://tangosalbardo.blogspot.com/2018/11/roberto-maida.html
+labels: ""
+---
+
+Fue un destacado cantor en la etapa del 20 al 40, con un estilo basado fundamentalmente en Carlos Gardel, de quien se hizo muy amigo en Europa. Allí nació Roberto Maida, en un pueblito de Catanzaro y sus padres emigraron con él a Argentina, cuando tenía un año de edad, instalándose en el porteño barrio de Balvanera, donde 4 años más tarde nacería su hermano Antonio que también destacó como cantor.
+
+El padre solía entonar las canciones de su tierra y fue el estímulo para que sus hijos lo hicieran en el país de acogida.. Roberto cantaba con los muchachos de su barra de amigos y un día lo escuchó un profesor de canto en el boliche donde se reunían y daba rienda suelta a sus gargueros. Sería quien le conseguiría una cita para cantar en el cine 2º Coliseo, que estaba en Bernardo de Yrigoyen y Venezuela.
+
+Allí arrancó su carrera artística, prolongada en el Select Buen Orden y en el Teatro Astral. En este último preestrenó **Esta noche me emborracho**, de Discépolo, con la orquesta del Teatro, antes que lo consagrara Azucena Maizani. Ya su nombre comenzaba a sonar en el ambiente y Cátulo Castillo andaba buscando un vocalista para la orquesta que estaba formando con vistas a una gira por España.
+
+
+Maida tenía entonces 20 años y a Cátulo se lo recomendó su padre, que lo había escuchado precisamente en el teatro Astral. En la orquesta que viajaba a Europa en 1928 estaban los tres hermanos Malerba (Alfredo, Ricardo y Carlos), Miguel Caló, Estanislao Savarese, Pablo Enrique Flores y Cátulo -pianista y director-. Actuaron en Barcelona, Madrid y Sevilla con gran suceso. Incluso se publicaban varias revistas de tango y una de ella titulada: "El Tango de moda" (Diciembre de 1928) muestra en portada la foto de Roberto Maida con un epígrafe que decía: "El aplaudidísimo cantor de la orquesta de Cátulo Castillo, creador indiscutible de la canción criolla en España"
+
+Allí grabaría con la orquesta varios temas: *Que vachaché, esta noche me emborracho, Ché papusa oí, Caminito del taller, Por el camino, Caminito, Malevaje, Victoria, Cachadora, Mama yo quiero un novio, Viejo ciego *y *Pa'que volvés*. Además, con Cátulo al piano y un guitarrista uruguayo, dejó el acetato del tango: *Suerte loca*. En 1930 Cátulo resolvió dar por concluída la gira, disolvió la orquesta y regresaron a Buenos Aires, donde Maida registraría 22 composiciones para el sello Columbia, acompañado por la orquesta de Alberto Castellano. También grabó estribillos, a la usanza de la época, con las orquestas de Francisco Canaro y Pedro Maffia.
+
+ [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgGlJhkO2pxPt_544gAYGIzVQ80qZjcQTm1TZaVE1tntC2rgTdqyALOesLIx2TUepKHF3DZNEpaZco6n_iGijaWw9LR3qsdpTZ7El8aMf1AGxzNrTOfgC9OjR7iq39I6xilhSgGEHEnu9Cl/s400/canaro-maida.png)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgGlJhkO2pxPt_544gAYGIzVQ80qZjcQTm1TZaVE1tntC2rgTdqyALOesLIx2TUepKHF3DZNEpaZco6n_iGijaWw9LR3qsdpTZ7El8aMf1AGxzNrTOfgC9OjR7iq39I6xilhSgGEHEnu9Cl/s1600/canaro-maida.png) La orquesta de Fancisco Canaro en Montevideo. Maida está junto a Minotto
+
+Se incorporaría al elenco de revistas del Teatro Sarmiento, que dirigían Manuel Romero y Bayón Herrera, y en la que estaban Pedro Quartucci, Sofía Bozán y Gloria Guzmán, entre otros artistas. Con dicho elenco volvería a Europa en 1931. Al finalizar los contratos, y ya con una fama acumulada, se largó como solista y lo contrató un tiempo Manuel Pizarro para cantar con su orquesta en *El Garrón*, de París. A Gardel lo había conocido en Barcelona y volverían a verse, porque eran vecinos en la capital francesa, manteniendo una relación muy amistosa. Incluso Gardel le grabó el hermoso tango de Maida y el violinista Juan Ghirlanda: **Aquellas cartas**, en dos oportunidades, en Barcelona y Buenos Aires.
+
+También cantaría con Eduardo Bianco y viajaron en largas giras por varios países de Europa. En 1930 había comenzado a cantar con la orquesta de Francisco Canaro y, salvadas las ausencias por sus viajes- retornaría con este conjunto y entre ese año 30 y diciembre de 1938 dejó con esta formación, nada menos que 184 registros discográficos. Entre ellos algunos que en estos últimos años se pusieron de moda en las milongas de medio mundo, como:** Poema, Invierno, Casas viejas, Yo también soñé, Silueta porteña, Envidia, Viejas alegrías, Milonga triste, El adiós, Milonga brava, Nada má**s y otros.
+
+ [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhczQB36QH53NpeBJo7C2qZhBHvQuLl6XrCdJsjj2oL6EOjS5fanw9dciw_XXaLtmT_46DLH5L7AuW0IUgWlBac2_Sx4_Bwl80seN2RyABmSPOvbcUQWvxvRGyx425OAs7aU_rGYF3TI1P8/s320/Maida-Troilo.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhczQB36QH53NpeBJo7C2qZhBHvQuLl6XrCdJsjj2oL6EOjS5fanw9dciw_XXaLtmT_46DLH5L7AuW0IUgWlBac2_Sx4_Bwl80seN2RyABmSPOvbcUQWvxvRGyx425OAs7aU_rGYF3TI1P8/s1600/Maida-Troilo.jpg) Roberto Maida, Miguel Caló, Aníbal Troilo y Cayetano Puglisi
+En el funeral por la muerte de Carlos Gardel, realizado en el Luna Park, se unieron las orquestas de Francisco Canaro y Roberto Firpo e interpretaron el tango *Silencio*, que entonó con mucha emoción Roberto Maida. El cantor tendría su propia orquesta dirigida por Argentino Galván, actuaría en radio y confiterías, recorrería países de América en largas giras con sus guitarristas y dejó un recuerdo muy grato.
+
+Podemos recordarlo en este tango de Charlo y Cadícamo: **Viejas alegrías** que grabó con la orquesta de Canaro, el 27 de mayo de 1937. Como era costumbre, canta solo el estribillo.
+
+[Viejas alegrías- Francisco Canaro-Roberto Maida](https://www.dropbox.com/s/i1dsdak1dftdm8h/Roberto%20Maida%20%26%20Francisco%20Canaro%20-%20Viejas%20alegrias%20-%201937.mp3?dl=0)

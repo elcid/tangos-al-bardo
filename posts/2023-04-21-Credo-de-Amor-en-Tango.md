@@ -1,0 +1,28 @@
+---
+title: "Credo de Amor en Tango"
+date: "2023-04-21"
+original_url: https://tangosalbardo.blogspot.com/2023/04/credo-de-amor-en-tango.html
+labels: ""
+---
+
+**M**e preguntás amor mío, pequeña mía, qué es Tango, y yo duende del asfalto, te digo:
+Creo que Tango es eso que provoca un clavel en mi solapa cuando no tengo ni para claveles, y voy a verte.
+En lo alto de los andenes una paloma se muere del todo por ése que muere un poco esperando a quién no llegó. Creo que eso es tango, querida.
+Y es tanguista el gato calavera que se burla de la solterona, pero que no la abandona jamás.
+Y es Tango el timbre que suena en una casa vacía, y también son Tango los ojos del que llamó y se va, y se va...
+¡Ay!, ese verso que parece dicho anteayer, aunque jamás fue dicho, es Tango
+Y creo que es Tango un empujón de ala en todo lo humilde que nunca será alado.
+Y es la primera sonrisa del que alcanzó la otra orilla de un mar de llanto.
+Y creo que es Tango aquel silencio de semicorchea en que se rozaron, temblando, por primera vez , tu mano con la mía.
+
+Creo, mi amor, que el Tango renace a diario posado en el horizonte subiéndose los abismos del crepúsculo.Porque el Tango dicho al rayo del sol es como el saludo de un sordomudo con muñones y sin nadie a quien saludar. Forastero del día llega el Tango sobre el lomo del primer colectivo que ha encendido las luces, y la nochecita le tiende su pálida mano caliente para que baje y baile. Los pájaros que celebran asambleas en los árboles del poniente son los monaguillos que anuncian el oficio de tinieblas del Tango.
+El Tango desayuna con medias lunas de pura luna que él moja en café con leche de veras.Y sólo se va a dormir el Tango cuando antes que todos los gallos de Buenos Aires canta cierto gallito de latón que mira al Sur por siempre en la más alta cornisa del alma nuestra. Y también es Tango, querida, cada amanecer por detrás de tus hombros cuando conozco mis noches más perfectas.
+Creo que el Tango es un náufrago de la ciudad, pero el náufrago de mayor aliento.No es triste el Tango sino serio porque lo dice el alma en todos sus tonos, aunque siempre el alma con un rastro de re menor en clave.Retrata el Tango lo mismo a los seres comunes que a los aventurados, a los malditos, a los chiflados o a los santos, y es trágico, guiñador, pinturero, pendenciero, volador o melancólico; lo que nunca ha sido es indiferente.Pero son amargos los tangos supremamente hondos, como es de amargo el mejor mate y el mayor suspiro del amante bienamado que anda con ausencia puesta. Igual que el Amor, como más llega y estremece el Tango e a menos de diez metros o a más de diez mil kilómetros.
+El Tango canta con su bandoneón, aquel pájaro wagneriano que extravió el pasaje de regreso porque presintió que en Buenos Aires iba a nacer Pichuco. Cuando los bandoneones tocan cerrando y curvan sus fueyes muestran las ojeras del TangoTan joven es el bandoneón que tuvo que arrugarse un poco para que lo dejaran participar en la ceremonia de la música.Toco el bandoneón en los botones de tu blusa y bailan Tango en el cielo.
+
+Creo que el Tango es esa hora azul en que los domingos dejan de alborotar y se agravan de lunes.¡Qué bien le queda el Otoño al Tango, y a tu largo pelo de criolla tan rubia!Y esos alegrones sin motivo ¿viste? pececitos de oro en las profundidades de la vida, son Tango.Y es tangueado el son de la lluvia sobre el techo, cuando el techo queda sólo sostenido por nuestras miradas.Porque también son Tango esas lluvias brujas y bravas que llueven de abajo para arriba elevando al amor hasta los bordes de la tormenta, amor mío.
+Creo que el Tango es una cara que no reflejan los espejos de los cafés.Y las patas de las sillas dadas vueltas sobre las mesas de los bares del alba señalan en el cielo porteño la ubicación astral de las cuatro corcheas del compás tanguista. De nada tiene que ser absuelto el Tango; la que tiene que hacer penitencias es su ciudad.Porque el Tango es hasta el piadoso telefonista que nos comunica con todo lo difunto que ya no tiene voz ni tiene para cuenta de teléfonos.Y creo, mi amor que dentro de ciertos tangos indeclinables, encuentra uno trazadas las únicas calles que van al Más Allá de Buenos Aires, donde una noche yo iré a esperarte.
+En el lacerante olvido de todo, creo que es Tango el presagio de todo aunque todo sea más difícil que antes.Y ese bagual de latidos que se arrea por el pulso y se doma y no se doma, es Tango.Y es Tango la zafra de desencuentros que fermenta en el sótano de una esquina, siempre que esa esquina haya provocado una vez el encuentro más bonito.Y cómo canta tangos el agujero de mi zapato, ojo de presa ¡sí!, en todas las calles que guardan pasos tuyos, querida.Y es Tango la modesta mesa familiar que daba Mamá trepada a la parva de la ropa limpia, blanqueándola todavía más con el comentario de su corazón.
+Creo que Tango es aquel abrazo que nos dimos sin saber si era el último, ¡ay!, amigo del alma.Y es Tango la atareada melancolía de los viejecitos que destejen sus vidas en las plazas.Y es Tango la aurora, pero muy atacada de fantasmas.Y es Tango un frenesí de bocinas en el atardecer cuando no me encontrás y me seguís buscando, amor mío.
+Tango es algo que la noche silba y no está en ningún repertorio.Y esas voces que murmuran en el oído de nuestros sueños como una glosa de aparecidos, son Tango.Y es Tango la danza que hará el último piropo con el postrer suspiro.Y creo que Tango es algún síntoma de canción de cuna en el día final.
+Horacio Ferrer (En Buenos Aires, era el otoño de 1979)

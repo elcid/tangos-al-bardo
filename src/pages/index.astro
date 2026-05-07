@@ -1,21 +1,36 @@
 ---
+import BaseLayout from '../layouts/BaseLayout.astro';
+import { getCollection } from 'astro:content';
 
-import posts from '../data/posts.json';
-import Layout from '../layout/Layout.astro';
-import slugify from '../lib/slugify';
-
+const PAGE_SIZE = 50;
+const allPosts = await getCollection('posts');
+const sorted = allPosts.sort((a, b) => b.data.date.localeCompare(a.data.date));
+const pagePosts = sorted.slice(0, PAGE_SIZE);
+const totalPages = Math.ceil(sorted.length / PAGE_SIZE);
 ---
 
-<Layout title="Tangos al bardo">
-	<main class="wrapper">
-		<h1>Tangos al bardo</h1>
-		<ul class="post-list">
-			{posts.map(p => (
-				<li>
-					<a href={`/posts/${slugify(p.title)}/`}>{p.title}</a>
-					<time>{new Date(p.date).toLocaleDateString('es-AR')}</time>
-				</li>
-			))}
-		</ul>
-	</main>
-</Layout>
+<BaseLayout pageTitle="Tangos al bardo">
+  <h2 class="page-heading">
+    Todos los artículos — página 1 de {totalPages}
+  </h2>
+
+  <ul class="post-list">
+    {pagePosts.map((p) => {
+      const [y, m, day] = p.data.date.split('-');
+      const meses = ['enero','febrero','marzo','abril','mayo','junio',
+                     'julio','agosto','septiembre','octubre','noviembre','diciembre'];
+      const fecha = `${parseInt(day)} ${meses[parseInt(m)-1]} ${y}`;
+      return (
+        <li>
+          <span class="date">{fecha}</span>
+          <a href={`/posts/${p.slug}/`}>{p.data.title}</a>
+        </li>
+      );
+    })}
+  </ul>
+
+  <div class="pagination">
+    <span></span>
+    {totalPages > 1 ? (<a href="/page/2/">Más antiguos →</a>) : <span></span>}
+  </div>
+</BaseLayout>

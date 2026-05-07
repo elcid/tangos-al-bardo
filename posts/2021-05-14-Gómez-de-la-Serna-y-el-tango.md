@@ -1,0 +1,14 @@
+---
+title: "Gómez de la Serna y el tango"
+date: "2021-05-14"
+original_url: https://tangosalbardo.blogspot.com/2021/05/gomez-de-la-serna-y-el-tango.html
+labels: ""
+---
+
+El famoso escritor vanguardista español Ramón Gómez de la Serna, famoso por sus Greguerías, fundador de la Peña literaria en el madrileño café Pombo, llegó a la Argentina en 1936, huyendo de la guerra civil. Allí se uniría con la escritora argentina Luisa Sofovich, separada y madre de un hijo. En 1925 la revista Martín Fierro de Buenos Aires le dedicó un número homenaje, con firmas de Borges, Hidalgo, Güiraldes, Girondo y Macedonio Fernández.
+
+Gómez de la Serna pudo editar varios libros en Argentina, colaboraría con numerosas publicaciones, aunque La Nación y El Mundo le cerraron sus páginas por un elogio que le haría al gobierno de Perón. Le gustaba mucho el tango y especialmente los versos y escribió elogiosamente sobre el género, publicando un libro. Falleció en 1963 y sus restos fueron enviados en avión a Madrid para ser sepultado en la capital de España.
+
+Hoy lo recuerdo en estas diez greguerías, que sintetizan su gran estilo de escritor y también lo que significaba el tango para él.    -La letra de los tangos es hija de los aedas del arroyo, mezclando sentimientos contrarios ennoblecidos siempre por la desesperanza.   -Mezcla todo en estilo telegráfico, en relato atropellado de quien presta declaración con la faca clavada en el alma.    -Es el desahogo de un pueblo bohemio frente a los polichinelas llenos de dinero.   -Con sobriedad admirable cuenta el Tango el novelón del mal ajen   -El Tango toma en serio el motivo que invoca, llora el dolor y después vienen unos pasitos burlones, un traspiés grotesco, un juego en el dolor, un hacer chacota tarareada con su propio sentimentalismo.    -No hay prosa versificada como la del Tango. Se ciñe a lo próximo, a lo más veraz y tiene extravíos románticos en paisajes inmensos. Se ve que estos ciegos de la inmensidad nueva necesitan lazarillos musicales.   -Las letras desmonotizan lo que la música puede tener de repetido, aunque para un buen catador es siempre diferente la partitura.    -Esa ráfaga de cosa africana que va por las oscuras cuevas de la negrería hace que en Norteamérica al son de una orquesta de Jazz se escuchen parecidas letras a las de los tangos y milongas, aunque sin la poesía de lo argentino.    -No se le encuentra lo que tiene de italiano porque no lo tiene, porque es la superación del italiano, que al llegar a la Argentina abandona la melodía y entra en el barroco de tipo español -de pelo negro- y por ende en lo criollo, y pega en él porque el italiano quizá desde hace siglos tenía el deseo de lo desparejo, de lo prosaico versificado, del romper la lindura.    -¿Cómo ha podido Borges decir: Tango sin salida y cobarde bandoneón?
+
+-El Tango no es incivilizado porque es poético.

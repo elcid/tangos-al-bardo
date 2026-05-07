@@ -1,0 +1,32 @@
+---
+title: "El Tango es cultura"
+date: "2019-04-12"
+original_url: https://tangosalbardo.blogspot.com/2019/04/el-tango-es-cultura.html
+labels: ""
+---
+
+Va siendo hora que se le reconozcan los méritos a la música popular que en Argentina y Uruguay lleva alimentando la memoria y el paisaje ciudadano desde hace más de 130 años. Es cierto que ha tenido altibajos pero una y otra vez ha renacido con más fuerza, y después de esos inviernos en que otros géneros y el desinterés de gobiernos y discográficas lo van opacando, retorna con bríos primaverales, y con la polenta vital de las viejas y eternas grabaciones que demuestran cotidianamente su clase ancestral.
+
+Hce muchos años que el tango se expandió por toda América y ganó el corazón de europeos y japoneses. Pero hoy día se ha extendido y ramificado como nunca antes, y se baila se toca y se canta en casi todo el mundo. Las milongas multitudinarias de los años cuarenta/cincuenta en Argentina, han encontrado su réplica infinita y ya no sorprende el nivel de muchos milongueros de Rusia, Turquía, Estados Unidos, Canadá, China o Japón, y de tantos otros lugares del mundo.
+
+ [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEju9QR_MT_pA0puIk6eihvMZTZs2EiD8YsYDmc6TpIAjFCo6Ic8xntYDLcRMp82wqq1iVZV-4dZSuyjCi8z5atACOWu4IvYa49uzzcnf8bvLmKg8e5aNzB4fgkwrA0UYHcdDFAblJ_ptYsG/s400/Milonga+China.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEju9QR_MT_pA0puIk6eihvMZTZs2EiD8YsYDmc6TpIAjFCo6Ic8xntYDLcRMp82wqq1iVZV-4dZSuyjCi8z5atACOWu4IvYa49uzzcnf8bvLmKg8e5aNzB4fgkwrA0UYHcdDFAblJ_ptYsG/s1600/Milonga+China.jpg) Milongueros chinos bailando en un barrio de Pekín
+La música de Astor Piazzolla ha encontrado eco en orquestas sinfónicas que interpretan sus tangos en Teatros no habituados a este tipo de música. Hay orquestas rusas, turcas, norteamericanas que imitan los estilos de Pugliese, D'Arienzo, Di Sarli. Bailarines de ambos sexos, formados en la escuela del ballet, se han volcado a la secta tanguera porque el baile de pareja es único, impactante en este tipo de género popular.
+
+Maestros argentinos de ambos sexos viajan permanentemente por infinidad de países, impartiendo clases de esta danza y haciendo notar su trabajo en el resultado final, en muchos casos. Como el de Sebastián Arce y Mariana Montes en Rusia. La misma Mariana Montes, Miguel Ángel Zotto, Daiana Gúspero, Aoniken Quiroga, Alejandra Mantiñán en Italia. Podría nombrar muchos otros casos pero dejo estos nombres en Rusia e Italia como ejemplo.
+
+Precisamente fueron los italianos quienes llevaron a Félix Picherna como discjockey y lo pasearon por todo el país, musicalizando milongas y festivales. De este modo fue sembrando conocimientos, sabiduría sobre el oficio y preparando el terreno en los años noventa para la revolución que llegó con las nuevas hornadas de milongueros y musicalizadores. La obra de Picherna evitó los errores que se cometieron en otros países europeos por colegas novatos y desconocedores de las orquestas bailables.
+
+
+**La cumparsita, el Choclo, A media luz, Nostalgias, Mi Buenos Aires querido**, **Cambalache**, son páginas legendarias que recuerda todo el mundo, porque las cantaban, bailaban o silbaban sus padres, sus tíos, sus abuelos. Pero con la gran revolución y propagación del tango, ahora Osvaldo Pugliese, Juan D'Arienzo, Carlos Di Sarli, Aníbal Troilo, Ricardo Tanturi, Miguel Caló, también son nombres familiares para muchas personas que abrazaron la causa de la danza del tango y tienen incluso sus orquestas preferidas para bailar en otros países lejanos.
+
+La poesía es una de las tres patas del género. Ese fugaz instante del verso, cantado por tantos intérpretes brillantes, es también un toque al corazón y deja su poso en la marea de la melodía. Hubo poetas maravillosos que unieron su destino al tango, como Homero Manzi, Cátulo Castillo, Homero Expósito, Alfredo Le Pera, Enrique Santos Discépolo, Francisco García Jiménez, Enrique Cadícamo, Celedonio Flores y muchos vates que orlaron el destino del mismo. Como los que les fueron sucediendo: Eladia Blázquez, Horacio Ferrer, Héctor Negro y otros.
+
+Quién, en el mundo no repitió alguna vez aquello de: "*Que es un soplo la vida. que veinte años no es nada...*". O *"Primero hay que saber sufrir, después amar, después partir, y al fin andar sin pensamiento...*". "*Hoy vas a entrar en mi pasado..."*. "*Tus ojos son oscuros como el olvido, tus labios apretados como el rencor...*". "*Igual que en la vidriera irrespuosa de los cambalaches se ha mezclao la vida...*". "*Y es todo, todo, tan fugaz, Que es una curda, -nada más- mi confesión"... *Y podríamos recordar esos octosílabos golpeadores de Pascual Contursi:* "Percanta que me amuraste", *y Celedonio Flores;* "Rechiflao en mi tristeza".*
+*** *
+
+Las películas de Carlos Gardel llevaron el espíritu del tango a todos los rincones y abrieron puertas, desnudaron la poesía que encerraba, transmitieron sentimientos, el aire de nostalgia y pasión que genera. Eduardo Arolas y Agustín Bardi en aquella etapa iniciática del tango, parieron páginas maravillosas, invencibles al paso del tiempo. El edificio instrumental que armaron con los Delfino, Cobián, Fresedo, De Caro, sirvió de sustento a todo lo que vino después y cimentó las futuras hornadas que harían historia y dejarían un legado invalorable que nos sigue iluminando, empujando en la pista, compensándonos de las malas noticias. Vale la pena recordar, con ellos, a los brillantes compositores que ha tenido y también a los grandes arregladores que embellecieron tants páginas.
+
+El tango es ARTE. Por todo lo que encierra en su prontuario y su espíritu. Por la música, el verso y la danza.Casi nunca ha tenido el apoyo de los que manejaron la cultura, debió soportar la invasión de fugaces ritmos extranjeros que fueron respaldados por las casas discográficas, en detrimento del género nacional. Pero termina ganando todos los combates y retornando pleno de salud y energías, mientras las musiquitas que lo relegaron cayeron en el olvido. Algún día ocupará el lugar que merece en los despachos ministeriales, en clases de música y en el Teatro Colón que se dignó abrirle circunstancialmente sus puertas con un éxito rotundo..
+
+
+De momento sigue ganando batallas porque el ARTE y la CULTURA siempre terminan imponiéndose a las modas, y el Tango está en el corazón no sólo de los rioplatenses, sino también de grandes legiones de tangueros y milongueros de todo el mundo. Como dijo Leonardo da Vinci: *"La belleza perece en la vida pero es inmortal en el arte".*

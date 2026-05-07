@@ -1,0 +1,29 @@
+---
+title: "Julio Martel"
+date: "2013-09-17"
+original_url: https://tangosalbardo.blogspot.com/2013/09/julio-martel.html
+labels: ""
+---
+
+Es una de mis debilidades en el tango. Un cantor con voz chiquita pero bien modulada, muy musical. Barítono de buen gusto, que se adaptó maravillosamente a la triunfante orquesta de Alfredo De Angelis y ayudado además por su estampa de galán que tan buen resultado le dio. Era ídolo de las chicas jóvenes y la muchachada del 40 y sus condiciones le permitieron llegar al cine como galán-cantor.
+
+Martel (Julio Pedro Harispe) cantaba desde niño, su fraseo era natural como su buen gusto y el padre le hizo estudiar con un profesor, cuando a los 5 años le escucha cantar a la par de Corsini en una grabación discográfica. Llegados de un pueblo de la provincia de Buenos Aires situado en Junín, cuando Julio era un niño, el tango se le dio como algo natural, pero realmente interpretaba todo tipo de géneros.
+
+ Con 18 años canta en la orquesta característica de Juan Giordano, mostrando su ductilidad para hacer lo que cayera, incluso pasodobles, y es muy aplaudido. Dos años más tarde lo convencen para que se presente a una prueba en la orquesta de Alfredo De Angelis, que ha sufrido la baja de su cantor Héctor Morea, rechazado por la radio porque estaba quedándose calvo.
+
+La prueba fue en Radio El Mundo. De Angelis lo observaba desde la *pecera* haciendo el tango *Necesito olvidar*, y lo impresionó su voz y su desenvoltura. Lo eligió entre todos los aspirantes y ya es muy conocido que, al festejar el director, el nuevo cantor de la orquesta y el presentador y glosista Néstor Rodi, en el Bar *Mi Refugio*, que estaba al lado de Radio El Mundo (y donde compartí tantos momentos con gente del tango), Rodi vio una botella de Coñá* Martell* y decidió que se apellidaría así, artísticamente, aunque con una sola ele.
+
+ [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhcgvY41Qnbsc4E7XdxYTJpqIMAzxA7Bo-9XiX3NdeIxWdexmcU4y1e7Xpzk4NZ7_I1SE5UUW_cc1W2M2ji5NfrBEdNBmEsRScdo99nx2DmAh6uPQ0O2VuYZ7vllJLxfNAV-WitQqGlXv0/s320/escanear0010.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhcgvY41Qnbsc4E7XdxYTJpqIMAzxA7Bo-9XiX3NdeIxWdexmcU4y1e7Xpzk4NZ7_I1SE5UUW_cc1W2M2ji5NfrBEdNBmEsRScdo99nx2DmAh6uPQ0O2VuYZ7vllJLxfNAV-WitQqGlXv0/s1600/escanear0010.jpg) Néstor Rodi, Floreal Ruiz y Julio Martel en Radio El Mundo  El 1 de abril de 1943, la orquesta debuta en horario central en Radio El Mundo, cuando el artefacto radiofónico era el compañero de todas las horas en los hogares. Sus cantores son Floreal Ruiz y el novel Julio Martel que interpreta el tango de Hipólito Oneca y Armando Ferreyra: *Qué buena es*. Actuaban además en el *Café Marzotto* de la calle Corrientes que se poblaba de admiradores, dado que la orquesta tenía un gran tirón popular.
+
+Cuando Floreal se va con Troilo, De Angelis decide llamar a Carlos Dante, un veterano cantor que había viajado por Europa con varias orquestas, había estado con Caló, D'Arienzo, entre otras y además trabajaba como empleado de YPF. Tenía 38 años cuando debutan en el *Marzotto* y se forma la nueva yunta de cantores que sembrará éxito tras éxito y que terminaría siendo quizás el mejor duo de orquesta con 17 interpretaciones grabadas que fueron 17 pegadas.
+
+ [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhSAuWhmQa4ACySQw3toi1UONknnim5jEEKw7Ig3ep7MnUdsaplj72vpS6r7CrVRN1xnzDWLreBSnPZ8Q-hOLglS56FPHZtsfjvMeeo-bQSsfy_pEfJoZjK22gU-srWjkqfVoOYhiE0Hxo/s320/Foto2.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhSAuWhmQa4ACySQw3toi1UONknnim5jEEKw7Ig3ep7MnUdsaplj72vpS6r7CrVRN1xnzDWLreBSnPZ8Q-hOLglS56FPHZtsfjvMeeo-bQSsfy_pEfJoZjK22gU-srWjkqfVoOYhiE0Hxo/s1600/Foto2.jpg) Alfredo De Angelis y su yunta de cantores: Dante y Martel.  De Angelis fue como un padre para Martel, supo guiarlo y perdonarle sus travesuras, como cuando le llevó la partitura del tango de Edgardo Donato y César Córdoba:* Por eso grito*, que éste no quiso hacer. No le convencía el tema y le dijo al director: "*Alfredo...¿Porque no lo hace él...-*señalando a Dante*- qué soy, el hijo de la pavota*?". Y el director no sólo lo convenció, sino que además fue una muy buena interpretación de Martel.
+
+En el disco quedarían 63 interpretaciones que muestran ese estilo distinto, musical, íntimo de Julio, que se retiró de la orquesta en 1950, para buscar su futuro como solista, con guitarras y con orquesta, pero sin volver a alcanzar el nivel que tuvo en esa formación del* colorado* de Banfield. Estaba hecho indudablemente para ese estilo y quedó definitivamente marcado y aplaudido como cantor de Alfredo de Angelis en una etapa de sucesos maravillosos y éxitos de gran calibre.
+
+ [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEht12YZbtMbblA7c2pngQOCMa_EV0jr9x2ov6bctGTRJcurnDsV64DBBkhqmDtgUfPnurN4YOIlTpwDV8Sw_j1NSmENkbKGn862m5SuL8RGDm8PsLjCUscR4LEEp-IQGH0rxL_4fRq62sc/s320/escanear0012.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEht12YZbtMbblA7c2pngQOCMa_EV0jr9x2ov6bctGTRJcurnDsV64DBBkhqmDtgUfPnurN4YOIlTpwDV8Sw_j1NSmENkbKGn862m5SuL8RGDm8PsLjCUscR4LEEp-IQGH0rxL_4fRq62sc/s1600/escanear0012.jpg) Martel canta en el debut en El Germinal. El público agolpado rompió las vidrieras.  Me gusta escucharlo aunque alguna vez me ganara una apuesta, años más tarde en el Luna Park, en una pelea entre Ricardo González y Alfredo Bunetta. Para mí fue el mejor vocalista que tuvo la orquesta de Alfredo De Angelis, y en el mejor momento de la formación. Tanto para escuchar como para bailar.
+ Lo traigo en dos temas con De Angelis: el tango **Ivon** de Luis Visca y Horacio Sanguinetti, grabado el 30 de octubre de 1945. Y el vals **Esa noche**, de Tito Ribero y Carlos Waiss que llevaron al disco el 24 de mayo de 1946.
+
+[Ivon - A. De Angelis-Julio Martel](http://sdrv.ms/14YpkMw)
+
+[054- Esa noche - De Angelis-Julio Martel](http://sdrv.ms/1ekSgBu)

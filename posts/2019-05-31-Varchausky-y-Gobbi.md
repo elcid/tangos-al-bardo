@@ -1,0 +1,21 @@
+---
+title: "Varchausky y Gobbi"
+date: "2019-05-31"
+original_url: https://tangosalbardo.blogspot.com/2019/05/varchausky-y-gobbi.html
+labels: ""
+---
+
+## **Ignacio Varchausky: "La orquesta de Gobbi es la gran Enciclopedia del tango"**
+
+El músico revela los pormenores del material que dio origen a Gobbi inédito, el nuevo disco de la Orquesta Escuela Emilio Balcarce. Particularidades e influencias de la obra del mítico compositor y director.
+
+
+
+  En la gala de graduación de su decimocuarta camada, la Orquesta Escuela de Tango Emilio Balcarce interpretó diez temas recuperados de uno de los músicos más influyentes y maravillosos que dio el tango: Alfredo Gobbi. Producido por Ignacio Varchausky, fundador y director artístico de la formación, que está dirigida por su titular, Víctor Lavallén, y con la participación como invitado de Osvaldo Piro, la noche prometía ser inolvidable.  El disco ya lo es. "La escuela (que depende de la Dirección General de Enseñanza Artística del Ministerio de Cultura de la Ciudad) existe hace 18 años –explica Varchausky–. Desde el principio hemos tratado de codificar los elementos musicales y estilísticos que hacen al género, específicamente al lenguaje de la orquesta típica. Todos los capos con los que pudimos contar siempre pusieron todo su conocimiento, herramientas y archivos personales para que pudiéramos acceder a esos materiales, y transmitirlos a las nuevas generaciones”.  El contrabajista y director de El Arranque agrega: "Estudiar los estilos de las orquestas es la excusa para que los nuevos músicos pudieran practicar y entender el vastísimo repertorio de articulaciones y herramientas que tiene el tango. En ese contexto, la típica de Gobbi siempre fue la orquesta de todas las orquestas. Para muchos músicos del tango la orquesta de Gobbi es la gran enciclopedia del tango. Eso se debe a que no maneja una estructura mecánica que repite siempre los mismos elementos, sino absolutamente lo contrario: incluye elementos que tienen otros como D’Arienzo, Di Sarli, Pugliese, Piazzolla, y al revés: ellos incluyen elementos de Gobbi en sus orquestas. Escuchás la orquesta de Gobbi y es un sinfín de sorpresas, de detalles que te puede llevar toda una vida descubrir. Todo está en su lugar correcto y en su justa medida”.
+
+La fascinación de quien conduce desde hace años *Ayer hoy era mañana* (de lunes a jueves a las 23, FM 92.7), cuando uno escucha el disco se convierte en sentido de realidad: es de una exquisitez tan singular como la del mismo Gobbi, de quien se contó que era capaz de tirarse al piso para marcarle el movimiento y el apoyo de pies a los pianistas.
+
+"No es que nunca habíamos estudiado a Gobbi, por el contrario. Pero teníamos estas grabaciones tocando el piano a través de acetatos originales de la época; incluso hoy están en YouTube. Ese material lo presenta tocando otro instrumento, abajo del escenario, debajo de los estudios de grabación comerciales, tocando un instrumento que no era realmente su instrumento, contando cómo había compuesto sus temas; era la intimidad más pura, irreductible. Y nosotros hicimos nuestro mejor esfuerzo para tratar de respetar esa intimidad".
+
+Ese mejor esfuerzo consistió en varios músicos puestos a transcribir en partituras lo escuchado, para pasárselas a otros, que desde su propia escucha aprobaban, sugerían o modificaban lo que el colega había escrito para que luego eso pudiera ser grabado en *Gobbi inédito*. "Creo que lejos de armar un sonido enorme, brillante, nos acercamos a la idea que tuvo el propio Gobbi. Y los temas orquestales van de la mano".
+ Varchausky resume su satisfacción como académico y docente. "Cualquier persona que dedica buena parte de su vida a investigar una temática o un personaje tiene una vinculación, por un lado intelectual, por otro emotiva, pasa a ser parte de su vida: estas grabaciones me acompañan en su formato original desde hace 20 años. Que esté de por medio toda la juventud, la escuela Balcarce con alumnos y alumnas logrando un producto musical tan profesional es conmovedor. Significa un montón de cosas para la música argentina, para una tradición que pasa a otra generación, para la idea de que con un buen plan de trabajo las cosas salen bien". «   Por Belauza -TIEMPO ARGENTINO - (18 de noviembre de 2018)
