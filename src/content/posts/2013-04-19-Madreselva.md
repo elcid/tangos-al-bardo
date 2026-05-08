@@ -12,7 +12,7 @@ Este tango de Francisco Canaro y Luis César Amadori, lo compuso inicialmente Ca
 
 En sus *Memorias*, (pag. 198/199) Pirincho cuenta que en 1930 estrenó el famoso vals "*Yo no sé que me han tus ojos*", de su exclusiva auoría con enorme éxito, y al poco tiempo comenzó a sentirse mal, por lo cual visitó a varios médicos que no le encontraban remedio a sus problemas. Como al final el doctor Salomón, que lo atendía, le dijo que no tenía nada, resolvió irse a Rosario de la Frontera, a descansar con su señora y a tomar baños termales.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhLJ2-dbAvtIwOU0WxJoz1C2I7ZVcYK3ElIgiePu5FOfRdKZvF1-NsYaVUBopzufLT7biYBhmhVx8AnFCo28lmYrFNvcLUdECyV8hATH6YmOR7itpVVAdyDbIekQXNDE2qGotsaK_H4Yy0/s320/escanear0012.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhLJ2-dbAvtIwOU0WxJoz1C2I7ZVcYK3ElIgiePu5FOfRdKZvF1-NsYaVUBopzufLT7biYBhmhVx8AnFCo28lmYrFNvcLUdECyV8hATH6YmOR7itpVVAdyDbIekQXNDE2qGotsaK_H4Yy0/s1600/escanear0012.jpg) Año 1907. Feliciano Herrera, Canaro, Victorio Cejas y José Camarano en el Jardín Zoológico
+ [![](/tangos-al-bardo/images/5fdb27b6d788.jpg)](/tangos-al-bardo/images/abf95014a5e8.jpg) Año 1907. Feliciano Herrera, Canaro, Victorio Cejas y José Camarano en el Jardín Zoológico
 
 -*Antes de partir para las Termas me había encontrado con luis César Amadrori, destacado director cinematográfico y empresario del Teatro Maipo, donde actuaba una compañía de revistas, quien me pidió que le hiciera un tango para que él le pusiera la letra, y hacerlo cantar con la conocida cancionista Tania. Yo tengo uno escrito -*le dije*-, y creo que le va a venir bien; pero quiero que le ponga una letra bien que no sea arrabalera ni campera; que sea una letra bien porteña...*
 *

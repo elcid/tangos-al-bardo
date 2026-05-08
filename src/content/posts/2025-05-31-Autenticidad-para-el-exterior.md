@@ -10,7 +10,7 @@ tags: ["Horacio Salgán"]
 
 -Hablemos del tango en el exterior. Con la mejor intención, sin duda, se han hecho tentativas para adaptar el tango en su instrumentación, para complacer al público extranjero, agregándole saxofones, acordeón, trombones y otros elementos.
 
-![A los 100 años murió Horacio Salgán, una gloria del tango - El Territorio  Misiones](https://cdn.elterritorio.com.ar/img/1/156/9484547398646324_1.jpg)
+![A los 100 años murió Horacio Salgán, una gloria del tango - El Territorio  Misiones](/tangos-al-bardo/images/c78e8e6c5f04.jpg)
 
 Sin perjuicio de que apoyemos todo intento de renovación con bases serias para dar variedad al tango, creo que hay que aspirar a que se toque y se conozca en el exterior de la manera a que estamos acostumbrados. es decir, con la inclusión del bandoneón y conservando en todo lo posible un sabor porteño.
 

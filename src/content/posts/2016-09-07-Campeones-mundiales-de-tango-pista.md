@@ -17,7 +17,7 @@ Fueron dos semanas de intenso trasiego tanguero, con milongas, conciertos, pelí
 
 Aunque Melissa viva en Banfield, y Christian en Villa Ballester, se conocerían hace 4 años en una milonga del barrio de San Telmo y se engancharon bailando alguna tanda del *Rey del compás*. Cuando repitieron otra de D'Arienzo, se dieron cuenta que había algo que los unía. Christian se había dedicado al folklore y tomó clases para aprender a bailar tango y luego para perfeccionarse, siguiendo siempre ese consejo: "*Bailar con el corazón"*.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiBA9Px2OpMoc8m6w3evbPSLyepBUaUfVOD8r0_ZbSy014c-nNR1PWDMsj-wdDh9C5oNLgKLq2lS0KuH1u9_AHN68d8DLPb4sMcK31iwSuRWwn2RShuz_c7bSATS3iXFdFUV0ARz_ms9FLG/s400/Ganador+Palomo.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiBA9Px2OpMoc8m6w3evbPSLyepBUaUfVOD8r0_ZbSy014c-nNR1PWDMsj-wdDh9C5oNLgKLq2lS0KuH1u9_AHN68d8DLPb4sMcK31iwSuRWwn2RShuz_c7bSATS3iXFdFUV0ARz_ms9FLG/s1600/Ganador+Palomo.jpg) Palomo se desploma emocionado cuando escucha el veredicto del jurado
+ [![](/tangos-al-bardo/images/d1f2a4d07568.jpg)](/tangos-al-bardo/images/2ad83d37cc14.jpg) Palomo se desploma emocionado cuando escucha el veredicto del jurado
 
 Y tanto fue así, que cuando Fernando Bravo, el locutor oficial de la fiesta en el Luna Park, anunció que la pareja 506, había sigo consagrada ganadora del Mundial, con 9169 puntos, Christian se desplomó de rodillas y comenzó a llorar sin parar. Al final terminaría contagiando a su compañera, mientras su madre lo alentaba desde abajo.
 

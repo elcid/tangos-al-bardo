@@ -17,4 +17,4 @@ En 1918 graba *Flor de fango* (sobre la música de *El desalojo*, de Augusto Gen
  [Que querés con esa cara.Carlos Gardel ](http://www.mediafire.com/?6mkcwuunvcikjvc)  [
 ](http://www.blogger.com/goog_1156132548)  [La guitarrita. Miguel Caló](http://www.mediafire.com/?d533zkz8ac5wvrf)
  [La guitarrita. Juan D'Arienzo](http://www.mediafire.com/?lfw1s4e23xn80c9)
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgWdnIZglX44TnInOYt81nY1FTSDtW3IlEZVxbCFbuKyjz2ctoIRMmp6XqckF-eagCX1_2wZF05cQ0pfJcvnZbEZFzyxjvFzaVi35-KNZQjMNLHg1A10BXUgFtCddWG-EHxb5o4SGlHdr6u/s1600/Contursi.bmp)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgWdnIZglX44TnInOYt81nY1FTSDtW3IlEZVxbCFbuKyjz2ctoIRMmp6XqckF-eagCX1_2wZF05cQ0pfJcvnZbEZFzyxjvFzaVi35-KNZQjMNLHg1A10BXUgFtCddWG-EHxb5o4SGlHdr6u/s1600/Contursi.bmp)
+ [![](/tangos-al-bardo/images/b279c44e97f7.bmp)](/tangos-al-bardo/images/b279c44e97f7.bmp)

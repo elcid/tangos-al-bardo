@@ -12,13 +12,13 @@ Entró con paso firme entre los integrantes de la generación de 1910, luego de 
 
 Destacaría en orquestas como las de Roberto Firpo y Julio De Caro, nada menos. En la de Firpo hacía yunta con Juan Bautista Guido, "*El lecherito"* de Parque Patricios. y también formaban allí figuras de la talla de los violinistas Elvino Vardaro y Cayetano Puglisi y el contrabajista Ángel Corletto.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjb4y0NyM3sM4TGy8moSoDM5RThw2xG4opm5RCNiKuE8rRMuB1O2Jd9n2hITy0dhrw_rubqHriQKxTRW0eVQ3Do1bdZ2m_eQsfaCInvXGINIFtprl0risdQbiQ5MG6aTcQ-X1bc_-7geuc/s1600/escanear0016.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjb4y0NyM3sM4TGy8moSoDM5RThw2xG4opm5RCNiKuE8rRMuB1O2Jd9n2hITy0dhrw_rubqHriQKxTRW0eVQ3Do1bdZ2m_eQsfaCInvXGINIFtprl0risdQbiQ5MG6aTcQ-X1bc_-7geuc/s1600/escanear0016.jpg) Miguel Orlando de pie. Debajo Minotto y Juan Canaro
+ [![](/tangos-al-bardo/images/bdc7cc732252.jpg)](/tangos-al-bardo/images/bdc7cc732252.jpg) Miguel Orlando de pie. Debajo Minotto y Juan Canaro
 
 Para los grandes festejos carnestolendos de ese año veinticuatro, lo convocaría Julio De Caro, integrándose en una gran orquesta que tocaría en el Confitería *L'Aiglon *de la calle Florida. La increíble fila de bandoneones estaba formada por ocho* nenes* de primera: Pedro Maffia, Luis Petrucelli, Ricardo Brignolo, Miguel Orlando, Luis Minervini, Ángel Danesi, Luis D'Abraccio y Nicolás Primiani.
 
 Y no menos geniales eran los violines de Julio De Caro, Manlio Francia, Agesilao Ferrazzano o Antonio Arcieri. Una orquesta gigante que contaba con dos pianos, al frente de los cuales estaban Francisco De Caro y Roberto Goyheneche (que moriría al año siguiente con apenas 27 años). En contrabajo estaban el Negro Leopoldo Thompson y Olindo Sinibaldi.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgTAusOBlgRwnMns4QDynx-fptWGhVGLnwiy8vXN2cqSbUgEF7NHBwIrMlnU8-A_EHAXBYwNKAvqBJKw5M3vcnoMedY4k9nG6oUaxNnT7wrqzLMAmAlr8R-etHUUj6uJOenP-YQJOfUhhc/s1600/Canaro+en+el+Florida.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgTAusOBlgRwnMns4QDynx-fptWGhVGLnwiy8vXN2cqSbUgEF7NHBwIrMlnU8-A_EHAXBYwNKAvqBJKw5M3vcnoMedY4k9nG6oUaxNnT7wrqzLMAmAlr8R-etHUUj6uJOenP-YQJOfUhhc/s1600/Canaro+en+el+Florida.jpg) Orquesta de Francisco Canaro en el Florida de París.
+ [![](/tangos-al-bardo/images/49e14e13d1fb.jpg)](/tangos-al-bardo/images/49e14e13d1fb.jpg) Orquesta de Francisco Canaro en el Florida de París.
 
 Miguel Orlando pegó el salto rápidamente y una temporada después formaba su propio conjunto para actuar en el *Maipú Pigall* de Maipú y Corrientes. Alineó en la misma a Juan Bautista Guido a su lado otra vez; a Elvino Vardaro, Cayetano Puglisi, Rodolfo Biagi y el contrabajista Hugo Baralis (padre del que arrancaría con Aníbal Troilo en el Marabú).
 

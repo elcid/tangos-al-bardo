@@ -16,7 +16,7 @@ Es que no e puede tocar como si fuera un clavicordio; hay que emplear otro tipo 
 
 Yo diría que ni el diez por ciento de las notas que toco, las toco cerrando. Empleo el "cerrando" simplemente por una necesidad de respirar con la jaula, pero cuando tengo que cantar una melodía la tengo que cantar abriendo. De esa manera se goza mucho lo que se toca. Cerrando no se goza un comino; cerrando el bandoneón es cero, nada.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhliTRjiRIAKF1d8nYy03yn5qVzDe4ztab81yTTdlZlWv7hrqgPpTbl2MYi8OGHKiN5tuOnmHpfqgU4a0nh7u-ZwYp7blki005Gehrg8j8Tw4vzDHY1UoOzewwQYKvY-_mv5hJm2wwcyx4S9NKcq4gpjPFMBojsECXcTzFLWg0AsNSX6O_eKDDjinX_lBgS/s1600/SaavedraSin%20t%C3%ADtulo.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhliTRjiRIAKF1d8nYy03yn5qVzDe4ztab81yTTdlZlWv7hrqgPpTbl2MYi8OGHKiN5tuOnmHpfqgU4a0nh7u-ZwYp7blki005Gehrg8j8Tw4vzDHY1UoOzewwQYKvY-_mv5hJm2wwcyx4S9NKcq4gpjPFMBojsECXcTzFLWg0AsNSX6O_eKDDjinX_lBgS/s310/SaavedraSin%20t%C3%ADtulo.jpg)Guillermo Saavedra
+[![](/tangos-al-bardo/images/358397f2d80c.jpg)](/tangos-al-bardo/images/35dc035ee55c.jpg)Guillermo Saavedra
 
 Astor Piazzolla -sesenta y siete años al momento de esta nota, cuatro *by pass* recientes para que su corazón siga pulsando esa caja de sonidos milagrosos, sentado en un sillón en una tarde tormentosa, piensa que ha hecho lo que ha debido. Que su música ha tardado el tiempo necesario para llegar al alma de los otros. Cree en Dios, ama el mar, la pesca del tiburón, la tierra húmeda y las manzanas verdes. Afirma que, de vivir otra vez, sería otra vez bandoneonista. Que le gustaría, quizá, que eso ocurriera. Pero esa fáustica pretensión se explica por un afán perfeccionista:
 

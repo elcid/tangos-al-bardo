@@ -17,7 +17,7 @@ Pablo Estigarribia habla de Horacio Salgán, el pianista y compositor con el que
 
 -Siempre estuve como en el ambiente de los rezagados, como que siempre estuve con gente medio rara, pero eso no me resultaba un problema: imagínate que a los 15 íbamos con amigos al Colón a escuchar música clásica. Y en la escuela tenía a un amigo que casualmente se llama Eugenio Monjeau, que es el hijo de Federico (crítico musical, recientemente fallecido), y charlábamos de todas estas cosas que a mí me encantaban. Pero en realidad al principio el tango no me gustaba. De hecho escuchaba a Pugliese, a Piazzolla, pero como el piano no era muy protagonista, disfrutaba mucho escucharlos pero no me llamaba. Viste, a esa edad uno necesita un desafío. Y empecé a bailar tango, también, en la escuela. Me encontré con Di Sarli, con Troilo… Yo venía de la densidad armónica del jazz, de repente fui a chocarme con el tango y no lo entendí de entrada.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgnhAVMsuZX7KspJ0wXLT7Oef7FeLP-r-aNgbS02pXtM8ylxbXTcW8uPZxj2QoiVHLcENq5-UAXRLpL4Y0YcvDLa4pOwaNADI9jwZAywapamxq_pmEp6Xdgem9mfhrTBea-LEBXvUFlQW0r/w400-h280/tr%25C3%25ADo+Estigarribia.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgnhAVMsuZX7KspJ0wXLT7Oef7FeLP-r-aNgbS02pXtM8ylxbXTcW8uPZxj2QoiVHLcENq5-UAXRLpL4Y0YcvDLa4pOwaNADI9jwZAywapamxq_pmEp6Xdgem9mfhrTBea-LEBXvUFlQW0r/s500/tr%25C3%25ADo+Estigarribia.jpg)Un fenomenal Trío: Estigarribia, Cabarcos y Lavallén
+[![](/tangos-al-bardo/images/dae6aa3b3de0.jpg)](/tangos-al-bardo/images/7af94d195ab7.jpg)Un fenomenal Trío: Estigarribia, Cabarcos y Lavallén
 
 **-¿En qué consistió ese choque?**
 

@@ -14,7 +14,7 @@ Nosotros lo celebramos todos los sábados y martes desde las 21 horas en BIEN MI
 En la segunda parte del tango que citamos hoy, dice:
 
 Cargaron en tropel
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEikEpyvWbP886RrVwhXvruEf7dL4dIwF-jgsM1hccHnKiDhIORmMuIJhlapJGBbv_65x8gSpAQxtSy66JaAhQRmq2cI8AFbxw7ToPyZWNhyphenhyphenTe2aNLWvU5ZbRTZdbEUPtJD4iytwMdQk5imw/s320/Pare_va-che-tango-querido-instrumentales-2007.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEikEpyvWbP886RrVwhXvruEf7dL4dIwF-jgsM1hccHnKiDhIORmMuIJhlapJGBbv_65x8gSpAQxtSy66JaAhQRmq2cI8AFbxw7ToPyZWNhyphenhyphenTe2aNLWvU5ZbRTZdbEUPtJD4iytwMdQk5imw/s1600/Pare_va-che-tango-querido-instrumentales-2007.jpg)pedazos de país.
+[![](/tangos-al-bardo/images/d2dd7710d9f5.jpg)](/tangos-al-bardo/images/3fca715b8eb8.jpg)pedazos de país.
 Y un modo de vivir
 que ya no pudo ser.
 Y apenas nos quedó

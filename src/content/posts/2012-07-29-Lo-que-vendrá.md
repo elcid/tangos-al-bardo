@@ -15,7 +15,7 @@ En ese momento estaban escuchando "*El éxito de cada orquesta*", que iba por Ra
 En un momento dado, Nelson hizo un breve introito anunciando un nuevo tango que acababa de grabar Aníbal Troilo (24/9/1957), perteneciente a Ástor Piazzolla. "*Va a ser un impacto* -decía- *por la maravilla de la orquestación, la dulzura de los violines y el ensimismamiento de Pichuco en el fueye. La orquestación es del propio Piazzolla y marca una referencia importante en el futuro del tango*" (O algo así)
 
  Mi mente se alejó de las conversaciones habituales entre los peluqueros y los clientes amigos y agucé mis oídos y mi mente para escuchar ese tango, que anunciaba con tanto énfasis el conductor del programa.
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh6pnPerMtqRyEB3eErWDiqe5fR9lT0ETuQvuuAbEsWhli4xVjDXn77gof62ek0GTs_cmXey8cEg2Sb7t2VSVBJUY6jooOjtUN3vozRDkZ2PxGMIp5V20uUUYK0eFstf0G0UZqIiIgyu7Ok/s1600/astor-piazzolla-lo-que-vendra.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh6pnPerMtqRyEB3eErWDiqe5fR9lT0ETuQvuuAbEsWhli4xVjDXn77gof62ek0GTs_cmXey8cEg2Sb7t2VSVBJUY6jooOjtUN3vozRDkZ2PxGMIp5V20uUUYK0eFstf0G0UZqIiIgyu7Ok/s1600/astor-piazzolla-lo-que-vendra.jpg)Quedé maravillado. Viajé con esa música hacia un futuro aún inexplorado, pero presentí al escucharlo que se abría un panorama nuevo en el tango.
+[![](/tangos-al-bardo/images/bcf61eab1fb8.jpg)](/tangos-al-bardo/images/bcf61eab1fb8.jpg)Quedé maravillado. Viajé con esa música hacia un futuro aún inexplorado, pero presentí al escucharlo que se abría un panorama nuevo en el tango.
 
 Por eso nunca pude olvidar ese momento.
 

@@ -25,7 +25,7 @@ Sobre este tango, circularon varias versiones, en cuanto a los versos de Cadíca
 
 El vate está retratando una escena de la época. De cafisios que buscan mujeres para exportar a una Argentina que crecía a ritmo de vértigo y donde llegaban barcos repletos de inmigrantes. Entre 1870 y 1930, el puerto de Buenos Aires recibió a 6 millones de europeos que huían de sus países por las guerras. La mayoría eran hombres que necesitaban combatir la nostalgia, las penurias y la falta de sexo. Organizaciones de marselleses, y la Zwi Migdal, dirigida por delincuentes judíos que traían con engaños a sus pupilas de los países del este europeo, especialmente de Polonia y Rusia, tuvieron su sede en Buenos Aires pero también exportaron a sus víctimas a otros países de América. El enclave prostibulario estuvo enclavado entre las calles Lavalle, Viamonte, Libertad y Talcahuano. Las mujeres se subastaban y la mafia de judíos rusos llegó a tener 40 prostíbulos en el centro de la ciudad.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgr40w6d0KbRjINlU0QF_nAUcU9g0frjEiwXpy1QB1dVp3robcOPkCKE6WRFpm2gavQyjIxUbNqDMQsecbUkHslHH0uQaMMhBBFea8wGbsJRz9iBABZsQYE3ttXW5l17vJ3HI5aAQ70Vh2D/s320/Cadica.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgr40w6d0KbRjINlU0QF_nAUcU9g0frjEiwXpy1QB1dVp3robcOPkCKE6WRFpm2gavQyjIxUbNqDMQsecbUkHslHH0uQaMMhBBFea8wGbsJRz9iBABZsQYE3ttXW5l17vJ3HI5aAQ70Vh2D/s1600/Cadica.jpg) Enrique Cadícamo
+ [![](/tangos-al-bardo/images/adf92f8fb3fe.jpg)](/tangos-al-bardo/images/7c40c1f85ed2.jpg) Enrique Cadícamo
 
 Cadícamo refleja y personaliza en **Madame Ivonne** a una de estas víctimas, en este caso engañada por un argentino. Y retrata la odisea del final del "amor", el abandono y la caída en desgracia de ella.
 

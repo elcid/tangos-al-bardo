@@ -16,7 +16,7 @@ Troilo vino aquel día a mi casa a saludar también a mi vieja y el el club, el 
 
 Perdió a su padre -mi abuelo- a los cinco años y trabajó de todo: mecánico, taxista, colectivero. Manejaba en la línea 219, cuando le tocó probarse con Horacio Salgán, después de haber debutado con Raúl Kaplún a los dieciocho años. Cuando estuvo con Salgán hizo dupla con Ángel Díaz, el *Paya* de Pompeya, a quien admiró siempre.
 
-[![](https://blogger.googleusercontent.com/img/a/AVvXsEjrofTJP8o9Qd8OIbdJCamUiLKP24dSbllZlZNJhcptjWPk5dkvX3fKBHFP_rWIsVy49joCjdWVNDUFQM3bI5RK4IsnWSGtTbI2mP4alyq0OjVuTRNyT4NjMVOixVS2_r6D8BAxHWdz33_LTd_Na5GF8wSZVmmxer_DP8w0zZX7r5gk5_Wl2vua96gA4g=w400-h271)](https://blogger.googleusercontent.com/img/a/AVvXsEjrofTJP8o9Qd8OIbdJCamUiLKP24dSbllZlZNJhcptjWPk5dkvX3fKBHFP_rWIsVy49joCjdWVNDUFQM3bI5RK4IsnWSGtTbI2mP4alyq0OjVuTRNyT4NjMVOixVS2_r6D8BAxHWdz33_LTd_Na5GF8wSZVmmxer_DP8w0zZX7r5gk5_Wl2vua96gA4g=s960)El Polaco canta acompañado por Troilo-Grela y su hijo disfruta
+[![](/tangos-al-bardo/images/1381527a2e25.jpg)](https://blogger.googleusercontent.com/img/a/AVvXsEjrofTJP8o9Qd8OIbdJCamUiLKP24dSbllZlZNJhcptjWPk5dkvX3fKBHFP_rWIsVy49joCjdWVNDUFQM3bI5RK4IsnWSGtTbI2mP4alyq0OjVuTRNyT4NjMVOixVS2_r6D8BAxHWdz33_LTd_Na5GF8wSZVmmxer_DP8w0zZX7r5gk5_Wl2vua96gA4g=s960)El Polaco canta acompañado por Troilo-Grela y su hijo disfruta
 
 Troilo lo llevó para reemplazar a Jorge Casal y con Pichuco alcanzó su gran madurez. Pero el Polaco siempre siguió siendo un tipo sencillo, jodón, hacía cosas divinas. Un día fue a ver al Gasómetro de Avenida La Plata, un partido San Lorenzo-Platense con una peluca tipo* beattle*, y los hinchas se daban codazos y alguno decía: "*Viste que los tangueros usan todos peluquín...*"
 
@@ -24,7 +24,7 @@ Y él decía: "*No viejo, no soy Goyeneche, soy su hermano...*" El 16 de noviemb
 
 Cuando en verano íbamos a Mar del P,lata, porque él actuaba allí, le gustaba descansar en algún lugar tranquilo y se compró una casa en Santa Clara del Mar, a 8 cuadras del mar, en medio de un bosque. Entonces colgaba las jaulas de sus pajaritos en los árboles, se acostaba en una hamaca y dormía...
 
-[![](https://blogger.googleusercontent.com/img/a/AVvXsEiF5nrhT1Pe0hl8U0I8likVmOfq44VZn6U2kpQcu9X29vvlvyBXEp-XWkWbaLyOGo8AxXtTiQubC32aRYXYj1vJ_YHGgjSe5NeD2pIFF_bOBJXnzi0Em3rQpzMFvW7r7mB5NHVirghz_MxCpahwiLPU7D0waM1yKgS9KVY3bOfF0OxtdSxjRdPAGK7XFg=w400-h266)](https://blogger.googleusercontent.com/img/a/AVvXsEiF5nrhT1Pe0hl8U0I8likVmOfq44VZn6U2kpQcu9X29vvlvyBXEp-XWkWbaLyOGo8AxXtTiQubC32aRYXYj1vJ_YHGgjSe5NeD2pIFF_bOBJXnzi0Em3rQpzMFvW7r7mB5NHVirghz_MxCpahwiLPU7D0waM1yKgS9KVY3bOfF0OxtdSxjRdPAGK7XFg=s275)El Polaco Goyeneche con su esposa y los dos hijos
+[![](/tangos-al-bardo/images/7e11f9d179b8.jpg)](https://blogger.googleusercontent.com/img/a/AVvXsEiF5nrhT1Pe0hl8U0I8likVmOfq44VZn6U2kpQcu9X29vvlvyBXEp-XWkWbaLyOGo8AxXtTiQubC32aRYXYj1vJ_YHGgjSe5NeD2pIFF_bOBJXnzi0Em3rQpzMFvW7r7mB5NHVirghz_MxCpahwiLPU7D0waM1yKgS9KVY3bOfF0OxtdSxjRdPAGK7XFg=s275)El Polaco Goyeneche con su esposa y los dos hijos
 
 Tengo recuerdos hermosos de él, diálogos larguísimos, sus consejos, me acompañaba cantando en las canciones que aprendíamos en el cole, jugábamos mucho al truco o al chinchón, y como también me gustaba cantar, me explicaba el peso de cada verso, la intención, el énfasis. Decía que a una buena poesía se le podía poner música por teléfono. No tenía formación académica, pero cantando tangos era algo impresionante.
 

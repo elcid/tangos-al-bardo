@@ -25,7 +25,7 @@ Como director su primer registro es precisamente en 1977, con el Octango, conjun
 
  Mauricio Marcelli: Violín solista y dirección  Luis Strada, Washington Willman y Eduardo Walckzac: Violines  Juan De La Cruz Bringas: Viola  Oscar López Echeverría: Cello  Omar Murtagh: Contrabajo  Dino Saluzzi: Bandoneón.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiHik8-Gv_ANp93V2ezKgSP73t9TjyDmOFbFbo6dyU3NlUM2VKrJvfJ1y7Le81rH4hjmzMfEC7MGqWgXD4SVOz0JSHVNZ_8Wfc-0nnXVqkCr9rd2tD4nH172om0bv7owiIMhF7GOHBL1rmp/s400/con+Marcelli.JPG)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiHik8-Gv_ANp93V2ezKgSP73t9TjyDmOFbFbo6dyU3NlUM2VKrJvfJ1y7Le81rH4hjmzMfEC7MGqWgXD4SVOz0JSHVNZ_8Wfc-0nnXVqkCr9rd2tD4nH172om0bv7owiIMhF7GOHBL1rmp/s1600/con+Marcelli.JPG) Con Mauricio Marcelli departiendo en Madrid
+ [![](/tangos-al-bardo/images/c636c009105a.jpg)](/tangos-al-bardo/images/b5b64bed541c.jpg) Con Mauricio Marcelli departiendo en Madrid
 
 
  En el mismo figuran una curiosa selección de temas: *Volvió una noche, Con cierto vuelo* (del propio Marcelli), *Milonga triste, Sideral, Boedo, Negracha, Loca bohemia, Morena, Ciudad triste y Chris-Talin,* éste último de Piazzolla.

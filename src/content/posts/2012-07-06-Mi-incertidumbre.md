@@ -9,7 +9,7 @@ tags: ["Héctor Varela", "Lucio Demare"]
 Los invito a escuchar este tango poco transitado por nuestras orejas: ***Mi incertidumbre.***
  La letra le pertenece a Eugenio Majul y la música al violinista, poeta y cantor, Hugo Gutiérrez.
 
-   Majul es un hijo de sirios que nació en 1921 y continúa frecuentando con acierto la poesía. Es autor de tangos, valses y milongas, en los que, al parecer, transita una dificultad para musicalizar porque no guardan una métrica determinada.  [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhsq2BmZdZiTg1PtPIhNaUyPv_FBZreKSdnhnymaER9En9QwgCUZ_fdJ1jQYNempLzvZf_MUj70j9Ke3mH3Br2Deux2UiPVqOEDxUUqMbhTEjWpROS15HL4c1nPNVkYOCsr4Rn5V65mRsjG/s320/Nunca,+nunca+te+olvid%C3%A9n-parti-PA000329-w-p0001.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhsq2BmZdZiTg1PtPIhNaUyPv_FBZreKSdnhnymaER9En9QwgCUZ_fdJ1jQYNempLzvZf_MUj70j9Ke3mH3Br2Deux2UiPVqOEDxUUqMbhTEjWpROS15HL4c1nPNVkYOCsr4Rn5V65mRsjG/s1600/Nunca,+nunca+te+olvid%C3%A9n-parti-PA000329-w-p0001.jpg)
+   Majul es un hijo de sirios que nació en 1921 y continúa frecuentando con acierto la poesía. Es autor de tangos, valses y milongas, en los que, al parecer, transita una dificultad para musicalizar porque no guardan una métrica determinada.  [![](/tangos-al-bardo/images/8290821ccb20.jpg)](/tangos-al-bardo/images/2ee9258e1077.jpg)
 En cambio, son musicales *de nascita*. Como si llevasen la música puesta.  Ha escrito tangos en colaboración con infinidad de músicos, como: Piazzolla, Lucio Demare, *Chupita* Stamponi, Mancione, Pérez Prechi y varios más.
  El tema lo grabó Miguel Nijensohn el 3-4-1957, con la grave voz de un cantor que apareció y desapareció rápido: Carlos Budini.
 
@@ -27,7 +27,7 @@ fue un río su pasión?
 ¿Qué hacer...?
 ¿Adónde ir a morir...?  ¿Qué rumbo lleva al fin
 de tanta noche cruel?
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh8-2sD5HvUvHNVjrHgFhokgJ6a8aw9AdHWtsNvZKr9-9me4NtVS1itGMNae1Vt42ZOaCflD_YGo5oujiArr_OSZvB0XpJxEWLYeZ7TJxw-YL_8_57ulfRS8LQdFHjMEuyMI4Xm126_FPOo/s1600/Pobrezas.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh8-2sD5HvUvHNVjrHgFhokgJ6a8aw9AdHWtsNvZKr9-9me4NtVS1itGMNae1Vt42ZOaCflD_YGo5oujiArr_OSZvB0XpJxEWLYeZ7TJxw-YL_8_57ulfRS8LQdFHjMEuyMI4Xm126_FPOo/s1600/Pobrezas.jpg)No sé cómo matar mi incertidumbre
+ [![](/tangos-al-bardo/images/e35b1e8ac5e8.jpg)](/tangos-al-bardo/images/e35b1e8ac5e8.jpg)No sé cómo matar mi incertidumbre
 Las dudas que devoran y el rencor.
 Qué horrible es ver las cosas más azules
 Ceñirse un velo gris de ayer a hoy.

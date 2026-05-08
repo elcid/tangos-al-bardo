@@ -11,12 +11,12 @@ A mí también me caben las generales de la ley y el calor me impulsa a pasar un
 Por eso el Blog también se toma vacaciones hasta el lunes 2 de septiembre en que volveremos a juntarnos en torno al tango y sus vicisitudes, a lo largo de la historia. Del ayer y de hoy. Y como cierre momentáneo, les dejo este gotán que realizamos con el pianista, director y compositor: Juan Antonio Morteo.
 
 
- [](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhz_Yp0rS3DOZfRlnIuaMjOONkiwmFT-YOuqvhXFoo9dSauRBuRkbtW5BK2Szl4WV27DNe5v7PqHT9fXYJdND7sx-W7T_7xpSCY2FDyBjynw4V2aXi5p3RgwSZOK5WgKsK7tx1IjM9MzPk/s1600/fantasmas-volando-sobre-un-fondo-negro-ilustracin-de.jpg)[
-](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjNe0VgpV45tBeYy9q_7mPDuPXZVuoBrZbBGJDnUzjCMVHz1d_YLkXaDYk1lsI8GK-iVBtBLRaISSUNiyU8bBR0h7SUD8TpzW8avoteWTGePi1kC-WeiX3I23pY5kbUvXQlupuw_T9nT-s/s1600/Troilo+3.jpg)Lo grabó el conjunto dirigido desde el piano por Juan Antonio Morteo e integrado además por Miguel Ángel Bertero en violín, Lautaro Greco en bandoneón y Horacio Cabarcos en contrabajo. Todos ellos músicos reconocidos y valorados como maestros en sus respectivos intrumentos.
+ [](/tangos-al-bardo/images/d29ca2272279.jpg)[
+](/tangos-al-bardo/images/3ed0765cb5c4.jpg)Lo grabó el conjunto dirigido desde el piano por Juan Antonio Morteo e integrado además por Miguel Ángel Bertero en violín, Lautaro Greco en bandoneón y Horacio Cabarcos en contrabajo. Todos ellos músicos reconocidos y valorados como maestros en sus respectivos intrumentos.
 
 Lo canta Guillermo Galvé un vocalista de larga trayectoria y aplaudida capacidad, al que le gustó el tema porque dijo que: "*es justo todo lo que yo viví, en este ambiente"*.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjE4bK8oSiqs40dGhrDSdPJFfcDGGv5-tnMb25nC1KEfk9RxMVigxv-L1WO91KxOIrn6VJeKFZ6S_AF-dk_X6q6uqPJWNtzRioYZXlYY0-DEjrX23teCHJl0fHEM2HTMhAKLT9OExva5Po/s1600/Galv%C3%A9.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjE4bK8oSiqs40dGhrDSdPJFfcDGGv5-tnMb25nC1KEfk9RxMVigxv-L1WO91KxOIrn6VJeKFZ6S_AF-dk_X6q6uqPJWNtzRioYZXlYY0-DEjrX23teCHJl0fHEM2HTMhAKLT9OExva5Po/s1600/Galv%C3%A9.jpg) Guillermo Galvé
+ [![](/tangos-al-bardo/images/301f8982b229.jpg)](/tangos-al-bardo/images/301f8982b229.jpg) Guillermo Galvé
 
 Les dejo la letra del tango y a continuacion la grabación realizada en un importante estudio.
 

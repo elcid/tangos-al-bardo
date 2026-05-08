@@ -7,7 +7,7 @@ tags: ["José María Otero"]
 ---
 
 (Al troesma Miguel Ángel Zotto)
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhF8GUhiFd1CweRxj5LNnydXBnZGFze2xb_4rxVbNCe4LinL2ZuwPWjgYOiBotjNdLOVP3zKsdJDIv-8Z8Z9IQyQG5X0BzpjXMuXkBuO_if15JWt2N3_2_DzrgK7D1Ynq6J2zZwO439gvz5sEVmAtFjUwlZ4RT4BoiWlc7zJg361vqDa80b3F6aJiqtXg/w320-h180/S1bQH8SCmx_600x338.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhF8GUhiFd1CweRxj5LNnydXBnZGFze2xb_4rxVbNCe4LinL2ZuwPWjgYOiBotjNdLOVP3zKsdJDIv-8Z8Z9IQyQG5X0BzpjXMuXkBuO_if15JWt2N3_2_DzrgK7D1Ynq6J2zZwO439gvz5sEVmAtFjUwlZ4RT4BoiWlc7zJg361vqDa80b3F6aJiqtXg/s600/S1bQH8SCmx_600x338.jpg)
+[![](/tangos-al-bardo/images/05f03a1443ea.jpg)](/tangos-al-bardo/images/9c57301b94aa.jpg)
  Tayó en el rioba tangamente de potriyo
 gardeleando a rockeritas suburbiales
 con el fraguinche destino de su estirpe.  Se bardeó con las musas cachafazas troileándose de zurda en la vitrola, empuglieseando su curore hasta las bolas y manijeando el esquecho en la viaraza. Lo acompaña el mate amargo mancebado en la sera del strunge pensamiento; el berretín fue del bobo el linimento que una cheno lo orlará de marqués enmilongado.

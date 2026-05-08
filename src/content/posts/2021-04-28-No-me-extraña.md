@@ -16,7 +16,7 @@ En una charla que sostienen Laurenz y Celenza, después de un ensayo, el directo
 
 A los pocos días, se encuentra Laurenz con Carlos Bahr, en el Café *El Águila*, que está junto a SADAIC. Ya le había grabado con su orquesta su **Milonga compadre**, que, con música de José Mastropiero, ganó el primer premio de milongas en un concurso de SADAIC. Y en la charla surge la posibilidad de de que Bahr le ponga versos a **Populacha**. Laurenz llevó al disco en total ocho temas que llevan letra de Bahr. Y éste asiente, a la espera de escuchar el tema y que el estro aparezca en forma de poema.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgSI43UfBnqhhpaBgMFu76SKlAZcgV4XGmU_c-jP6NCROr1lrfcgKMszZHsDLbhnQS03zUk8SzKGVCWNaBFpHfQ2MOCfME4b9egZn1ERF-ri25I-PkFbAuNK-1yFGdHzXbeaJXXqDAiYT3J/w400-h300/Celenzahqdefault.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgSI43UfBnqhhpaBgMFu76SKlAZcgV4XGmU_c-jP6NCROr1lrfcgKMszZHsDLbhnQS03zUk8SzKGVCWNaBFpHfQ2MOCfME4b9egZn1ERF-ri25I-PkFbAuNK-1yFGdHzXbeaJXXqDAiYT3J/s480/Celenzahqdefault.jpg)Alberto Celenza en la orquesta de Laurenz es el primero por derecha
+[![](/tangos-al-bardo/images/52527d474095.jpg)](/tangos-al-bardo/images/508c786356f3.jpg)Alberto Celenza en la orquesta de Laurenz es el primero por derecha
 
 Una vez con el disco de De Caro en su mano, bien repasado una y otra vez y obtenida la métrica correcta, Bahr utilizaría uno de sus recursos: Contar historias propias o ajenas. Y recordó una frase de un conocido: *No me extraña*. En la misma hurgó y fue diseñando su tango y acoplándolo a la música, tarea nada fácil, pero que con esfuerzo la fue alcanzando.
 

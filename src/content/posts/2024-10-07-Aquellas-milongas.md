@@ -11,7 +11,7 @@ En los años noventa, la revista "La Maga" que dirigía mi amigo y compañero Ca
 
 -**Galería del Tango** (*Salón Chiqué*): una buena propuesta si quiere escuchar tango en vivo. Solícitamente atendido por un equipo gastronómico, podrá cenar y, al finalizar el show, se puede bailar. Boedo 722. Elegante sport. Organiza Eduardo (Gloria y Eduardo). Viernes, sábados y domingos, a partir de las 23 hs.
 
-[![](https://blogger.googleusercontent.com/img/a/AVvXsEjmsRM9I5qa8sddHpdNFnuFx0bf-CL-AKSUITNJm4U32_o8bGOFnDMmoUjpDKN1QKa2liQemmuJscWfZ6adx1UiCxzNdtOgN2UqYkl1P7XhR7UudEGzayq_JVDXZcNJFehmZvaxEbGH1IwhvFJh-Ub4-SAK6PoRGvJub7lEGzZxmkBs3qfcT1cyXuZVaNQq=w400-h300)](https://blogger.googleusercontent.com/img/a/AVvXsEjmsRM9I5qa8sddHpdNFnuFx0bf-CL-AKSUITNJm4U32_o8bGOFnDMmoUjpDKN1QKa2liQemmuJscWfZ6adx1UiCxzNdtOgN2UqYkl1P7XhR7UudEGzayq_JVDXZcNJFehmZvaxEbGH1IwhvFJh-Ub4-SAK6PoRGvJub7lEGzZxmkBs3qfcT1cyXuZVaNQq)Club Glorias Argentinas
+[![](/tangos-al-bardo/images/fade664b4492.jpg)](https://blogger.googleusercontent.com/img/a/AVvXsEjmsRM9I5qa8sddHpdNFnuFx0bf-CL-AKSUITNJm4U32_o8bGOFnDMmoUjpDKN1QKa2liQemmuJscWfZ6adx1UiCxzNdtOgN2UqYkl1P7XhR7UudEGzayq_JVDXZcNJFehmZvaxEbGH1IwhvFJh-Ub4-SAK6PoRGvJub7lEGzZxmkBs3qfcT1cyXuZVaNQq)Club Glorias Argentinas
 
 -**Galería del Tango** (Salón Boedo). El salón es lindo -no muy grande-, va el "chetaje" del tango, alegres y prolijamente vestidos. Mitad tango, mitad jazz, tropi y carnaval carioca. Solos/as y parejas. Boedo 722 Elegante sport. Organiza Eduardo. Viernes, sábados y domingos a partir de las 23 hs.
 

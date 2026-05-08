@@ -5,7 +5,7 @@ original_url: https://tangosalbardo.blogspot.com/2017/04/bien-milonga_18.html
 labels: ""
 ---
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgoP9OaS1dynmrYvZK1lVyhfMH3qRmJF4mPPgElwxCQPlymdCmFhOusnMN_5Xb-vJB4j2NGNCGsdhBjJzIDrsiwdQn1i2nPiGa0MPaC5fwXoN0QOAP1qIXEv__5TdjLmd3wBWh8bl_ab9N7/s320/pares.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgoP9OaS1dynmrYvZK1lVyhfMH3qRmJF4mPPgElwxCQPlymdCmFhOusnMN_5Xb-vJB4j2NGNCGsdhBjJzIDrsiwdQn1i2nPiGa0MPaC5fwXoN0QOAP1qIXEv__5TdjLmd3wBWh8bl_ab9N7/s1600/pares.jpg) *Lindos tangos del ayer** *
+[![](/tangos-al-bardo/images/65f0a0ee1f43.jpg)](/tangos-al-bardo/images/c0d907879bda.jpg) *Lindos tangos del ayer** *
 * las historias que ha de haber*   * enredadas en sus flecos...*   * Viejas quejas de pasión*   * renovando parejas*
 * ***con este son..* *
 * *(Fco. García Jiménez) * *   * *     Martes, no te cases ni te embarques, porque te espera la milonga que hacemos en la Casa de Aragón de Madrid, y que tiene todos los ingredientes necesarios para que la pases muy bien. Buena pista, música milonguera al mango y ambiente ideal. Justo para retomar el pulso bien milonga después de la semana santa en la playa y parajes varios.

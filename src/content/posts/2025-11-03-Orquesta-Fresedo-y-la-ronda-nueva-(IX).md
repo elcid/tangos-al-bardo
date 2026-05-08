@@ -13,7 +13,7 @@ Durante ese lapso, Fresedo reestructuró en gran parte su plantel, la concepció
 El repertorio de Fresedo dio cabida a varios tangos instrumentales y también cantables debidos a compositores de nuevo cuño, tales como Astor Piazzolla, Roberto Pansera y Roberto Pérez Precci, estos dos últimos, bandoneonistas de su orquesta.
 
 A ellos agregó varias versiones remozadas de conocidos temas suyos (“*Pampero*”, “*Sollozos*”, “*Vida mía*”) y de autores ya clásicos (Figari, Troilo, Mores, Demare, etc.).
- ![](http://images.todotango.com/historias/Orq_Fresedo.jpg)
+ ![](/tangos-al-bardo/images/cb69790bd50a.jpg)
 
 La integración de su orquesta en 1950 era la detallada seguidamente:
 Bandoneones: Roberto Pansera, Américo Caggiano, a quien sucedió Roberto Pérez Préchi y Mariano Rodas. También alternó Oscar Baglione, pero siempre en la fila de 3 bandoneones.

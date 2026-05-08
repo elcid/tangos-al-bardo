@@ -24,7 +24,7 @@ En los comienzos de los setenta, cuando el tango estaba en horas bajas, cantaba 
 
 Sus más de cien temas grabados, en los que tuvo acompañamiento de orquestas como Francisco Canaro, Domingo Marafiotti, Alberto Di Paulo, o con los guitarristas, que fueron sus preferidos para interpretar: José Canet, Roberto Grela, Ubaldo De Lío y sus conjuntos entre otros, nos permiten apreciarla. Supo reverdecer canciones de Manzi y Hugo Gutiérrez, como el valsecito "*Llorarás llorarás"*..., feliz creación.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgG2imr7b8upMQY4JR5oY6Tzq4ewEMKssNsodMHR3GTIegGGn6uyOwmeH_CSTBoEVxOdfB0pDsh1Hp7e81eB_NDW-nwBzlha-67grYtV1HvEKE4am_GBtUH0TAsUZCkgFoxuApYE2j3WTus7JqEBj-t3z3K5XqlX727KHCKaRn6-vK3Wo65o-KhXgPZewo9/w400-h300/grela-omarhqdefault.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgG2imr7b8upMQY4JR5oY6Tzq4ewEMKssNsodMHR3GTIegGGn6uyOwmeH_CSTBoEVxOdfB0pDsh1Hp7e81eB_NDW-nwBzlha-67grYtV1HvEKE4am_GBtUH0TAsUZCkgFoxuApYE2j3WTus7JqEBj-t3z3K5XqlX727KHCKaRn6-vK3Wo65o-KhXgPZewo9/s480/grela-omarhqdefault.jpg)Acá la está acompañando Roberto Grela
+[![](/tangos-al-bardo/images/6753a00c9bce.jpg)](/tangos-al-bardo/images/5e4a33a13fe2.jpg)Acá la está acompañando Roberto Grela
 
 Convertida definitivamente en artista de culto, se le abrieron las puertas y los escenarios de los grandes teatros porteños. Las cámaras de televisión permitieron al público comprobar que su voz se mantenía mágicamente inalterable, aunque hubiese pasado los ochenta años. Y así comenzaron a llegar los reconocimientos.
 

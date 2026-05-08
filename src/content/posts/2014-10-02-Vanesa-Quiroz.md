@@ -30,7 +30,7 @@ Entre tanto, aquella piba tímida que arrancó a los 15, ya desfiló entre ovaci
 
 La acompañó el conjunto dirigido por el pianista y arreglador, Nicolás Ledesma e integrado por Horacio Romo en bandoneón; Pablo Agri: violín; Edgardo Acuña: Guitarra eléctrica; Diego Sánchez en violoncello y Enrique Guerra: Bajo. También intervinieron en algunos temas: José Colángelo, Leopoldo Federico y Hugo Rivas.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg8zduBJqldyWWKMr86SjoD2zMSgr7wyVdt8C_Nf_Ss6JT72dDADqRorfWWDpJ5SMjUIuSuoIATW7JgQClCcfpzJDzi7KZA7gGH_Vh7Kx3fXHNCh8VgEmNQwXsQxUc3rLDHR4tmxVqT688/s1600/va.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg8zduBJqldyWWKMr86SjoD2zMSgr7wyVdt8C_Nf_Ss6JT72dDADqRorfWWDpJ5SMjUIuSuoIATW7JgQClCcfpzJDzi7KZA7gGH_Vh7Kx3fXHNCh8VgEmNQwXsQxUc3rLDHR4tmxVqT688/s1600/va.jpg) Vanesa Quiroz canta en el Café de los Angelitos, con todo el elenco.
+ [![](/tangos-al-bardo/images/1fdd0c8cfd5e.jpg)](/tangos-al-bardo/images/1fdd0c8cfd5e.jpg) Vanesa Quiroz canta en el Café de los Angelitos, con todo el elenco.
 Ese disco es un regalo para los oídos y para el cuore. La voz increíble, melódica, de Vanesa acompañada por estos *nenes*, reluce como nunca.Su sentimiento se expresa con una comprensión de la letra que le da más vuelo a la misma. Y recupera algunos temas algo diluidos en la memoria. Tengo que decir que es una cantante con todas las letras y que me encanta. Incluso haciendo un tema de Chico Novarro y Eduardo Jaurena: **Manías**, algo desusado en el género. Ella lo interpreta de un modo íntimo, casi sensual. Maravilla. Para escucharlo de noche con una copa en la mano.
 
 

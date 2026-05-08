@@ -11,7 +11,7 @@ Sí, me refiero a la milonguita que armo en la Casa de Aragón de Madrid, en la 
 ...Y ese día será el próximo sábado 3 de septiembre, en que retorna **Bien milonga** a la Casa de Aragón, como todos los martes y sábados a partir de las 21 horas. Correteando en la arena y braceando en las aguas mediterráneas, para volver con los brazos y la cabeza listos para caminotear con ansias el hermoso piso de madera que tenemos. .
 
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi0tME38gEzYtL5ueMn3yaKfR3033gPZDpaPpjw2m4n3R9y7s48_bik8-1x588096u9i3L5nneAeeBWin_snKfhZKz9hoNDGqQczh745KzEPO67JXDN1Cq4ERoKF8SCLv3KO2QCDIKCLbqa/s1600/La_milonga_de_Bs_As.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi0tME38gEzYtL5ueMn3yaKfR3033gPZDpaPpjw2m4n3R9y7s48_bik8-1x588096u9i3L5nneAeeBWin_snKfhZKz9hoNDGqQczh745KzEPO67JXDN1Cq4ERoKF8SCLv3KO2QCDIKCLbqa/s1600/La_milonga_de_Bs_As.jpg)*Vamos, que arrullan los fueyes*
+[![](/tangos-al-bardo/images/9be494070fd9.jpg)](/tangos-al-bardo/images/9be494070fd9.jpg)*Vamos, que arrullan los fueyes*
 *y al ritmo de un tango*
 *recuerdos nos llueve.... *
 

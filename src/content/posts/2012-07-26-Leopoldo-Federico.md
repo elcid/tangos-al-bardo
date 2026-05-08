@@ -16,7 +16,7 @@ Su gran personalidad de intérprete se basa además, en una febril imaginación 
 
 La gravitación de Horacio Salgán y Ástor Piazzolla en su carrera, queda demostrada en las ideas musicales que maneja con maestría.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg4MZKB1DAuVal9RrvnRAMOCp-icUqwCrqHNX61MEOYv9VBjLoNHqQXouUTKvUghzJakhDg3VYN2u82jmjyoyXQdyAhON-PLoprMr_19H8AGwiBr33W-I0PQTOEIniitext2bAQKh87WpXC/s320/Horacio+Cabarcos.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg4MZKB1DAuVal9RrvnRAMOCp-icUqwCrqHNX61MEOYv9VBjLoNHqQXouUTKvUghzJakhDg3VYN2u82jmjyoyXQdyAhON-PLoprMr_19H8AGwiBr33W-I0PQTOEIniitext2bAQKh87WpXC/s1600/Horacio+Cabarcos.jpg) Horacio Cabarcos  Con su Trío, hizo para el Ministerio de Educación de la Nación, una hermosa grabación filmada, dirigida por el periodista y locutor Lalo Mir, y registrada por Jorge *Portugués* Da Silva, todo un sello de calidad como musicalizador, el preferido por los tangueros.
+ [![](/tangos-al-bardo/images/9465bc4288cc.jpg)](/tangos-al-bardo/images/4e49b9ed8b25.jpg) Horacio Cabarcos  Con su Trío, hizo para el Ministerio de Educación de la Nación, una hermosa grabación filmada, dirigida por el periodista y locutor Lalo Mir, y registrada por Jorge *Portugués* Da Silva, todo un sello de calidad como musicalizador, el preferido por los tangueros.
 
 El Trío lo completan el pianista Nicolás Ledesma y el contrabajista Horacio Cabarcos, hijo de otra leyenda del tango: Fernando Horacio. Desde 1979, al fallecer su padre, toca en el Trío con una maestría genial.
 

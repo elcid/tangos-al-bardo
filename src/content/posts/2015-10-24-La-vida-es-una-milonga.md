@@ -11,7 +11,7 @@ Yo no sé si Rodolfo Scianmarella (que fue inventor de los jingles modernos en E
 El secreto consiste en no bailar para los demás sino para uno mismo. Por eso, algunos presuntos exhibicionistas en la pista que se salen del libreto establecido, quedan retratados. Un Di Sarli, un Pugliese deben degustarse a fondo, íntimamente, como ascetas. Pero hoy no quiero dar cátedra, al fin y al cabo todos vamos a pasarla bien, a disfrutar con esa música y como diría uno que la sabía lunga : "*se hace lo que se puede*". Y porque la vida es una milonga nos citamos esta noche recordando las palabras de Scianmarella al respecto:
 
 La vida es una milonga
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiSuHoSLEyHKzwfoZiBaJW4PN-mqNLhlqMhwHPWKQ0oPjnZLLbgNYkQJvLaWjMz-J5THk6iXptielpw_PFKckeY3vOTtgKNUp8rEqO_gi31DOeckYoU2omrbTUHXkvOpqusFFfBuIMuOwo/s400/0PareBAILONGO+2015+WEB.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiSuHoSLEyHKzwfoZiBaJW4PN-mqNLhlqMhwHPWKQ0oPjnZLLbgNYkQJvLaWjMz-J5THk6iXptielpw_PFKckeY3vOTtgKNUp8rEqO_gi31DOeckYoU2omrbTUHXkvOpqusFFfBuIMuOwo/s1600/0PareBAILONGO+2015+WEB.jpg)y hay que saberla bailar,
+[![](/tangos-al-bardo/images/bb5d57a62460.jpg)](/tangos-al-bardo/images/b706c11b44f7.jpg)y hay que saberla bailar,
 en la pista está sobrando
 el que pierde su compás.
 

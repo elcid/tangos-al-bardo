@@ -10,7 +10,7 @@ tags: ["Juan Carlos Cobián", "Enrique Cadícamo"]
 
 Cobián, de 26 años, más que el aspecto de un virtuoso del piano, tenía el físico y la apariencia de un apuesto deportista. Su atlética complexión, alta estatura, amplios hombros y espaldas, cuello vigoroso, mandíbula fuerte y dominante, nariz mediana y casi recta con un leve vestigio de púgil, le imprimían recio perfil y atrayente personalidad.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh9bXY5jRUZeXR2nY89cyfKVIA3M4JDP_47jGyzUYJCihxXslndb4fQnSWrPcQdM-T6fQMari2czIATTXIUJHGe7wuCy-KYcz7ujdIN_XhXi3FONSnUd5neHtdhgNUaua7hEfcuU4HDZZqvpnFyJYhH4lDQoOu21_xVqEkHOQMN_1IAz37iXSDk6_qbFeFl/s320/D_NQ_NP_624983-MLA69659627549_052023-O.webp)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh9bXY5jRUZeXR2nY89cyfKVIA3M4JDP_47jGyzUYJCihxXslndb4fQnSWrPcQdM-T6fQMari2czIATTXIUJHGe7wuCy-KYcz7ujdIN_XhXi3FONSnUd5neHtdhgNUaua7hEfcuU4HDZZqvpnFyJYhH4lDQoOu21_xVqEkHOQMN_1IAz37iXSDk6_qbFeFl/s500/D_NQ_NP_624983-MLA69659627549_052023-O.webp)Juan Carlos Cobián
+[![](/tangos-al-bardo/images/c6ede24eb2b0.webp)](/tangos-al-bardo/images/8bf0c2af887b.webp)Juan Carlos Cobián
 
 Sus orejas, normales, hecha para el diapasón, de pabellones ligeramente aplanados hasta las cuencas, por efecto de la práctica del boxeo, bien arrimadas a la redondez perfecta de su cráneo poblado de abundante cabello castaño oscuro, peinado pulcramente a la gomina con una impecable raya al costado que parecía trazada con tiralíneas.
 

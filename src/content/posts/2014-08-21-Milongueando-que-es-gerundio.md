@@ -25,7 +25,7 @@ Aunque yo para bailar voy siempre a ritmo con el piano, y el de Di Sarli te llev
 
 Porque, pese a que el tango sea porteño por excelencia y Buenos Aires tenga las mejores milongas del mundo, afortunadamente, hoy día, se lo baila en infinidad de países y en algunos de ellos, en forma increíblemente ajustada a los cánones.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg6FrjARczM7B4ph49wvmv_Wd1Xc6OPqw_h_S4mtH_ffHsAbEmrraHDtHJTQSzuaD-l5qy9gvnY1nIx1kYXXUwuGD9g_nIMzJqyTwArtVrk3zkqbFAc-spwddMWw-9EZMaZjBk8pO4X_Ag/s1600/MU+-+MI.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg6FrjARczM7B4ph49wvmv_Wd1Xc6OPqw_h_S4mtH_ffHsAbEmrraHDtHJTQSzuaD-l5qy9gvnY1nIx1kYXXUwuGD9g_nIMzJqyTwArtVrk3zkqbFAc-spwddMWw-9EZMaZjBk8pO4X_Ag/s1600/MU+-+MI.jpg) Michelle y Murat
+ [![](/tangos-al-bardo/images/ae378bd60d24.jpg)](/tangos-al-bardo/images/ae378bd60d24.jpg) Michelle y Murat
 
 El tango ha sacado carta de ciudadanía universal y en las milongas porteñas se puede bailar con hombres y mujeres de distintas procedencias. En Marzo último, en Buenos Aires, entre otras, bailé maravillosamente con una alemana, una francesa y especialmente con una japonesa en Grisel, con la cual me parecía estar flotando entre las nubes. Claro que también con muchas milongueras locales que llevan la marca en el orillo y me hicieron disfrutar de lo lindo.
 

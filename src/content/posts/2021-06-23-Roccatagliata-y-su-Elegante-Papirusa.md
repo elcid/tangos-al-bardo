@@ -10,7 +10,7 @@ Se llamaba David, aunque para todo el mundo era Tito, y fue un destacado violini
 
 Intervino en numerosos conjuntos entre los que vale destacar sus inicios junto a Roberto Firpo y Juan Carlos Bazán en un trío que dio que hablar, actuando en *El Velódromo* y el vecino *El Tambito*, en los bosques de Palermo, cuando corría el año 1908. Contaba entonces con 17 años y ya dejaba entrever su potencial que lo llevaría a alinearse con Eduardo Arolas en el cuarteto que éste dirigía.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhBv-ctL6gmXYQGIJynG775802Pq0vcV98dkRORUeswROmqMB6qWlc579TI5_vM3Yr82bM08IBvU_5p7vOVQXaAotFUKYRIJHYY9stCxe76gCyQqKgoBt60dc9eLdmLD3BqY7nFmIcUN9bq/w400-h260/Z441.png)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhBv-ctL6gmXYQGIJynG775802Pq0vcV98dkRORUeswROmqMB6qWlc579TI5_vM3Yr82bM08IBvU_5p7vOVQXaAotFUKYRIJHYY9stCxe76gCyQqKgoBt60dc9eLdmLD3BqY7nFmIcUN9bq/s504/Z441.png)Tito Roccatagliata, Eduardo Arolas y Roberto Firpo en 1914.
+[![](/tangos-al-bardo/images/124ae75802de.png)](/tangos-al-bardo/images/f519f9122ce3.png)Tito Roccatagliata, Eduardo Arolas y Roberto Firpo en 1914.
 
 Con Arolas formarían un dúo muy compinchado, tanto para interpretar la música popular que estaba iniciando su marcha imparable hacia la popularidad imparable, como para vivir la bohemia nochera a toda máquina, como si la existencia fuera muy corta. Su rica historia tanguística ya la he contado en esta página y hoy quiero detenerme en la creación de su tango más hermoso, el que sobreviviría a su corta vida, ya que murió con 34 años de edad.
 

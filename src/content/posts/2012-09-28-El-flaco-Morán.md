@@ -20,7 +20,7 @@ Entonces debutan y se instalan en la Confitería Montecarlo de Corrientes y Libe
 
 Y el Flaco se presentaba siempre con el estribillo de *Muchachita de barrio*, entre las ovaciones y gritos de sus fanas:
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiJVsaYzHZFLi8o7sqUY_YBEiaeTj4PJDfnO3iilaBznnKBj0nbcMxZuggm8laNezx9E5n-aedZ8R2-xiy2RYuZTjjDbaGk4vMEnY35VGVZnfnxlrhFEEJO5n4R-0ZKTjnpPljimL4jgSv2/s320/Mor%C3%A1n.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiJVsaYzHZFLi8o7sqUY_YBEiaeTj4PJDfnO3iilaBznnKBj0nbcMxZuggm8laNezx9E5n-aedZ8R2-xiy2RYuZTjjDbaGk4vMEnY35VGVZnfnxlrhFEEJO5n4R-0ZKTjnpPljimL4jgSv2/s1600/Mor%C3%A1n.jpg)*Humilde pebeta de todos los barrios
+[![](/tangos-al-bardo/images/d7eee3764bac.jpg)](/tangos-al-bardo/images/eaac433589d0.jpg)*Humilde pebeta de todos los barrios
 almita que sueña, rayito de sol.
 Muchachos que ponen el alma en un tango
 y que se estremecen al compás del bandoneón.

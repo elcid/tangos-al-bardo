@@ -37,7 +37,7 @@ que mojaba con bon vin.
 
 ¿Quién no ha evocado aquellas liturgias adolescentes, la cartografía emocional, los inmigrantes en las casas largas, la humilde fonda, los perfiles de aquellos muchachos mayores extravertidos que nos llenaban de asombros, las quimeras soñadas? Cátulo recrea el fervor de la esquina, esa tinta roja en forma de sangre que salpica el paredón grisáceo, dejándole un recuerdo que se inserta para siempre en los ojos del muchachito imberbe. El balcón de la piba que despertó sus primeros sueños. Y la evocación lo lleva a evocar la confluencia de elementos que desaparecieron en la sociedad de la prisa.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjFfN_-w30YV2Xtd1MvXH8kcJDWYY5RoCvm1_Q5ZEQy7Yy6_8-2jyoPtK7PDFQpy9rpszTgKAtElq6odFDkqKMaWjtpOGofdbgvutylNk5cRe-NzXW5S2Z_4g_NRWWjctklCFMSDJkfh-d-/s400/Tinta+rojaD_NQ_NP_853887-MLA32662091920_102019-W.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjFfN_-w30YV2Xtd1MvXH8kcJDWYY5RoCvm1_Q5ZEQy7Yy6_8-2jyoPtK7PDFQpy9rpszTgKAtElq6odFDkqKMaWjtpOGofdbgvutylNk5cRe-NzXW5S2Z_4g_NRWWjctklCFMSDJkfh-d-/s1600/Tinta+rojaD_NQ_NP_853887-MLA32662091920_102019-W.jpg)¿Dónde estará mi arrabal?
+[![](/tangos-al-bardo/images/f579729fa2be.jpg)](/tangos-al-bardo/images/c3a7dbae34a7.jpg)¿Dónde estará mi arrabal?
 ¿Quién se robó mi niñez?
 ¿En que rincón, luna mía,
 volcás, como entonces,

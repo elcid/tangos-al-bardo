@@ -13,7 +13,7 @@ tags: ["Osvaldo Pugliese", "Víctor Lavallén", "Astor Piazzolla", "Horacio Salg
  Las orquestas, que no se diferenciaban casi entre sí, apelaban a los mismos trucos instrumentales que el público tardaría en descubrir y repudiar: "*La esencia del swing es la repetición de frases tontas, comenzando fortissimo y siguiendo de allí en adelante cada vez más fuerte*", ironizó Spike Hugues. Una de las características de ese movimiento fue, según el musicólogo Ernest Borneman, "*el aumento de la orquesta, de seis o siete instrumentistas, a doce o quince, lo cual no se efectuó mediante la adición de nuevos instrumentos, sino merced a la multiplicación de los tres instrumentos fundamentales".*
 
 Son los seis ejecutantes más notorios de la orquesta de Osvaldo Pugliese que, con permiso para actuar y grabar por su cuenta, logran un resultado superior al de su director con la orquesto grande. La demostración: el primer disco del Sexteto Tango, lanzado a la venta la semana pasada.
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgD89W4Z-_Pyu63HNMdhOtRahBdBGbD1DX-nu4VbARGcHXzlCMaPqYvIY5jBWz1GsskgzJQaXoYa7tEmJ3l_bH_J0AD5mOv-_ud2WCEBWdStmF_HgcnJhEf2w_2IiDXAEG_TdoKfhX1wES6/w400-h265/sexteto+tango.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgD89W4Z-_Pyu63HNMdhOtRahBdBGbD1DX-nu4VbARGcHXzlCMaPqYvIY5jBWz1GsskgzJQaXoYa7tEmJ3l_bH_J0AD5mOv-_ud2WCEBWdStmF_HgcnJhEf2w_2IiDXAEG_TdoKfhX1wES6/s604/sexteto+tango.jpg)Ruggiero, Herrero, Plaza, Maciel, Balcarce, Rossi y Lavallén
+[![](/tangos-al-bardo/images/e2cf2a3be94b.jpg)](/tangos-al-bardo/images/3ea094cd9535.jpg)Ruggiero, Herrero, Plaza, Maciel, Balcarce, Rossi y Lavallén
 
 
 

@@ -24,7 +24,7 @@ Podemos entrar en trance extático o desplegar un repertorio sin fin de fantasí
 
 Y es muy cierto que, en esta faceta se aprecia especialmente la visibilidad del talento femenino, como coadjutora en la creación de las diferentes figuras, pausas y eje de equilibrio para la propulsión. Porque se adapta como un guante de seda al espíritu creativo del masculino, manteniendo entrambos el pulso de la actuación.
 
-[![](https://blogger.googleusercontent.com/img/a/AVvXsEj6D8yMgkCPUGnufth06mI_CK7P1aIJ_Tbb_THgfTdGYgeNr2VOkm-bwNe8nFvB6nDZFqsSj0m4OTfmDE8-7v8e4Qz_D1qgg_iDMTNd97HMbJwm5kM0n942wdULEDQyiVioQaYrl2y7XRNiP6oFzeCfaWxd9j46gXfss29nnqRzhHI8JVjlLpBszstYoQ=s320)](https://blogger.googleusercontent.com/img/a/AVvXsEj6D8yMgkCPUGnufth06mI_CK7P1aIJ_Tbb_THgfTdGYgeNr2VOkm-bwNe8nFvB6nDZFqsSj0m4OTfmDE8-7v8e4Qz_D1qgg_iDMTNd97HMbJwm5kM0n942wdULEDQyiVioQaYrl2y7XRNiP6oFzeCfaWxd9j46gXfss29nnqRzhHI8JVjlLpBszstYoQ=s340)
+[![](/tangos-al-bardo/images/01e736fa8db1.jpg)](https://blogger.googleusercontent.com/img/a/AVvXsEj6D8yMgkCPUGnufth06mI_CK7P1aIJ_Tbb_THgfTdGYgeNr2VOkm-bwNe8nFvB6nDZFqsSj0m4OTfmDE8-7v8e4Qz_D1qgg_iDMTNd97HMbJwm5kM0n942wdULEDQyiVioQaYrl2y7XRNiP6oFzeCfaWxd9j46gXfss29nnqRzhHI8JVjlLpBszstYoQ=s340)
 
 Entonces podríamos decir que la improvisación de la pareja en el tango, es como un vehículo movido por el deseo, cuyo motor son los sueños. Y el espacio se comba. La diferencia con una coreografía predeterminada, es que ésta se arma para componer bailes. Cada paso está marcado en la misma y si lo bailan durante cien días, saldrá siempre lo mismo. Son secuencias preestablecidas, mientras que en el Tango de pista, la mujer “escucha” las sugerencias del hombre y las interpreta y expresa.
 

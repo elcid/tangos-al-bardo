@@ -30,7 +30,7 @@ El prolífico y gran creador de tango que fue Enrique Cadícamo, nacido precisam
 
 Muy entusiasmado, se lo llevó manuscrito y días después lo estrenó en la radio y en el cabaret Tibidabo. La voz de su cantor Fiorentino realizó una creación original transformándolo en un éxito, identificándose tanto con esa novedad, que sus admiradores comenzaron a llamarlo *El cuarteador de Barracas.*
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjTJMXc6r-OOY96eyaIzQKFzjmD2pl5YjN1dEN_RDWst6zwF8jS3GuWDY21pn-pgVdJswbH_WUs2EqK6Iex5LUG3d2NcglM49Oa7uYwapIs8ODTWTpsssxhdpfpWPFRG_rne3PLTKYoViw/s320/T-F.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjTJMXc6r-OOY96eyaIzQKFzjmD2pl5YjN1dEN_RDWst6zwF8jS3GuWDY21pn-pgVdJswbH_WUs2EqK6Iex5LUG3d2NcglM49Oa7uYwapIs8ODTWTpsssxhdpfpWPFRG_rne3PLTKYoViw/s1600/T-F.jpg) Pichuco y Fiore en aquellos años de lujo para el tango
+ [![](/tangos-al-bardo/images/d2d21fab35bf.jpg)](/tangos-al-bardo/images/16df225ecfc4.jpg) Pichuco y Fiore en aquellos años de lujo para el tango
 
 Aparte de las palabras de Cadícamo que era un verdadero cuarteador para orquestas y cantores, es cierto que el tango resultó un exitazo cantándolo todo Buenos Aires y yo lo sigo bailando en la milonga llevado por la mano maestra de Orlando Goñi en el piano (otro cuarteador) y el fueye de Troilo que dibujan como cracks. Y la voz de Fiore es angelical.
 

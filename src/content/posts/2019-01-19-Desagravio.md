@@ -10,14 +10,14 @@ Traigo este tango a la página, lo desempolvo y lo rescato porque contiene los v
 
 ¿Cómo fue que se unieron para escribir este tango? ¿Cómo entrelazaron *l'amour fou* de ambos en una entrega común? Retornan las antiguas emociones por el flujo azaroso de la memoria y con escueto ropaje instrumental, aparecen vívidas en un tango, cuyas imágenes reflejan las aristas astilladas y perfiles vibrantes del amor desolado. Manzi y Contursi son los protagonistas de esta historia.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgb84p9a6IDvEDDvK6s0w1GL_4S9Ksu97k3vsTYPjDCH-J6AhC-hHCKRYU-hpeVpYLSH6TbZjFE0agkDU2ZdjNH6Jv8NaeRMq8aRpKuuKsR7b9j6SzIMUKbtXmV2ausuQpgAmJC1-BBj-jd/s320/Catungui.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgb84p9a6IDvEDDvK6s0w1GL_4S9Ksu97k3vsTYPjDCH-J6AhC-hHCKRYU-hpeVpYLSH6TbZjFE0agkDU2ZdjNH6Jv8NaeRMq8aRpKuuKsR7b9j6SzIMUKbtXmV2ausuQpgAmJC1-BBj-jd/s1600/Catungui.jpg) José María Contursi
+ [![](/tangos-al-bardo/images/e412543a66ab.jpg)](/tangos-al-bardo/images/efd63ae1c0de.jpg) José María Contursi
 Ambos se encontraron con Pichuco que en ese año de 1944 había llevado al disco *Cristal, Sombras nada más* y *Tabaco,* del *Catunga* Contursi, y *Torrente*, de Manzi. Mientras Pichuco se fue hasta SADAIC y pidió que lo esperaran en el café que está cercano a la entidad de los compositores y poetas, los dos grandes del verso charlaron y entre una cosa y otra surgió la idea de escribir un tango. La idea la tiró Contursi que venía de pegar un exitazo con *Sombras nada más*. Lo grabó Lomuto con el cantor Alberto Rivera y le dijo al Catunga:
 -*A ver cuándo me traés otro tema como éste..*.
 
 Y quedaron en encontrarse para trabajar sobre el tema del amor... *"en llanta*", como diría Homero. Y mientras éste revolvía el nuevo café que había pedido, soltó el título: "*Desamparo.*..". Y al rato: "*No, mejor "Desagravio*". Y el Catunga agregó:
 -*Yo hago la primera parte y te la paso para que corrijas y hagas lo que sigue...*
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiNs80YDVud50kr4o7g_Jly6Eh9FyMEqFr_Gn1WNp8MexoJLZnVZJinbm7TwXF6b5sH1pxQG0HTVpYhzSicEWSnSztvv0RZCi-ddP9-BVtXAiv6fPUX82bmHlYA6Fl2X-LErcUhifb13G5k/s1600/Explorar0019.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiNs80YDVud50kr4o7g_Jly6Eh9FyMEqFr_Gn1WNp8MexoJLZnVZJinbm7TwXF6b5sH1pxQG0HTVpYhzSicEWSnSztvv0RZCi-ddP9-BVtXAiv6fPUX82bmHlYA6Fl2X-LErcUhifb13G5k/s1600/Explorar0019.jpg) Homero Manzi
+ [![](/tangos-al-bardo/images/c97aa57a9d2b.jpg)](/tangos-al-bardo/images/c97aa57a9d2b.jpg) Homero Manzi
 Las historias de Gricel y de Nelly Omar con ambos poetas fue la llave que latió en los versos.
 
 *El destino, que siempre vive alerta*

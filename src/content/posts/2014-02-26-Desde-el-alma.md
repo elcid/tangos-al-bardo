@@ -15,7 +15,7 @@ Desde entonces se convirtió en un clásico y fue consagrado mayoritariamente co
 
 Víctor Piuma era empleado del Ministerio de Hacienda y le fue poniendo versos a todas las creaciones de su esposa. Entre otras, a *Desde el alma*, aunque los mismos no trascendieron mayormente. cosa que en cambio, sí sucedió con la melodía que se hizo muy familiar en todas las casas, bailes, casamientos, serenatas y guitarreadas.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi5muXdS92eXvZmXhwpmflj3aDLQI-GlhkpvQVwoBTOshV0JgvNPKG-_R9f8E5iDn6fw2BDh3UNkV9SiJvQ4h865ePbdgn0eKuPSd9euIbwoUtUe5bzTDkst7bM-AcN6MjnO3B6ZStd0_M/s1600/Rosita+Melo.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi5muXdS92eXvZmXhwpmflj3aDLQI-GlhkpvQVwoBTOshV0JgvNPKG-_R9f8E5iDn6fw2BDh3UNkV9SiJvQ4h865ePbdgn0eKuPSd9euIbwoUtUe5bzTDkst7bM-AcN6MjnO3B6ZStd0_M/s1600/Rosita+Melo.jpg) Rosita Melo
+ [![](/tangos-al-bardo/images/7e8eec23ef09.jpg)](/tangos-al-bardo/images/7e8eec23ef09.jpg) Rosita Melo
 En 1948, Homero Manzi, llama a la casa de Piuma-Melo, en la calle Varela, del barrio de Flores, para solicitarle a Piuma la posibilidad de hacerle una nueva letra al ya famoso valsecito. Ocurría que la anterior no se adaptaba a lo que precisaba Hugo del Carril para cantarlo en la película *Pobre mi madre querida*, que se comenzaba a filmar, con Hugo, Emma Gramática y Aída Luz, como figuras centrales. Y la nueva letra debería estar referida a la madre. Piuma aceptó encantado, Manzi hizo los versos y los firmaron junto a Piuma Vélez.
 
 

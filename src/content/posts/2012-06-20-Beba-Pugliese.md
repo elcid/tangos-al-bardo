@@ -11,7 +11,7 @@ El apellido es como una voz que restituye el clima de fervor milonguero, aquella
 Pero, ser hija de Don Osvaldo no le impidió hacer su propia carrera y sobrellevar el peso de la herencia en base a estudios con grandes profesores. Primero en danzas, después piano, con su tía Adela Florio, luego con los maestros Pedro Rubione, Oreste Castronuovo y Berta Sujovolsky. Y finalmente diez años de perfeccionamiento con el maestro Vicente Scaramuzza.
 
 Toda una pianista clásica que vió ensayar tantas veces en su casa a los muchachos de Pugliese: Osvaldo Ruggiero de pantalones cortos, Jorge Caldara, Esteban Gilardi,* Cacho* Herrero y la *sinfónica* que diría Félix Picherna, el discjockey.
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgC7JuPw8pYvX2IfM-M7Cle0FdFitrGGTiREEX0lTRdHplPjg__Pg1aGTN8KloW1i4QWi8w1v6MavLykUIJwMXqSMIxffts_GeUsWuARsjj3qsJTyVBXPTpW-BqTUkhYLm2S4AtQRawl3xx/s320/1a.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgC7JuPw8pYvX2IfM-M7Cle0FdFitrGGTiREEX0lTRdHplPjg__Pg1aGTN8KloW1i4QWi8w1v6MavLykUIJwMXqSMIxffts_GeUsWuARsjj3qsJTyVBXPTpW-BqTUkhYLm2S4AtQRawl3xx/s1600/1a.jpg) Beba con su padre
+ [![](/tangos-al-bardo/images/e26f2e774b6a.jpg)](/tangos-al-bardo/images/f6292cd7fbce.jpg) Beba con su padre
 
 Para ella, pasar de Beethoven, Bach o Mozart al tango, era un salto muy grande. Ese día tardó en llegar, pero un día estudiando un tango de Bardi: *Qué noche*, comenzó a descubrir tonos y riquezas inesperadas. Y como la habían invitado a tocar en un homenaje al maestro Sebastián Piana, allí, el tango y ella se dieron la mano, se redescubrieron y pasaron a ser familiares.
 

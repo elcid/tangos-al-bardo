@@ -10,7 +10,7 @@ Hoy se me metió este tango en el balero y llevo cantándolo toda la matina. Son
 
 La letra le pertenece al fecundo creador Leopoldo Díaz Vélez y la música al bandoneonista Juan Pomati, con quien a los 21 años escribí mi primer verso de tango, al que él le adosó la melodía, y que se perdió en la niebla de los tiempos. Díaz Vélez fue un temprano verseador que le fue agarrando el gustito a la poesía, mientras el padre lo familiarizaba con el tango. Con el tiempo se haría cantor y también crearía temas de largo y exitoso recorrido.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjLQu6ohp9WhlPCdmmdzEy7L7ELdJekeeSUSLdfTF9HSjw-ZQDyqEJjYF1_V2h22XHttRkyvJjGBqMejm7ioKQ02D987qrI7_ZfXRVaueZLyNKGroXevYBMq3sPgdjObxTtKn7ABDwif9I/s1600/academia.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjLQu6ohp9WhlPCdmmdzEy7L7ELdJekeeSUSLdfTF9HSjw-ZQDyqEJjYF1_V2h22XHttRkyvJjGBqMejm7ioKQ02D987qrI7_ZfXRVaueZLyNKGroXevYBMq3sPgdjObxTtKn7ABDwif9I/s1600/academia.jpg) Díaz Vélez con Silvana Gregori
+ [![](/tangos-al-bardo/images/e24bb46c6e6f.jpg)](/tangos-al-bardo/images/e24bb46c6e6f.jpg) Díaz Vélez con Silvana Gregori
 
 Alcanzaría con nombrar a *La milonga y yo, Entre tu amor y mi amor, Muchachos comienza la ronda, Boliche de cinco esquinas, 1910, En el salón, Si es mujer ponele Rosa, Quien tiene tu amor, Embrujo de la ciudad, Qué habrá sido de Lucía, Que no saque el tres, El picaflor del oeste*, y una parva interminable de canciones de todos los ritmos, folklore, temas dedicados a ciudades, provincias y clubes de fútbol. Y además de todo ello y de la obligada bohemia, de cantar con diferentes orquestas, le gustaba la milonga y por eso escribía versos como éste del título:
 
@@ -23,7 +23,7 @@ dejame confesarte lo que sufrí
 pensando en este baile tan esperado
 sabiendo que estarías cerca de mí.*
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhiFDGU49t14et48_6tvpRYBh3JGNaWzcCy9oFSlwbaC3xeiNRTKoNWFaxj0l9IzIbqN921Pu6oGW0anpELJL3A2WglblsxPcbat4mh7I7GgGZth7F487yhj_KpN5TExKSEqQBAQYmn18k/s1600/ldvelez1.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhiFDGU49t14et48_6tvpRYBh3JGNaWzcCy9oFSlwbaC3xeiNRTKoNWFaxj0l9IzIbqN921Pu6oGW0anpELJL3A2WglblsxPcbat4mh7I7GgGZth7F487yhj_KpN5TExKSEqQBAQYmn18k/s1600/ldvelez1.jpg) Leopoldo Díaz Vélez con uno de sus mayores éxitos
+ [![](/tangos-al-bardo/images/6487322b735d.jpg)](/tangos-al-bardo/images/6487322b735d.jpg) Leopoldo Díaz Vélez con uno de sus mayores éxitos
 También, como era muy observador, cuando cantaba con la orquesta de Armando Pontier en el Centro Lucense de Olivos (adonde fuimos tantas veces con la barra), con *Los Dados Blancos*, con la de Francisco Requena, Emilio Orlando o Eladio Blanco entre otras, no perdía detalle de lo que pasaba en la pista de baile y de allí surgieron varios de sus versos. Entre ellos: *Salimos a bailar.*
 
 *¿Salimos a bailar, sueño querido?

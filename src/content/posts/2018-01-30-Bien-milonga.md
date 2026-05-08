@@ -6,7 +6,7 @@ labels: ""
 tags: ["Carlos Di Sarli"]
 ---
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgqH54g1XKnW9yq5XWyj2awzvn6brknEOjk-sPcZkuWRa6RNyGd9tk0bv-t4w356rqPuO-wvUpyYCdzbWOhnbP2divMixXt5qwZPLFvsuZZmobUU4Ifp-rU9TutW95TUIpbgYPLxHKmwVru/s200/dopia.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgqH54g1XKnW9yq5XWyj2awzvn6brknEOjk-sPcZkuWRa6RNyGd9tk0bv-t4w356rqPuO-wvUpyYCdzbWOhnbP2divMixXt5qwZPLFvsuZZmobUU4Ifp-rU9TutW95TUIpbgYPLxHKmwVru/s1600/dopia.jpg) *Bailar el tango con vos, firuleteado,*
+[![](/tangos-al-bardo/images/574158944d2d.jpg)](/tangos-al-bardo/images/43d3855d17a7.jpg) *Bailar el tango con vos, firuleteado,*
 * quebrar el aire, correr siempre abrazados, *
 * doblar un "ocho" al final de una mirada,*
 * hacerle piernas al amor de una "sentada"*

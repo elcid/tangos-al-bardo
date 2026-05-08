@@ -16,7 +16,7 @@ Siempre tuvo gente al lado que era troileana. Antes de trabajar conmigo le habí
 
 Y toqué el cielo con las manos cuando en el 58 le entregué a Pichuco mi tango **Danzarín.** Recuerdo que él empezó por la segunda parte; esto me cambiaba el esquema y me desconcertaba. Troilo estaba acostumbrado a tomar con total libertad los arreglos, incluso les que le escribió Piazzolla. Pero siempre tenía razón; sabía lo que quería cuando adaptaba partituras a su estilo.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjokl0qaTwFIb73LTNR5hwqEAoYxp-fgT-R03GuhFtxf1wDLoADFM5B8_1ABH2l4Zol8oh8qPmecj-UlGuBl2z8syQ7Wg2HxKohwouE5KdCZtf-hrPGV8Gf1VTS1nXRdvs4EFOiy-1_TMGw/w400-h264/Plaza%252C+SucherEqRlzKOXEAcPyfc.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjokl0qaTwFIb73LTNR5hwqEAoYxp-fgT-R03GuhFtxf1wDLoADFM5B8_1ABH2l4Zol8oh8qPmecj-UlGuBl2z8syQ7Wg2HxKohwouE5KdCZtf-hrPGV8Gf1VTS1nXRdvs4EFOiy-1_TMGw/s680/Plaza%252C+SucherEqRlzKOXEAcPyfc.jpg)Julián Plaza, Manuel Sucher, Alberto Gómez, Cátulo y Troilo
+[![](/tangos-al-bardo/images/e1fc9e108092.jpg)](/tangos-al-bardo/images/d223659cdb82.jpg)Julián Plaza, Manuel Sucher, Alberto Gómez, Cátulo y Troilo
 
 Troilo me grabó nueve obras. Coincidentemente, a Astor Piazzolla también. Trabajar con Troilo me abrió la puerta a otros músic**os. **Tuve la suerte de que incorporara prácticamente en todas sus presentaciones:** Danzarín y Nocturna**. Esto me dio a mí, como compositor, la posibilidad de que esas piezas pasaran a ser obligadas en muchas orquestas.
 

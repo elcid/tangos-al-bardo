@@ -9,7 +9,7 @@ tags: ["Carlos Di Sarli", "Teófilo Ibáñez"]
 Esta milonguita de Armando Baliotti y Santiago Adamini, ilumina el centro de Buenos Aires, donde el tango sentó sus bazas ganadoras. Ya fuese en los cafés iniciales de la calle Corrientes, como en los posteriores cabarets o las Confiterías bailables que tanto juego le dieron a los milongueros de los años cuarenta y cincuenta. Lo canta maravillosamente, fiel a su estilo, Angelito Vargas con la orquesta de Ángel D'Agostino y hoy nos ilumina la página de** BIEN MILONGA**.
 
 Soy modesto, tan modesto
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjPYLbIKUE5Sz_UDN2UgZg9S5cNRxY9WKa5aYMFGhjgv7YElAj5ds6kUzHrcmV84G7uvZuO3YpyssnrgBESNAuOp1h6UFrNQYM2ZB3NBoyipRP9KT3aiSvFO01f_6Jrc1IMpSKyEbEPi-fY/s400/Dag.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjPYLbIKUE5Sz_UDN2UgZg9S5cNRxY9WKa5aYMFGhjgv7YElAj5ds6kUzHrcmV84G7uvZuO3YpyssnrgBESNAuOp1h6UFrNQYM2ZB3NBoyipRP9KT3aiSvFO01f_6Jrc1IMpSKyEbEPi-fY/s1600/Dag.jpg)que me limito a callar
+[![](/tangos-al-bardo/images/c2241c33fe0e.jpg)](/tangos-al-bardo/images/3730dbd761f0.jpg)que me limito a callar
 cuando escucho que comentan
 mi manera de bailar.
 Unos dicen que en el tango

@@ -25,7 +25,7 @@ El tango lo introdujo en España la compañía Enrique Muiño-Elías Alippi, y l
 Se lo contaría al regreso a Francisco García Jiménez, sorprendido porque *La copa del olvido*, tuviera aún más repercusión en la madre patria. Y, al efecto mostraba recortes periodísticos. El Diario ABC en un comentario al respecto, decía: "...*en el trecho más concurrido de la calle de Alcalá, por la acera de las Calatravas, unos músicos callejeros arrancan a sus viejos instrumentos las notas de* La copa del olvido. *Y una opulenta rubia y una grácil modistilla de ojos precoces, tararean por lo bajo,* Mozo, traiga otra copa...
 ...*y un mozancón que lleva una cesta al hombro, interrumpe su marcha y canta también*, Y si la mato, vivir sin ella...."
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEju22sgbgTo9me-7mn58d2RK2M71iK_v5V-8AKyxmR5LuH6sNuqbBu7I9an4bnWeaFF3jYyJwUyyMi3H94QjurvLee8MnIRx_UeDzB9e-efazGX8JPxKGoIwsQs2oOcQSaU0YxNwa_9eeA/s1600/Vaccarezza.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEju22sgbgTo9me-7mn58d2RK2M71iK_v5V-8AKyxmR5LuH6sNuqbBu7I9an4bnWeaFF3jYyJwUyyMi3H94QjurvLee8MnIRx_UeDzB9e-efazGX8JPxKGoIwsQs2oOcQSaU0YxNwa_9eeA/s1600/Vaccarezza.jpg) Alberto Vaccarezza
+ [![](/tangos-al-bardo/images/94ab5f698462.jpg)](/tangos-al-bardo/images/94ab5f698462.jpg) Alberto Vaccarezza
 
 En *La Noche*, de Barcelona, se leen estos comentarios sobre el mismo tango de Delfino y Vaccarezza: "*Las criadas lo cantan, con acompañamiento de fregadero y escoba; las pianolas, lo ciegos, los quintetos de cabarets y cinemas...*". Cuando Delfino debuta en el Teatro Maravillas de Madrid con su espectáculo, un cronista escribe a propósito, para presentarlo: "*¿Recordáis* La copa del olvido?"
 

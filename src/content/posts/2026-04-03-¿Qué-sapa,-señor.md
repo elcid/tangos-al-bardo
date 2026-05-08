@@ -7,7 +7,7 @@ tags: ["Enrique Santos Discépolo", "Francisco Canaro", "Charlo"]
 ---
 
 La catilinaria discepoleana se vuelca en este tango, compuesto en 1931, y que pinta la situación política-económica que vivía Argentina, desde el golpe de estado que el 6 de septiembre de 1930 derrocaría al gobierno presidido por Hipólito Yrigoyen. Casi todas las provincias habían sido intervenidas durante el mandato de Yrigoyen.
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjZfwBPzcp8r4rmPRGfunQV_2AoPcogLDleIFolHZebdkRwfXDdnbSjV16HmLBwXJlvJOvV76R_Z6ToQ2GSJt_O0nYg5usxjJZJbh-XP_LVowTkxL3MeT2AN0bhtONKds8jo8xvIC6Fe6G5kFLn8Z5HvBg6FLXKn_S56pedMJIwOGbRKnUQm2kUcQidytcJ/s320/DISCE%20%20%20ryVPFdLQz_720x0.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjZfwBPzcp8r4rmPRGfunQV_2AoPcogLDleIFolHZebdkRwfXDdnbSjV16HmLBwXJlvJOvV76R_Z6ToQ2GSJt_O0nYg5usxjJZJbh-XP_LVowTkxL3MeT2AN0bhtONKds8jo8xvIC6Fe6G5kFLn8Z5HvBg6FLXKn_S56pedMJIwOGbRKnUQm2kUcQidytcJ/s1126/DISCE%20%20%20ryVPFdLQz_720x0.jpg)Enrique Santos Discépolo
+[![](/tangos-al-bardo/images/34e1ae5e5ade.jpg)](/tangos-al-bardo/images/7c36eaf38830.jpg)Enrique Santos Discépolo
 
 En este clima sumado a la grave crisis económica en 1930 se produce el primer golpe de Estado de Argentina. El diario "Crítica" fue evolucionando cada vez más hacia posturas de la extrema derecha. Fue así que dio su pleno apoyo al golpe de Estado del 6 de septiembre de 1930 que encabezado por el general José Félix Uriburu derrocó al gobierno de Yrigoyen. En enero de 1929, durante la segunda presidencia de Hipólito Yrigoyen, Roberto Arlt publicó en el diario El Mundo, un artículo titulado "Su Majestad, la coima", donde escribe:
 

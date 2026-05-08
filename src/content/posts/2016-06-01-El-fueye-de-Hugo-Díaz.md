@@ -12,7 +12,7 @@ tags: ["José Colángelo", "Aníbal Troilo", "José Canet", "Hugo Díaz"]
 
 Era un santiagueño total, en su mansedumbre, la gracia chispeante y el foklore de su tierra caliente instalado en el alma. Le regalaron una armónica cuando tenía 4 años, y como quedó ciego durante un año, por un pelotazo que recibió mientras veía a los *changos* correr detrás del balón, el instrumento le sirvió para mitigar su pena durante la convalecencia. Y le arrancaba intuitivamente melodías increibles.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhIPg3KwRsVn1B3R2W7Mr0JpMhXlnI5XE5lR58AwEZzqyv6TkiUF92Eq65O8ZIv5bFI2fjZlva73Hl9JesYXIRciZedgH5NHntiDiJb8jI9I71pGxNhzbfs4mrLkrDgvwCDpq42YP-3IZSo/s320/Hugo+D%C3%ADaz+-+As%C3%AD+es.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhIPg3KwRsVn1B3R2W7Mr0JpMhXlnI5XE5lR58AwEZzqyv6TkiUF92Eq65O8ZIv5bFI2fjZlva73Hl9JesYXIRciZedgH5NHntiDiJb8jI9I71pGxNhzbfs4mrLkrDgvwCDpq42YP-3IZSo/s1600/Hugo+D%C3%ADaz+-+As%C3%AD+es.jpg)Llegó, sin saber música, a manejar el piano, el contrabajo, el violín y el bajo. Era un superdotado, pese a que nació en un hogar pobrísimo y con la oreja derecha sin desarrollar plenamente.
+[![](/tangos-al-bardo/images/5cb09148df6c.jpg)](/tangos-al-bardo/images/eeba3b73e1f0.jpg)Llegó, sin saber música, a manejar el piano, el contrabajo, el violín y el bajo. Era un superdotado, pese a que nació en un hogar pobrísimo y con la oreja derecha sin desarrollar plenamente.
 
 Y así también llegó a ser uno de los mejores armonicistas del mundo, pese a esas limitaciones. A los 9 años ya integraba, como solista de armónica, la primera orquesta folklórica creada por el Consejo de Eduación en Santiago del Estero. Y se había iniciado como bajista en una banda de jazz, música que sería otra de sus pasiones.
 
@@ -27,7 +27,7 @@ Anduvo por medio mundo tocando y paseando nuestro folklore en los grandes escena
 
 Su forma de *canta*r los temas, tocando como si fuera un fueye (era fana de Troilo), con esos arrastres impresionantes, cantando la melodía con un fraseo increíble, recreándose en los rubatos, nos dejan sin palabras. En Japón consiguió dos *Discos de oro* con sus tangos grabados.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhSQ52Ow0nLK3PfX0HyYz-ru_Y-leBUTBLkc5X6Yq7k8e30Lhr81j-4c3m0eLH_avRRx5uNq-xO0faPu8ayMUhegUf18mCoKcv1v6K4a5XtITD6zT2KA-M_ADkQLjK8zQhePHcLyqItdlOi/s400/troilo%252C+ata+y+hugo+diaz.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhSQ52Ow0nLK3PfX0HyYz-ru_Y-leBUTBLkc5X6Yq7k8e30Lhr81j-4c3m0eLH_avRRx5uNq-xO0faPu8ayMUhegUf18mCoKcv1v6K4a5XtITD6zT2KA-M_ADkQLjK8zQhePHcLyqItdlOi/s1600/troilo%252C+ata+y+hugo+diaz.jpg) Aníbal Troilo, Atahualpa Yupanqui y Hugo Díaz en la playa de Mar del Plata
+ [![](/tangos-al-bardo/images/cc20c742f807.jpg)](/tangos-al-bardo/images/ff413b90b6e5.jpg) Aníbal Troilo, Atahualpa Yupanqui y Hugo Díaz en la playa de Mar del Plata
 En algunos de los LP que grabó lo acompañan José Colángelo en piano, Omar Murtagh en contrabajo y Díaz y Pereyra en guitarras. Son ellos mismos quienes se asombran al ver las cosas que hace Hugo. De repente Colángelo está jugando y tocando en el piano unos aires de milonga, y Hugo se prende al toque inventándose el tema allí mismo, ante el júbilo de los técnicos que registran la improvisación, titulada luego: **Milonga para una armónica**. Sólo los genios pueden hacer estos milagros.
 
 Los invito a escucharla y a continuación con esta misma gente el vals: **Pedacito de cielo,** de Stamponi y Francini. Cosa de locos.

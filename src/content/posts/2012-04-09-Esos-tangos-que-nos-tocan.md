@@ -11,7 +11,7 @@ Los milongueros sentimos que hay tangos, milongas o valses que nos empujan a la 
  Es Don Carlos Di Sarli con ese tintinear de campanitas que le arranca al teclado y el infinito coro de cuerdas que marcan su estilo inconfundible.
  El *Tuerto* es marca registrada en la milonga y se baila con unción y sentimientos a flor de piel. Son innumerables los temas suyos que resultan imprescindibles en la discoteca de un tanguero.
  Yo escojo dos que siempre me *“ponen*”, porque tienen ese “*algo más*”, que exaltan mi ánimo: **Ensueños** e **Indio manso**. El primero lo grabó en setiembre de 1943 y el segundo en 1958.
-  [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgUMZEjX9_R4VL2lq7_RAQ7z4XoYAM8DHekAeqLXnyGYLIHL-eWR4J4_UikXKCc9I9-NCwxGaXZOk29JBIwyR6yuC3zi1bIqvDyE5hVCDTOplv6oNNp7avZeTwFhxYOXU0IoaKp-oAFbGlS/s1600/Ensue%C3%B1os_1.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgUMZEjX9_R4VL2lq7_RAQ7z4XoYAM8DHekAeqLXnyGYLIHL-eWR4J4_UikXKCc9I9-NCwxGaXZOk29JBIwyR6yuC3zi1bIqvDyE5hVCDTOplv6oNNp7avZeTwFhxYOXU0IoaKp-oAFbGlS/s1600/Ensue%C3%B1os_1.jpg)
+  [![](/tangos-al-bardo/images/a8a9bce2a17f.jpg)](/tangos-al-bardo/images/a8a9bce2a17f.jpg)
 
  El primero le pertenece al pianista Luis Antonio Brighenti, que al final de su carrera musical colaboró en la orquesta de Miguel Caló. En la que él dirigió, tuvo de cantor a Virginio Gobbi, hermano de Alfredo y también músico. Sus obras tienen el corte de *tango romanza*, y* **Ensueños*** es su mayor logro.
  ***Indio manso*** es de otro pianista: Héctor S. Quesada. Un músico solista que también compartió dirección con Francisco Lomuto en la formación que ambos tuvieron. En este tango encontró una veta interminable.

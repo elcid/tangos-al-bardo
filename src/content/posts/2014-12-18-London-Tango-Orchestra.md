@@ -17,7 +17,7 @@ El Once Tango Club, Tango Federico, Iglesia de St. James en Piccadilly, Una seri
 
 La orquesta interpreta música desde el rico repertorio del tango, antiguos y nuevos, compartiendo su amor por la música del mismo a través de conciertos, milongas y talleres, e intercambios culturales entre los músicos de Europa y Argentina. El grupo también actúa en formaciones más pequeñas, como el Cuarteto London Tango.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgRnWgD44hdAX38NNM-dXejHRBEY3fTEcDQwY_CEAorhRYpNLLmNcyhhKBgv3qAoxkWVUMNfzJ_ZU6reDHpj20E7ajdBSYJMJ0ncQHW4pMgNQzo52KZV1kyQNzQEG6uRui5wdgHNl24d_w/s1600/LTO-2web.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgRnWgD44hdAX38NNM-dXejHRBEY3fTEcDQwY_CEAorhRYpNLLmNcyhhKBgv3qAoxkWVUMNfzJ_ZU6reDHpj20E7ajdBSYJMJ0ncQHW4pMgNQzo52KZV1kyQNzQEG6uRui5wdgHNl24d_w/s1600/LTO-2web.jpg) La London Tango orchestra. De izq. a der. Rozenthuler es el 5º, junto a Caroline
+ [![](/tangos-al-bardo/images/93d65ef21fcd.jpg)](/tangos-al-bardo/images/93d65ef21fcd.jpg) La London Tango orchestra. De izq. a der. Rozenthuler es el 5º, junto a Caroline
 En el grupo figuran dos argentinos, la edad media de sus integrantes orilla los 39 años y la composición de la orquesta se integra de la siguiente manera:
 Caroline Pearsall -Violín y dirección.
 John Turville -piano

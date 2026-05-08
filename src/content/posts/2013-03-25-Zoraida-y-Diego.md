@@ -9,7 +9,7 @@ En estos veinte escasos días que pasé milongueando en Buenos Aires, se produjo
 
 También con las caras conocida de maestros del tango y de entre ellos, hoy quiero referirme especialmente a Zoraida Fontclara y Diego Álvaro, pareja de baile y de vida (tienen dos hijos pequeños), que van camino de los 13 años organizando su milonga: *El Abrazo*, en los salones de la confitería *La Ideal* en Suipacha 384.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEibt1tUsyZ0zkQV3P0H58FNsSgv2NmvbLM-fmSJw13wAYScj_SdVMiQTGSGwkGJi7oVN91KXFe_mOdHZoCcsAFW_CLxW_C0f9z72awXTXLwg4TtEEJQHC3ovAzDhX9AD7pDWZ-yKlaNBqc/s1600/Zoraida.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEibt1tUsyZ0zkQV3P0H58FNsSgv2NmvbLM-fmSJw13wAYScj_SdVMiQTGSGwkGJi7oVN91KXFe_mOdHZoCcsAFW_CLxW_C0f9z72awXTXLwg4TtEEJQHC3ovAzDhX9AD7pDWZ-yKlaNBqc/s1600/Zoraida.jpg) Zoraida y Diego  Desarrollan una enseñanza personalizada porque sostienen que cada bailarín tiene sus propios tiempos y necesidades. Y lo afirman con esta recomendación al alumno: *"Preferimos tu pregunta particular a enseñar una figura para todos simultáneamente". *
+ [![](/tangos-al-bardo/images/bd743ebda988.jpg)](/tangos-al-bardo/images/bd743ebda988.jpg) Zoraida y Diego  Desarrollan una enseñanza personalizada porque sostienen que cada bailarín tiene sus propios tiempos y necesidades. Y lo afirman con esta recomendación al alumno: *"Preferimos tu pregunta particular a enseñar una figura para todos simultáneamente". *
 
 Y yo digo que es el camino correcto porque uno ha visto los estragos producidos por esas enseñanzas multitudinarias de figuras...
 
@@ -23,7 +23,7 @@ Se bañaron en buenas fuentes y admiran a los viejos maestros que les transmitie
 
 Claro que uno, picado por la experiencia de la curiosidad no puede menos que preguntarles cuál fue el primer tango que bailaron juntos, y Diego sonríe y recuerda: *Bailamos con Zoraida en Glorias Argentinas, para una "Noche de milongueros" que organizaba Oscar Héctor. Y el tango primero fue *Recuerdo*, de Pugliese.*
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjHhh_reSkgLP1CIUjll0F_8kYexhYQP5DNgRQpuKYbqFq4Y_LUj86ncAWWnIGrIZeB3fzHCthW9Gjd4JsY86-IzF7ELOeDQqrrWxapIPu9hlpZXHhGWiRMI3sKdXqnp0dT_UxaGnj3Bhs/s1600/Diego+y+Zoraida.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjHhh_reSkgLP1CIUjll0F_8kYexhYQP5DNgRQpuKYbqFq4Y_LUj86ncAWWnIGrIZeB3fzHCthW9Gjd4JsY86-IzF7ELOeDQqrrWxapIPu9hlpZXHhGWiRMI3sKdXqnp0dT_UxaGnj3Bhs/s1600/Diego+y+Zoraida.jpg)Yo no desaproveché la ocasión y después de verlos a ambos haciendo un lujoso baile de swing, con la maravillosa expresividad de Zoraida, la ataqué sin más.
+[![](/tangos-al-bardo/images/9a47a8c31318.jpg)](/tangos-al-bardo/images/9a47a8c31318.jpg)Yo no desaproveché la ocasión y después de verlos a ambos haciendo un lujoso baile de swing, con la maravillosa expresividad de Zoraida, la ataqué sin más.
 
 *-Y ahora unos tangos*...
 - *Por supuesto* -respondió con su sonrisa habitual- y nos trenzamos en una tanda de D'Arienzo.

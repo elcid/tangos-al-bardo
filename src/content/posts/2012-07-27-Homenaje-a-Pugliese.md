@@ -16,7 +16,7 @@ Arturo Penón, primer bandoneón de la orquesta entonces, me contaría que esa n
 
 Su arreglo de *Inspiración*, fue una maravilla.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiDpNLZSJmSn3TBAy3UffAf0hQGx1dVnkKBsQvNYiEbpFBwipimgfahrJ6222JYfom6d9pzn9v9g4jFuqTJxOCL75SGJn8tErjTbty95fLZM4_f4sWIHtBQRlS1z1SBDVWogy1JNij0h-25/s320/Monumento+a+Pugliese.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiDpNLZSJmSn3TBAy3UffAf0hQGx1dVnkKBsQvNYiEbpFBwipimgfahrJ6222JYfom6d9pzn9v9g4jFuqTJxOCL75SGJn8tErjTbty95fLZM4_f4sWIHtBQRlS1z1SBDVWogy1JNij0h-25/s1600/Monumento+a+Pugliese.jpg) El recuerdo de Villa Crespo a su gran figura: Don Osvaldo y su orquesta
+ [![](/tangos-al-bardo/images/82f480886ec8.jpg)](/tangos-al-bardo/images/76a5ab9b33d1.jpg) El recuerdo de Villa Crespo a su gran figura: Don Osvaldo y su orquesta
 
 Y acá expongo el contenido del *regalito* tal cual me lo envió este amigo:
 

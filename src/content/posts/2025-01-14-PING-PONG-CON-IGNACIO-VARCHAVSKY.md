@@ -14,7 +14,7 @@ Tenía 11 años cuando su papá, por hacerle una gracia, le regaló un cassette 
 
 Pero sobre todo Varchausky es reconocido por ser uno de los artífices de El Arranque, una de las orquestas insignia que hizo resurgir el amor por la música porteña a oídos y cuerpos jóvenes allá por inicios de los ‘90, cuando muchos creían que ese enorme legado musical se estaba apagando.
 
-![Ping pong con Ignacio Varchausky: «¿Usted es el Hugo Baralis que tocaba en la orquesta de Troilo?»](https://www.tiempoar.com.ar/wp-content/uploads/2025/01/Ignacio-Varchausky_espectaculos_Mariano-Martino-3-500x333.jpg)
+![Ping pong con Ignacio Varchausky: «¿Usted es el Hugo Baralis que tocaba en la orquesta de Troilo?»](/tangos-al-bardo/images/aaa47729bb69.jpg)
 
 Aquella broma de su padre desató la curiosidad y audacia que Varchausky ya desplegaba a los once años y todavía marcan su forma de vida. “Agarré la guía telefónica y empecé a llamar a los coleccionistas. Ya un poco más grande me comunicaba directamente con los maestros. ‘Buenas tardes, ¿usted es el Hugo Baralis que tocaba en la orquesta de Aníbal Troilo? Lo quiero conocer’, me mandaba así, sin dudarlo”.
 

@@ -15,7 +15,7 @@ Y hoy me he topado con temas de Juan Carlos Tavera (Juan Carlos Moscón) y Osval
 
 Taranta fue un pianista de raza, a quien traté cuando tocaba en la orquesta de Gobbi, con quien hicieron compinchería. Conversando con él descubrí que pensaba como yo, que Goñi había sido lo más grande tocando tango, "*su mano izquierda fue una revolución*", diría públicamente. Y tomando un café en el boliche pegadito a Radio El Mundo -*Mi refugio*- me hablaba musicalmente de lo que había sido Goñi.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj834y_bZGaHg63ryJGzpWUz4HVyNqxj71a0YBC09oj7Xe06rgoXsKrOaknoL-vjaD3_6NTx43VYk9M0UTa8F5dA7UQ83nZ4JajJDIgvL00L7LkaMpUCbsyO0eNCQLwcHFe8KsUkAbNY6A/s1600/JUANCA+TAVERA.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj834y_bZGaHg63ryJGzpWUz4HVyNqxj71a0YBC09oj7Xe06rgoXsKrOaknoL-vjaD3_6NTx43VYk9M0UTa8F5dA7UQ83nZ4JajJDIgvL00L7LkaMpUCbsyO0eNCQLwcHFe8KsUkAbNY6A/s1600/JUANCA+TAVERA.jpg) Juanca Tavera
+ [![](/tangos-al-bardo/images/9deab311515b.jpg)](/tangos-al-bardo/images/9deab311515b.jpg) Juanca Tavera
 Una noche, después de tocar en la radio, Gobbi me llevó con él a comer un asado en Valentín Alsina, al que a su vez fue invitado por Taranta. La carne humeaba cuando llegamos en taxi a una casa de ésas de tipo chorizo, largas, con higuera al fondo y gallinero, en la provincia cruzando el Puente Alsina. Y resultó una noche inolvidable para mí, por muchas cosas, y porque entre otras, terminamos cantando serenatas.
 
 

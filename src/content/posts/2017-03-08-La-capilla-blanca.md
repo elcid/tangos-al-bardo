@@ -16,7 +16,7 @@ Es conocida la historia del encuentro entre el maestro bahiense y Marcó (cantor
 
 Ése sería el título del primer tema que escribirían juntos y que lo grabó la orquesta de Di Sarli con un jovencito Roberto Rufino, que apenas contaba 17 años de edad y que llegó al disco el 11 de diciembre de 1939. Justo un año más tarde volverán al ruedo con otro exitazo, el vals **Rosamel** que aún sigue prodigando sus efluvios por las pistas milongueras de todo el mundo, también cantado por Rufino.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjepxAZ_o0oFzJxNXEiSmEAlpjWAOPcpvLcgFzALX3MIwDnGffGVpmGsNerOGTkd4INLmkYPX07Wn6X2p_KQMglPqFJPpIOEZPIP0KCwuOmOKj2Rc_IHWqh38ebxAz_WAW9kYj6f_L7MnxA/s400/di_sa.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjepxAZ_o0oFzJxNXEiSmEAlpjWAOPcpvLcgFzALX3MIwDnGffGVpmGsNerOGTkd4INLmkYPX07Wn6X2p_KQMglPqFJPpIOEZPIP0KCwuOmOKj2Rc_IHWqh38ebxAz_WAW9kYj6f_L7MnxA/s1600/di_sa.jpg) Héctor Marcó junto Di Sarli y otras figuras del tango
+ [![](/tangos-al-bardo/images/ffd65cc2abca.jpg)](/tangos-al-bardo/images/bd159dc4c1ee.jpg) Héctor Marcó junto Di Sarli y otras figuras del tango
 
 *La capilla blanca* llegaría en 1944 y fue el resultado de una experiencia profunda de Marcó, que a su vez contagiaría al pianista de las gafas quevedianas. Di Sarli lo señaló como uno de sus temas de más calado y lo grabaría con el cantor Alberto Podestá el 11 de julio de 1944, en RCA Victor, para repetirlo años más tarde, el 26 de febrero de 1953, esta vez con la voz de Mario Pomar, en Music Hall. También fue interpretado con la orquesta por el cantor Roberto Florio, con éxito, aunque no llegó al disco.
 
@@ -45,7 +45,7 @@ Feliz nos vió la luna
 bajar por la montaña,
 siguiendo a las estrellas,
 bebiendo entre tus cabras
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgnHfjd6P3X0YozB0rNibBTMbG23DynojdDa5YFczKXgsM-nGMgvmI-uTWJEXkGSQRu8ghOTlZUup-DTP2WSu97OrrJq_5IzWO1OwvqUCBtTCGKU9K5Or2GeZzoIdFlDNl9dGUOiB81HFJU/s320/DISARLI_A.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgnHfjd6P3X0YozB0rNibBTMbG23DynojdDa5YFczKXgsM-nGMgvmI-uTWJEXkGSQRu8ghOTlZUup-DTP2WSu97OrrJq_5IzWO1OwvqUCBtTCGKU9K5Or2GeZzoIdFlDNl9dGUOiB81HFJU/s1600/DISARLI_A.jpg)un ánfora de amor.
+[![](/tangos-al-bardo/images/0284fc641747.jpg)](/tangos-al-bardo/images/4c5d77530cba.jpg)un ánfora de amor.
 Y hoy son aves oscuras
 estas tímidas campanas
 que doblan a lo lejos

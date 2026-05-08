@@ -23,7 +23,7 @@ con un vaso de alcohol y de miedo
 tras el vidrio empañado de un bar?
 
 El crujido de la incertidumbre hurga en la esquina del olvido. El inmigrante ha dejado atrás una vida distinta, el cordón umbilical en busca de la quimera soñada. El trastero de los recuerdos nublan algo este presente en la cantina que noche a noche convoca a buena parte de la entrañable cosmópolis porteña. En la trama de la vida se proyecta una capacidad de transmisión emotiva que Cátulo recrea con su pluma de arriero de aquella bohemia y la puntual rutina nocturnera. En el corazón del inmigrante venido a más en su sueño argentino, flota cada tanto una imagen lontana... grisácea...
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh4CInzEEM6hnm1caFUXWWWhsjruI0tyKfGqPe9rB5zbDJwoUSpqmNGukq6fPoNkrCKhzXaBP3l9F55un3-tmRkHr4CLD9FqdAxmf6_PXeJMQG5fF7z8DfuTLsKsByq_-PRGui64Hrtt25p/s320/la_cantina.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh4CInzEEM6hnm1caFUXWWWhsjruI0tyKfGqPe9rB5zbDJwoUSpqmNGukq6fPoNkrCKhzXaBP3l9F55un3-tmRkHr4CLD9FqdAxmf6_PXeJMQG5fF7z8DfuTLsKsByq_-PRGui64Hrtt25p/s1600/la_cantina.jpg)
+[![](/tangos-al-bardo/images/fa5e18857d2a.jpg)](/tangos-al-bardo/images/f06100c3a4e8.jpg)
 La cantina
 llora siempre que te evoca
 cuando toca

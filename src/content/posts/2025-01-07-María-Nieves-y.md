@@ -11,7 +11,7 @@ Se juntaban, se inventaban pasos. Muy raro que uno se copiara de otro. Si a vos 
 
 >
 
-> [![](https://blogger.googleusercontent.com/img/a/AVvXsEgHFtjGkLHKWZVUpUZNmNQxx4oo-4j5xKgK9gPoZLfzmzm77exglq-t1uIG-DrDkDQw2y6fziQakhlu1q0Q8MqB9TTF_yhR9vc9IVkreHY3crcx4_fIvPfxvqpREbpSoNk2SSRltp6rC-JKMHPT5zlhg_GlfjfZue0g4c_etLUIL_lnOCAxYEpXqvle-i2n=w400-h224)](https://blogger.googleusercontent.com/img/a/AVvXsEgHFtjGkLHKWZVUpUZNmNQxx4oo-4j5xKgK9gPoZLfzmzm77exglq-t1uIG-DrDkDQw2y6fziQakhlu1q0Q8MqB9TTF_yhR9vc9IVkreHY3crcx4_fIvPfxvqpREbpSoNk2SSRltp6rC-JKMHPT5zlhg_GlfjfZue0g4c_etLUIL_lnOCAxYEpXqvle-i2n)
+> [![](/tangos-al-bardo/images/6f936b82c723.jpg)](https://blogger.googleusercontent.com/img/a/AVvXsEgHFtjGkLHKWZVUpUZNmNQxx4oo-4j5xKgK9gPoZLfzmzm77exglq-t1uIG-DrDkDQw2y6fziQakhlu1q0Q8MqB9TTF_yhR9vc9IVkreHY3crcx4_fIvPfxvqpREbpSoNk2SSRltp6rC-JKMHPT5zlhg_GlfjfZue0g4c_etLUIL_lnOCAxYEpXqvle-i2n)
 
 Ir a milonguear era una ilusión que no creo que hoy los jóvenes tengan. Era… cómo te puedo decir… el tango era la falopa de la juventud. La milonga empezaba a las diez de la noche y ahí estábamos. ¡Y entrábamos como avalancha, eh!. Los sábados hasta las tres de la mañana. Y los domingos de ocho a una. No nos perdíamos una, ni con lluvia, trueno o relámpagos…
 Es que era algo inexplicable lo que se sentía adentro. Por eso te digo que nuestra droga era el tango. Bailabas con rengos, con sucios, con piojosos… Los muchachos lo mismo. La cosa era ir a bailar. Todos los muchachos que bailaban conmigo, con mi hermana, con la barra nuestra, era raro que se tiraran un lance. Ellos tenían sus rebusques, esperaban a las últimas piezas y ahí sí sabían a quién sacar a bailar, pero no mezclaban.

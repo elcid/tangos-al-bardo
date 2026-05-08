@@ -6,7 +6,7 @@ labels: ""
 tags: ["Francisco Canaro", "Aníbal Troilo", "Héctor Varela"]
 ---
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjNM8UFW3H55AXGBd4ourMdjkHkLokYwSOeu23e_6IFcfFEECyeK4XjD7usRtJ3tyo_3tYPr-OCmYN5uG10aXHpD2YkBfS7jAceXjoSlZS574bgeJZiuHCWiFAUw0GOYeZTqYS_Wf5BKPKh/s200/maliciosa.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjNM8UFW3H55AXGBd4ourMdjkHkLokYwSOeu23e_6IFcfFEECyeK4XjD7usRtJ3tyo_3tYPr-OCmYN5uG10aXHpD2YkBfS7jAceXjoSlZS574bgeJZiuHCWiFAUw0GOYeZTqYS_Wf5BKPKh/s1600/maliciosa.jpg) *"La trajo un tango al ansia de mi abrazo"*
+[![](/tangos-al-bardo/images/2c318aecc20b.jpg)](/tangos-al-bardo/images/108518455af6.jpg) *"La trajo un tango al ansia de mi abrazo"*
 Fco. García Jiménez
 
 Martes, el verano se está yendo pero nos deja unas noches de ronda, ideales para salir. Especialmente para concurrir a la milonga y disfrutar a tope de la emoción de bailar tango con la pareja de turno, con amigos y milongueros que llegan preparados a fondo para la aventura, en una pista donde idealizamos nuestros sentimientos.

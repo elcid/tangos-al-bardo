@@ -10,7 +10,7 @@ Este tango de Francisco Canaro e Ivo Pelay lo crearon en 1934 para la obra teatr
 
 El elenco de intérpretes estaba constituido por celebrados artistas como Alicia Vignoli, Manolita Poli, Amanda Falcón, Benita Puértolas, Marcelo Ruggero, Francisco Charmiello, Héctor Calcaño, Francisco Álvarez, Vicente Climent, Miguel Gómez Bao y la actuación especial de los celebrados cantores: Ignacio Corsini y Ernesto Famá.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjvUwP8-Y5ZNmm7BSFaluWZY1HNYrV38iR32E-uY70ZT0V5bsUVqELbqXk-XurqY8UlHwkhpL_d4i6H9nJ6PYF6PC65dnXGpDlIL_pYHHpggmSV18m9zOb-aGdfxGkEZ6t5tbwUr8Kg9GiK/w400-h281/Corsini+y+Alicia+Vignoli106530211_2645789409071491_2921117804118408558_n.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjvUwP8-Y5ZNmm7BSFaluWZY1HNYrV38iR32E-uY70ZT0V5bsUVqELbqXk-XurqY8UlHwkhpL_d4i6H9nJ6PYF6PC65dnXGpDlIL_pYHHpggmSV18m9zOb-aGdfxGkEZ6t5tbwUr8Kg9GiK/s960/Corsini+y+Alicia+Vignoli106530211_2645789409071491_2921117804118408558_n.jpg)Parte del elenco teatral de la obra. A la derecha Corsini y Alicia Vignoli
+[![](/tangos-al-bardo/images/ecffed752d1b.jpg)](/tangos-al-bardo/images/3e913d24c551.jpg)Parte del elenco teatral de la obra. A la derecha Corsini y Alicia Vignoli
 
 En esta comedia musical, la orquesta de Canaro estrenó las siguientes páginas que llevaban su firma: **La canción de los barrios** (marcha), **Los amores con la crisis** (ranchera), **Un jardín de ilusión** (vals), **El tango de la mula **(tango humorístico), **El casamiento no me interesa** (fox trot), **El Tigre Millán **(tango) y la página de la que hoy me ocupo.
 

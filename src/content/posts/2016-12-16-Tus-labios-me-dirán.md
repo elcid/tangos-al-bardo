@@ -19,7 +19,7 @@ La orquesta lo estrenaría, cantando el sanjuanino Jorge Durán, en un programa 
 Cuando lo bailo en la milonga -me sucede con muchos temas-, me voy metiendo en los versos, al igual que en la música y lo bailo con más intensidad. Es una interpretación sincera, cantado por un intérprete que siente la música y sabe extraer el máximo de una canción. Se trata de un conjuro de palabras que demoran el fin y resulta un magnífico alegato, de fuerza sombría y fractura doliente.
 
 No me quieres más, ni te culparé
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhtwQ1St_G__hQMhxe7Xd_ATxq56HuU3T5aFEb1w6OCAiA92LQRvbVZNteJ3QpwAWOAVDf_pZdztEclewG5yKSNM5HJpaFafa51ypTOvZb565ieksCuoTRfk6nQq73OyzP_82D6UEfaxMXp/s320/Tus+labios.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhtwQ1St_G__hQMhxe7Xd_ATxq56HuU3T5aFEb1w6OCAiA92LQRvbVZNteJ3QpwAWOAVDf_pZdztEclewG5yKSNM5HJpaFafa51ypTOvZb565ieksCuoTRfk6nQq73OyzP_82D6UEfaxMXp/s1600/Tus+labios.jpg)si de esto eres capaz, mi llanto ocultaré,
+[![](/tangos-al-bardo/images/4a40f47d2aa7.jpg)](/tangos-al-bardo/images/0016e828794b.jpg)si de esto eres capaz, mi llanto ocultaré,
 pero sólo tú, tú y mi corazón
 darán cuenta a Dios alguna vez.
 Nada queda ya, nada por decir,
@@ -31,7 +31,7 @@ te pido ese rincón para morir.
 Lo estoy imaginando a Durán con su perpetuo cigarrillo, envuelto en volutas de humo y avezado en estas lides amorosas, de rupturas permanentes y comienzos de nuevas aventuras, estudiando los versos de Marcó que más tarde habrá de estrenar luego de fatigantes ensayos. Durán sabía lo que era estar infectado de desamor sin estridencias y los versos le calzaban perfectamente. La música de Di Sarli con su orquesta le da el marco perfecto para entrar de lleno en ese final.
 
 Vivir...
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhrKvsu_eQRMxlDQ6QKjWWKqRbdD5usQRT3lzKqdABuAsm9URvATkk0BGhIYBjCZ-3EkzKuoOHr2N0RSE29ApmXolOtEWw2aNwE-PLJH5g-PyHN_tXBD3n6CDzcZdsSQuHuDe1NUKOKOOJf/s200/Disco+Di+sarli.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhrKvsu_eQRMxlDQ6QKjWWKqRbdD5usQRT3lzKqdABuAsm9URvATkk0BGhIYBjCZ-3EkzKuoOHr2N0RSE29ApmXolOtEWw2aNwE-PLJH5g-PyHN_tXBD3n6CDzcZdsSQuHuDe1NUKOKOOJf/s1600/Disco+Di+sarli.jpg)como una sombra tras de tí,
+[![](/tangos-al-bardo/images/076ab0e4de76.jpg)](/tangos-al-bardo/images/bce2da9ff196.jpg)como una sombra tras de tí,
 como un eterno soñador
 quise alcanzar tu amor
 para abrazar mi fe.

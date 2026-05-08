@@ -30,7 +30,7 @@ Y cómo nos divertíamos con el título velado de algunos tangos, aunque a veces
 
 Un entreacto oriental. Cuando en 1956 fuimos a Montevideo le pedí a Tío que me recomendara algún tango, esta vez uruguayo, para comprarlo. Me contestó sin vacilar: **Cartón ligador **–claro, **La Cumparsita **era demasiado obvio y además no le gustaba para nada-. Fui al Palacio de la Música en 18 de julio y se lo pedí al vendedor. Lo trajo, pero resultó ser la partitura, no el esperado disco de pasta. Por mi cortedad, la compré lo mismo, y al día de hoy no sé de dónde sacó mi tío esa inesperada precisión, del mismo modo que yo nunca logré todavía escuchar el famoso **Cartón ligador** de Edgardo Donato.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjQGQUyTwDNkKaqmtJLsBmCMaA83_J70uF8-nUxj6ltuK16scCWZojbwBG_VyopUMkr_2YrOVck80ZUKbGv8IrX0t_QjpsmwwocAoY7jLGPqsrQoHPJxxND1dVT6WfV6WrDQ4aI7KtSiS42Pj5oYLw8jWETBryO2wrMPx16cuvBxIvDRLDC14SPVa5NCccV/w400-h254/0000492052.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjQGQUyTwDNkKaqmtJLsBmCMaA83_J70uF8-nUxj6ltuK16scCWZojbwBG_VyopUMkr_2YrOVck80ZUKbGv8IrX0t_QjpsmwwocAoY7jLGPqsrQoHPJxxND1dVT6WfV6WrDQ4aI7KtSiS42Pj5oYLw8jWETBryO2wrMPx16cuvBxIvDRLDC14SPVa5NCccV/s980/0000492052.jpg)Jorge Luis Borges, Edmundo Rivero y Astor Piazzolla
+[![](/tangos-al-bardo/images/db25e3e8eb03.jpg)](/tangos-al-bardo/images/1fb72ca4c7cc.jpg)Jorge Luis Borges, Edmundo Rivero y Astor Piazzolla
 
 **Gardel y Borges**
 

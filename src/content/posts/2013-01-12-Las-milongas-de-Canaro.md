@@ -16,7 +16,7 @@ Haciendo un poquito de historia, el tango entró en una etapa oscura a fines de 
 
 Un directivo de la RCA Víctor, el ecuatoriano Ricardo Mejía, asumió la gerencia comercial del sello en Argentina y diseñó un programa de televisión -*El club del clan*-, desde el cual lanzó a las nuevas figuras jóvenes que el público aclamaba. Y de paso se lanzaron a vender discos con gran éxito.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiZj4xXB6RRF54mKjUmBVKwl5qpwb16ZipZjpkpI3q5rcmAyCxh0v7E49JOC8E-MpBVZA7fhvd5k_KhCmmTbbtc0O0rwW2QMSiE7OyxLfJXsw-dDWagyl__lIcvqOP3CPpmVR9MwDtWlrI/s1600/La_milonga_de_Bs_As.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiZj4xXB6RRF54mKjUmBVKwl5qpwb16ZipZjpkpI3q5rcmAyCxh0v7E49JOC8E-MpBVZA7fhvd5k_KhCmmTbbtc0O0rwW2QMSiE7OyxLfJXsw-dDWagyl__lIcvqOP3CPpmVR9MwDtWlrI/s1600/La_milonga_de_Bs_As.jpg)Lo malo fue que este hombre pensó que el tango era de una época superada para siempre y permitió y facilitó la destrucción y venta de un vital patrimonio artístico que ávidamente se llevaron coleccionistas extranjeros que, de este modo preservaron el tesoro.
+[![](/tangos-al-bardo/images/977a74f6322b.jpg)](/tangos-al-bardo/images/977a74f6322b.jpg)Lo malo fue que este hombre pensó que el tango era de una época superada para siempre y permitió y facilitó la destrucción y venta de un vital patrimonio artístico que ávidamente se llevaron coleccionistas extranjeros que, de este modo preservaron el tesoro.
 
 El japonés Akihito Baba compró una cantidad enorme de incunables convirtiéndose si no en el mayor, sí en uno de los más grandes coleccionistas de tango del mundo. A la vez fue generoso y compartió su enorme discoteca con quienes les solicitaran determinados temas.
 
@@ -24,7 +24,7 @@ En oportunidad de un viaje mío a Buenos Aires, estuve con el* flaco* Oscar Hims
 
 Y eran veinte milongas de Francisco Canaro, grabadas en Japón con discos originales de la colección de Akihito Baba. ¡Una maravilla!
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjvZdzFrwxsS2Kz6vHUdu_Fes0bsjpvY2L17ZIyKcbQCbVoq0lETRVM3kj0Ggl0X7PZWDntPIbXVyZNNqFKGDCX8Bwdd6nY5qQ2JIjrK-yama2wWLPS8R-kMyvbdWwOZjBc9g6msSroCPs/s320/Pareja+++bandone%C3%B3n_100.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjvZdzFrwxsS2Kz6vHUdu_Fes0bsjpvY2L17ZIyKcbQCbVoq0lETRVM3kj0Ggl0X7PZWDntPIbXVyZNNqFKGDCX8Bwdd6nY5qQ2JIjrK-yama2wWLPS8R-kMyvbdWwOZjBc9g6msSroCPs/s1600/Pareja+++bandone%C3%B3n_100.jpg)Cuando traje al CD a España y pasaba estos temas en la milonga, todavía no habían llegado a Europa.
+[![](/tangos-al-bardo/images/f69539f62681.jpg)](/tangos-al-bardo/images/b66d0cda7e18.jpg)Cuando traje al CD a España y pasaba estos temas en la milonga, todavía no habían llegado a Europa.
 Y no me cansaba de escucharlas, de pincharlas y de bailarlas. Especialmente algunas.
 
 Vamos a escuchar de ese CD y por Canaro** Reliquias Porteñas**,** **de Graciano De Leone buenísima para milonguear. La grabó el 14 de julio de 1938. Y vemos bailándola a una genial pareja: Javier Rodríguez-Geraldine Rojas, cuando eran una maravillosa yunta milonguera.

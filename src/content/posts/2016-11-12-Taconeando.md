@@ -7,7 +7,7 @@ tags: ["Alberto Echagüe", "Enrique Campos", "Juan D'Arienzo", "Teófilo Ibáñe
 ---
 
 *¿Quien no sintió*
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjzUn62B2rc_pk1yy6wj_Ed2l5AKMP7lyjuozB8rDv7J9qFHE_e4_IOmh9TYKblWzeJ7uSRkoOdM-hGK7fvKOoBQmHvj-HxcSm44vCxj3NQ_wEftnUIzTddSc9MCuFRv01b-bSSubWu0h4v/s200/tango-buenos-aires.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjzUn62B2rc_pk1yy6wj_Ed2l5AKMP7lyjuozB8rDv7J9qFHE_e4_IOmh9TYKblWzeJ7uSRkoOdM-hGK7fvKOoBQmHvj-HxcSm44vCxj3NQ_wEftnUIzTddSc9MCuFRv01b-bSSubWu0h4v/s1600/tango-buenos-aires.jpg)* la emoción del taconear, *
+[![](/tangos-al-bardo/images/13f4bde083b1.jpg)](/tangos-al-bardo/images/f54b10e1875d.jpg)* la emoción del taconear, *
 * y el ardor*
 * que provoca el bandoneón*
 * al llorar...?*

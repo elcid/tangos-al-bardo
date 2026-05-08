@@ -10,7 +10,7 @@ Enrique Cadícamo fue el más prolífico de los grandes autores que tuvo el tang
 
 Bohemio, trasnochador, mujeriego, muy vigilante de su soltería que se habían prometido con Ángel D'Agostino ser eterna en ambos, y que al final sucumbió ante el amor. Pero antes había caminado las capitales europeas, países sudamericanos y Estados Unidos. Los derechos de sus obras le permitían ser todo un *chevalier errant*, aprovechando su* charme *y su* verso* y darse los lujos que soñó de arranque, cuando se instaló con su familia en Buenos Aires.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhmnAvmJoxDf0ukkbeyZgHz-OZEVH1xJ0kyHzZGiQ8H3QeiM_iM4TrcmcnMRR10UNhAfr5frmh3fqvsSY0HfUmhC4n2HSzMPLTgofmyErBrJChnSebmvmJvde14JOmahsteFJ1T7yhDG7A/s1600/Cadic.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhmnAvmJoxDf0ukkbeyZgHz-OZEVH1xJ0kyHzZGiQ8H3QeiM_iM4TrcmcnMRR10UNhAfr5frmh3fqvsSY0HfUmhC4n2HSzMPLTgofmyErBrJChnSebmvmJvde14JOmahsteFJ1T7yhDG7A/s1600/Cadic.jpg)
+[![](/tangos-al-bardo/images/2728ef888d5f.jpg)](/tangos-al-bardo/images/2728ef888d5f.jpg)
 
 
 Hoy les vengo con este gotán porque me lo recordó la deliciosa peli de Juanjo Campanella que utilizó una estrofa del mismo como título (*El mismo amor... la misma lluvia...*), y en la que brillaron Riki Darín y Soledad Villamil. A Darín le dí hace unos años el "*Sos Gardel*" en Madrid y pasamos una velada estupenda, con mucha gente.

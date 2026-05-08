@@ -11,7 +11,7 @@ En algunos países se celebra hoy el **Día de la madre.**
 Si bien es cierto que lo que nació como un homenaje a la persona que nos dió la vida, que nos alimentó, nos cuidó, nos empujó en nuestro incierto andar y nos insufló ánimos para enfrentarnos a las desdichas y los tropezones; también es cierto que ha acabado por convertirse en un pretexto comercial.
 
 De todos modos, qué mejor homenaje que hacérselo a la madre.
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhSssBUOW1DoOOG0RgBtU9qHE3M25SXJLB9BI7Wmu4WMIV5taHF1BtzyIlv-SNpErBr90HeXwGDV4SaETI5XJ_5V-h7KLo1oGzRr5sp9WDZSHVNWEP-_rutLVJBWvMMeSdwViyc_kWOr9jB/s1600/Gardel+y+la+vieja.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhSssBUOW1DoOOG0RgBtU9qHE3M25SXJLB9BI7Wmu4WMIV5taHF1BtzyIlv-SNpErBr90HeXwGDV4SaETI5XJ_5V-h7KLo1oGzRr5sp9WDZSHVNWEP-_rutLVJBWvMMeSdwViyc_kWOr9jB/s1600/Gardel+y+la+vieja.jpg) Gardel mira el retrato de su madre  El tango tiene infinidad de tangos, valsecitos y milongas dedicados al ser creador maravilloso de la humanidad.
+ [![](/tangos-al-bardo/images/851e36cabb8a.jpg)](/tangos-al-bardo/images/851e36cabb8a.jpg) Gardel mira el retrato de su madre  El tango tiene infinidad de tangos, valsecitos y milongas dedicados al ser creador maravilloso de la humanidad.
 
 Yo quiero recordar a todas las madres con estos tres temas.
 

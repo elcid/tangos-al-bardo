@@ -21,9 +21,9 @@ Y se escriben más libros de tango que nunca en la historia. Y hay programas de 
 
  Y los poetas que se mandaban cada día con versos nuevos y los seguimos cantando como si estuviesen de moda. Esta imagen me devuelve muchas cosas, y realmente es emocionante. Por eso creo que las palabras sobran y es mejor traer un par de temas que nos pongan en situación y nos trasladen a la magia de aquellas noches del centro donde se juntaban tantos talentos y despachaban tangos, valsecitos y milongas para la historia.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi4XBIUdEa-I_MJDZP2x-OjPMT50YtzebHtiyy3-WYz61KeD2xnxn5yb1Ufzy166pMPTaawP0rbiYnib8Im56ouphhv7jKOc-6GXS-nCf27l9Ui79UxWIdpyhB0RnFMLW_MWChnI2MIAqtf/s1600/Pa_que_bailen_los_muchachos.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi4XBIUdEa-I_MJDZP2x-OjPMT50YtzebHtiyy3-WYz61KeD2xnxn5yb1Ufzy166pMPTaawP0rbiYnib8Im56ouphhv7jKOc-6GXS-nCf27l9Ui79UxWIdpyhB0RnFMLW_MWChnI2MIAqtf/s1600/Pa_que_bailen_los_muchachos.jpg)
+[![](/tangos-al-bardo/images/4a19d736888b.jpg)](/tangos-al-bardo/images/4a19d736888b.jpg)
 Y así, al voleo, extraido de entre
-[](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi4XBIUdEa-I_MJDZP2x-OjPMT50YtzebHtiyy3-WYz61KeD2xnxn5yb1Ufzy166pMPTaawP0rbiYnib8Im56ouphhv7jKOc-6GXS-nCf27l9Ui79UxWIdpyhB0RnFMLW_MWChnI2MIAqtf/s1600/Pa_que_bailen_los_muchachos.jpg) tantísimo material, el tango de Domingo Federico y Homero Expósito: **Tristezas de la calle Corrientes**, por la orquesta de Miguel Caló con la inigualable voz de Raúl Berón.Lo grabaron el 2 de septiembre de 1942. Y por la orquesta de Aníbal Troilo con el impagable Fiorentino, este tango del propio Troilo y Enrique Cadícamo:** Pa'que bailen los muchachos**. Lo llevaron el disco -para suerte nuestra-, el 16 de abril de 1942.
+[](/tangos-al-bardo/images/4a19d736888b.jpg) tantísimo material, el tango de Domingo Federico y Homero Expósito: **Tristezas de la calle Corrientes**, por la orquesta de Miguel Caló con la inigualable voz de Raúl Berón.Lo grabaron el 2 de septiembre de 1942. Y por la orquesta de Aníbal Troilo con el impagable Fiorentino, este tango del propio Troilo y Enrique Cadícamo:** Pa'que bailen los muchachos**. Lo llevaron el disco -para suerte nuestra-, el 16 de abril de 1942.
 
 [Tristezas de la calle Corrientes - Miguel Caló-Raúl Berón](http://1drv.ms/1TppiUA)
 

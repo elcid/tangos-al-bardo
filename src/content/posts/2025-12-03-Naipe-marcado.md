@@ -7,7 +7,7 @@ tags: ["Carlos Gardel", "Ángel Vargas"]
 ---
 
 Hoy me vengo con este tango que dejó huella en los seguidores del género. Su autor, el músico-cantor, Ángel Greco trabajó en circo, tuvo un dúo de vocalistas con Domingo Riverol que se mantuvo durante unos nueve años, y finalmente se inclinaría por componer tangos. Entre otros figura *La ventosa*, compuesto en 1916, su primer tema y otros como *Llaga viva, Río revuelto, Resurrección*, que no tuvieron mayor repercusión.
-[![](https://blogger.googleusercontent.com/img/a/AVvXsEhy-lfKwDwoSwq8YEkbtsbe3tNBPMvwGjTDyxkNx64S0jXgAYtsU7QTJ2CacI-PoGtSD2cIruk96jRVHuCqYYxPqdC3lXAOPLkiozplmkwVJhic44D9PFVwQBcNx-Q0j4AwDui4n2Qy77ptuyqX1h3Yv4yoJb4t9XNMWJ4GFgTXvdAG2bpMv_WQ5dUFv1Sa)](https://blogger.googleusercontent.com/img/a/AVvXsEhy-lfKwDwoSwq8YEkbtsbe3tNBPMvwGjTDyxkNx64S0jXgAYtsU7QTJ2CacI-PoGtSD2cIruk96jRVHuCqYYxPqdC3lXAOPLkiozplmkwVJhic44D9PFVwQBcNx-Q0j4AwDui4n2Qy77ptuyqX1h3Yv4yoJb4t9XNMWJ4GFgTXvdAG2bpMv_WQ5dUFv1Sa)Ángel Greco
+[![](/tangos-al-bardo/images/7109c8b1694f.jpg)](/tangos-al-bardo/images/7109c8b1694f.jpg)Ángel Greco
 
 Pero, en cambio, le fue muy bien con éste del título que compuso en 1933 y lleva letra y música suyas. Lo grabó Carlos Gardel el 13 de mayo de ese año. Greco era un bohemio permanente y tuvo amistad con Gardel y con figuras del tango de su época. Desarrollando su rol de creador, se fue luciendo con temas más llegadores como *Cartitas perfumadas, La milonga celestial, Aquí me pongo a cantar *y otras.
 

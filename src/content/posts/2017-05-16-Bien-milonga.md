@@ -6,7 +6,7 @@ labels: ""
 tags: ["Alberto Marino", "Aníbal Troilo", "Héctor Varela"]
 ---
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEim_aBeKxnoa2Ao8sYWV58mTViiULCYnS6suXFG6KAQHzy8qvR9o8kLN0e3NryXQxqZ9_jsjrBQywptyT1KghiWyZWsdI48Ii6bU4MH-gBPxYksp0-avxOypx5kOc-4gDteb3oZ3MhG5TI0/s200/pareja-bailando-tango-piernas.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEim_aBeKxnoa2Ao8sYWV58mTViiULCYnS6suXFG6KAQHzy8qvR9o8kLN0e3NryXQxqZ9_jsjrBQywptyT1KghiWyZWsdI48Ii6bU4MH-gBPxYksp0-avxOypx5kOc-4gDteb3oZ3MhG5TI0/s1600/pareja-bailando-tango-piernas.jpg) *¿Quien fue el raro bicho *
+[![](/tangos-al-bardo/images/ad58bcfd284f.jpg)](/tangos-al-bardo/images/e08786010804.jpg) *¿Quien fue el raro bicho *
 * que te ha dicho, che pebete,*
 * que pasó el tiempo del firulete?*
 

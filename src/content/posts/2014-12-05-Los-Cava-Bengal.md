@@ -10,7 +10,7 @@ Fueron todo un suceso allá por los años sesenta. Hacían un tango abolerado pe
 
 El Trío estaba commpuesto por Tito Cavá (Donato del Valle Herrera), Nito Bengal (Osvaldo Humberto Breglia) y Baby Bengal (Alcides René Giménez). El afiatamiento del Trío y dirección estaba a cargo de Tito Cavá, que había sido guitarrista de Mercedes Sosa en su Tucumán natal y venía de actuar con Carlinhos y su bandita. Nito y Baby llegaban de Bahía Blanca.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi0TYmvYd63pU_0aaVZLUBk5oTmdIO8PM3-duj-m1XHFiG12r0Ajd6x5XXyALYXzFIwczlqkV0Dn54ynJK2CRyvfYNzkHhxAQ3ouOt4cOuHTsLfBz9Jqo946dk2KEqvukOvsCpYlMvLvKY/s1600/Los+cava+Bengal.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi0TYmvYd63pU_0aaVZLUBk5oTmdIO8PM3-duj-m1XHFiG12r0Ajd6x5XXyALYXzFIwczlqkV0Dn54ynJK2CRyvfYNzkHhxAQ3ouOt4cOuHTsLfBz9Jqo946dk2KEqvukOvsCpYlMvLvKY/s1600/Los+cava+Bengal.jpg) El Trío en los años 80 a su regreso de España
+ [![](/tangos-al-bardo/images/45ca3feaae42.jpg)](/tangos-al-bardo/images/45ca3feaae42.jpg) El Trío en los años 80 a su regreso de España
 
 A la vez Tito se encargaba de los arreglos vocales e instrumentales. Baby Bengal hacía la primera voz y tocaba guitarra española. Nito Bengal era la segunda voz y se encargaba en muchos casos de las maracas. Tito Cavá era tercera voz y tocaba la primera guitarra eléctrica Gibson. Les llovían los contratos y supieron destacar en aquella época de conjuntos de este tipo que ejcutaban otros sones: Los 5 latinos, Los Santos, Los T.N.T (Toni, Nelly y Tim Croatto), hermanos italianos radicados en Uruguay, y a quienes Virgilio y Homero Expósito les crearon el fox trot que fue su gran suceso:* Eso*.
 

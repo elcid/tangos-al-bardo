@@ -17,4 +17,4 @@ Pero fueron los músicos quienes los trajeron con sus composiciones para deleita
 
 
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjXk_FvhtFjcM4dAUFxr1VhVBbTuqNIkxrtIHWFZaaAycmo-Uw-eCcf41GEmIO2COSfNKlN5hBYldqImzC_tmxjXV0fwrGdBKob3zadjY4oQbGZNO5PyjFEmv7C8NUkeqmLLmNz5C2SYgc/s1600/21.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjXk_FvhtFjcM4dAUFxr1VhVBbTuqNIkxrtIHWFZaaAycmo-Uw-eCcf41GEmIO2COSfNKlN5hBYldqImzC_tmxjXV0fwrGdBKob3zadjY4oQbGZNO5PyjFEmv7C8NUkeqmLLmNz5C2SYgc/s1600/21.jpg) De izq. Juan, Marcelo, Juanma, Virginia, Graciela, Fernando, Andrea, Jorge, Jose Ma., Flavio, Nicolás, Natalia y Marcos.
+ [![](/tangos-al-bardo/images/cb5daf967e2e.jpg)](/tangos-al-bardo/images/cb5daf967e2e.jpg) De izq. Juan, Marcelo, Juanma, Virginia, Graciela, Fernando, Andrea, Jorge, Jose Ma., Flavio, Nicolás, Natalia y Marcos.

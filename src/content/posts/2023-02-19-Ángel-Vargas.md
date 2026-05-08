@@ -9,7 +9,7 @@ tags: ["Eduardo Del Piano", "Alberto Castillo", "Astor Piazzolla", "Ricardo Tant
 ## La voz confidencial de un cantor perfumado de glicinas
 
 Nació en 1904, en el barrio de Barracas, se crió y en Parque Patricios y logró convertir la sutileza y detalle en estilo. Su dupla con Angel D’Agostino hizo historia.
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjjwYyZi9HCw6lVGn4cpocEItf99KcRtD-Vlj65gy5-FR4cqGD32egKyuUjMuwgPNxCkelUk-d6MjNYb--WwxayuDrC404J1iuowIjNPif2rYdHPU70g3X0zJNSt5HdPUrBS1XeWQq7oRoRwzaZJc9YGs79zCLeO93bnagLCTrRR0R14bvG4lA9mjTdoQ/s1600/Angelito-2.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjjwYyZi9HCw6lVGn4cpocEItf99KcRtD-Vlj65gy5-FR4cqGD32egKyuUjMuwgPNxCkelUk-d6MjNYb--WwxayuDrC404J1iuowIjNPif2rYdHPU70g3X0zJNSt5HdPUrBS1XeWQq7oRoRwzaZJc9YGs79zCLeO93bnagLCTrRR0R14bvG4lA9mjTdoQ/s319/Angelito-2.jpg)
+[![](/tangos-al-bardo/images/90c7d8489575.jpg)](/tangos-al-bardo/images/6753a8bdf860.jpg)
 
 No apeló al lucimiento vocal. Ajustó su estilo a las modestas posibilidades de su garganta, convirtiendo en ventaja lo que era un handicap. Su recurso consistió en expresar delicada, entrañablemente, las historias que contaban los tangos, adornando algunos sonidos planos con fiorituras que recuerdan de algún modo al cante andaluz. Cuando el oyente se interna en el legado de 180 grabaciones que dejó Angel Vargas, siente habitar un mundo armonioso, de bondad, de emoción, de sensaciones que pasan por el alma. Hay allí barrios pobres, consejeras de vecindario, racimos florales, ventanitas de arrabal, vidas simples de secretas ambiciones e ilusiones ajadas.
 

@@ -10,7 +10,7 @@ Ayer, sabado 2 de junio, se inauguró en la vereda de "la casita de mis viejos",
 
 El hecho ocurrió en la calle Moreno, número 310 de Bahía Blanca (Provincia de Buenos Aires).
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi_7SiFHNvLa5uib2R-c_l3rhHw6qSAmPEJ9Q_YR0HWGDbhglttZ_LVKVLaO1-wDm2ADRStwfmUxk0Ue7RBLDDGRZVeiJLAxOdPviWqodPY1yinvItdKoaE-P4ObjpB8TZjmS3q7LqnIf_W/s320/La+casita+de+mis+viejos+2.JPG)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi_7SiFHNvLa5uib2R-c_l3rhHw6qSAmPEJ9Q_YR0HWGDbhglttZ_LVKVLaO1-wDm2ADRStwfmUxk0Ue7RBLDDGRZVeiJLAxOdPviWqodPY1yinvItdKoaE-P4ObjpB8TZjmS3q7LqnIf_W/s1600/La+casita+de+mis+viejos+2.JPG)Estuvieron presentes sobrinos nietos de Juan Carlos Cobián, Eduardo Giorlandini, su señora esposa, autoridades municipales y de la otrora peña 2 x4 Juan Carlos Cobián, músicos, bailarines de tango, y Gaby (la voz sensual del Tango), entre otros.
+[![](/tangos-al-bardo/images/801bbcd63858.jpg)](/tangos-al-bardo/images/dcab9875c12f.jpg)Estuvieron presentes sobrinos nietos de Juan Carlos Cobián, Eduardo Giorlandini, su señora esposa, autoridades municipales y de la otrora peña 2 x4 Juan Carlos Cobián, músicos, bailarines de tango, y Gaby (la voz sensual del Tango), entre otros.
 
  Las imágenes revelan la emoción de los presentes* *ante el histórico hecho.
  *Vuelvo vencido a la casita de mis viejos,*
@@ -25,7 +25,7 @@ Esta maravilla de la música popular porteña recuerda el reencuentro de Juan Ca
 *
  Una enorme baldosa que recuerda el hecho histórico protagonizado por una de las grandes figuras que surgieron de Bahía Blanca.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhcoWYARdBGiZiSpjtNLDY6S6PTMdUxUM5RAHrMRVqtll7PAGEdkT-uTVbwWxUTRwx_wgpE3x00pYgfZg_RTtkRGlG5gv0owLl4Q1WhKTAavBuH5u0ynuWsQh8bKRuOkQY8ozEnxPWH9h6G/s320/Gaby.JPG)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhcoWYARdBGiZiSpjtNLDY6S6PTMdUxUM5RAHrMRVqtll7PAGEdkT-uTVbwWxUTRwx_wgpE3x00pYgfZg_RTtkRGlG5gv0owLl4Q1WhKTAavBuH5u0ynuWsQh8bKRuOkQY8ozEnxPWH9h6G/s1600/Gaby.JPG) Gabi canta el tango de Cobián y Cadícamo
+ [![](/tangos-al-bardo/images/ea96161299e9.jpg)](/tangos-al-bardo/images/3b7e6ce388b4.jpg) Gabi canta el tango de Cobián y Cadícamo
 *
 *
 

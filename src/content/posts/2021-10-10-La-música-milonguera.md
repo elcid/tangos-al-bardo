@@ -11,7 +11,7 @@ Como he vivido toda esta resurrección, la he sentido hondamente y la sigo vivie
 
 Alguna vez he comentado que arranqué bailando tango en los años cincuenta cuando todavía estaba en su apogeo. Hacerlo con aquellas orquestas en vivo: Di Sarli, Troilo, D'Arienzo, Pugliese, Gobbi, como lo disfrutamos con la barra de amigos, es algo inolvidable. Como todo esto lo revisitado en relatos anteriores, igual que mis andanzas milongueras por la enorme cantidad de clubes de barrio que había en la capital porteña, hoy prefiero poner la lente en la música.
 
-[![](https://blogger.googleusercontent.com/img/a/AVvXsEhGSvTZlgZwxlewH72wCZy_SF1pqnzNkFBxQtEzEkAKSgjM79J13mYfHPg1zLD70dvyqE7hGF6ve7EMzDi5aROyQhqsSyYZEsriC8vWA_dSTXzoXzQFbcghS_fyXfxfdi3dT2yYxRUlPNjSq6w0_YI_mQpxHogK_zsI34LnlA0FsonSrr2ogwFK0Ht1Ig=w400-h266)](https://blogger.googleusercontent.com/img/a/AVvXsEhGSvTZlgZwxlewH72wCZy_SF1pqnzNkFBxQtEzEkAKSgjM79J13mYfHPg1zLD70dvyqE7hGF6ve7EMzDi5aROyQhqsSyYZEsriC8vWA_dSTXzoXzQFbcghS_fyXfxfdi3dT2yYxRUlPNjSq6w0_YI_mQpxHogK_zsI34LnlA0FsonSrr2ogwFK0Ht1Ig=s512)Picherna pinchando música
+[![](/tangos-al-bardo/images/87a775f2f22e.jpg)](https://blogger.googleusercontent.com/img/a/AVvXsEhGSvTZlgZwxlewH72wCZy_SF1pqnzNkFBxQtEzEkAKSgjM79J13mYfHPg1zLD70dvyqE7hGF6ve7EMzDi5aROyQhqsSyYZEsriC8vWA_dSTXzoXzQFbcghS_fyXfxfdi3dT2yYxRUlPNjSq6w0_YI_mQpxHogK_zsI34LnlA0FsonSrr2ogwFK0Ht1Ig=s512)Picherna pinchando música
 
 Creo que es el punto vital, fundamental, lo que nos hace pasar una buena velada o, por el contrario, sentir que la música no nos ha impulsado debido a la errada elección de temas, por parte del musicalizador. Afortunadamente, en los noventa, en Buenos Aires, todavía estaban algunos *pinchas* de la* belle epôque* que supieron transmitir su experiencia.
 

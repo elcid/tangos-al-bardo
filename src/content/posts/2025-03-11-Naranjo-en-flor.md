@@ -10,7 +10,7 @@ Estoy escuchando este tema en el reproductor y y lo vuelvo a poner dos/tres vece
 
 La estela de los viejos maestros ubica a Homero Expósito en una situación especial por esos pujos de filósofo que inyectó en los versos tangueros, dándole realce a la cultura vernácula. A veces Homero diseñaba la poesía y su hermano Virgilio la musicalizaba en el piano. Éste era menor que Homero y recordaba: "*Muchas veces las hacíamos para nadie, para que queden ahí.*..
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEicfgKVHhHlstC92XKbVsH7Ii_oolDWndAo25fK0klr-tKqGGB2E9SprZZ1nm6oygZ4p5rpOKVVQJV-GariwNES0_zoYpH20SYXH3p77KaY9AynsW5cYCo7yWl302TAcOP6H7j9bKQj2eFpb7g8aIe5_tKPtNNyHSxK4VT6jDFb-lISpMH0Hdf5cqIim6BD/w400-h299/EXPOSITO%20resize_1629581712.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEicfgKVHhHlstC92XKbVsH7Ii_oolDWndAo25fK0klr-tKqGGB2E9SprZZ1nm6oygZ4p5rpOKVVQJV-GariwNES0_zoYpH20SYXH3p77KaY9AynsW5cYCo7yWl302TAcOP6H7j9bKQj2eFpb7g8aIe5_tKPtNNyHSxK4VT6jDFb-lISpMH0Hdf5cqIim6BD/s348/EXPOSITO%20resize_1629581712.jpg)Homero y Virgilio Expósito
+[![](/tangos-al-bardo/images/1e50c5908d43.jpg)](/tangos-al-bardo/images/1aacb1d9b98c.jpg)Homero y Virgilio Expósito
 
 ...*Incluso a veces decíamos: "Este tango es ideal para que lo cante, por ejemplo, Floreal Ruiz. Entonces lo íbamos a buscar. "Naranjo en flor" lo grabó él, fue el primero en hacerlo*".
 

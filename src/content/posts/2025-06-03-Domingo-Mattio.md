@@ -10,14 +10,14 @@ tags: ["Cátulo Castillo", "Aníbal Troilo"]
 
 Ingresó en la orquesta de Pichuco por sugerencia de D’Agostino, para ocupar el lugar que dejó vacante Toto Rodríguez. Formaría en la fila de fueyes con Eduardo Marino, Alberto García, y los hermanos Marcos y Aníbal Troilo . Y se adaptaría de tal modo **que fue el integrante de la orquesta que estuvo más años en la misma,** d**esde 1947 hasta mayo de 1975, cuando fallece Troilo**. O sea, 28 años en la orquesta aportando sus capacidades.
 
-![Domingo Mattio - Semblanza, historia, biografía - Todotango.com](https://images.todotango.com/creadores/semblanzas/dmattio.gif)
+![Domingo Mattio - Semblanza, historia, biografía - Todotango.com](/tangos-al-bardo/images/313e108a241a.gif)
 
 Pichuco lo apreció humana y musicalmente, confiaba en su talento, le cedió varias veces el primer plano en variaciones y extensiones musicales y éste le correspondería dedicándole su tango “**Pichuqueando**” que sería llevado al disco por la orquesta, el 13 de abril de 1966.
 
 Troilo grabaría otro tema suyo: “**Tallador**”, el 10 de octubre de 1969, que también da gusto escucharlo.
 
 Estuvo prácticamente toda su carrera musical en la orquesta del Gordo, tuvo algunas ofertas para formar su propio conjunto, pero se sentía muy a gusto junto a Pichuco que le dispensaba un aprecio especial, y además se dedicó a la docencia con mucho éxito ya que por sus clases pasaron alumnos como Osvaldo Piro, Susana Rattcliff, Nicolás Perrone, Fabio Hager y muchos otros…
-![El Marabú y su historia: vuelve un cabaret símbolo del tango](https://www.clarin.com/2021/12/10/W9D9AVf-X_1200x0__1.jpg)Domingo Mattio con el bandoneón a la derecha de Pichuco
+![El Marabú y su historia: vuelve un cabaret símbolo del tango](/tangos-al-bardo/images/ce290899eafd.jpg)Domingo Mattio con el bandoneón a la derecha de Pichuco
 
 
 

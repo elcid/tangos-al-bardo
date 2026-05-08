@@ -10,11 +10,11 @@ Este tango tuvo una repercusión enorme a fines del año 1961. Quizás no sea un
 
 En 1945 se había iniciado en el tango con dos temas: **Una tarde cualquiera**, que llevaba música de los hermanos Puccio, guitarristas de Hugo del Carril. Un tema donde brilla su elegancia melancólica y sus dotes de verseador. Lo grabó Miguel Caló cantando Roberto Arrieta. Y **Cosas de tango**, con música de Tito Ribero que también llevó al disco Miguel Caló, pero esta vez con Raúl Iriarte.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjFbaOqphyphenhyphenS4-7zhesXWNzBAA8M4oBYE_yhx_ColT1O7r9SWshyphenhyphenYgIVH8t5p3IqQjoiJ-_b_JHtF-NPtzntIV3sqw6s0-zZ3hKRfRuqM0VTe22g8E5YoXGcXfLrBAgAkZo5k79nV7LzmgX3/s320/Rodolfo+Taboadaunnamed+%25286%2529.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjFbaOqphyphenhyphenS4-7zhesXWNzBAA8M4oBYE_yhx_ColT1O7r9SWshyphenhyphenYgIVH8t5p3IqQjoiJ-_b_JHtF-NPtzntIV3sqw6s0-zZ3hKRfRuqM0VTe22g8E5YoXGcXfLrBAgAkZo5k79nV7LzmgX3/s367/Rodolfo+Taboadaunnamed+%25286%2529.jpg)Rodolfo M. Taboada
+[![](/tangos-al-bardo/images/7d20132e45dc.jpg)](/tangos-al-bardo/images/840a59637efa.jpg)Rodolfo M. Taboada
 
 El impulso que recibiría tantos años más tarde con el tema que hoy me ocupa, serviría para que con Mores construyera un exitoso dúo que supo seguir ligando páginas y éxitos en cabalgata. *Frente al mar, Ahora te llaman Lulú, El firulete, Me robaron la luna, Tu nombre y nada más, Taxi mío*. Y era una época en que el tango estaba viviendo horas bajas, por lo cual el mérito es aún mayor.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjxKfCC6aFXYmOzHgKF2lWTJH39IGY1pJeQzPs8u8ga5CB8R4EPWsssBqOQq1Nyra8mAa2qNYTN3wBBn5_lDuO1prP-nYE0H7cOsWKMgGpleGxO7_HCkufROA7lY945QHtc0BPq8rueXiO0/s320/hugo+y+mariano+mores.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjxKfCC6aFXYmOzHgKF2lWTJH39IGY1pJeQzPs8u8ga5CB8R4EPWsssBqOQq1Nyra8mAa2qNYTN3wBBn5_lDuO1prP-nYE0H7cOsWKMgGpleGxO7_HCkufROA7lY945QHtc0BPq8rueXiO0/s601/hugo+y+mariano+mores.jpg)Mariano Mores y Hugo del Carril
+[![](/tangos-al-bardo/images/b2b707ceea6f.jpg)](/tangos-al-bardo/images/70bbf6d5bf79.jpg)Mariano Mores y Hugo del Carril
 
 Cecilio Madanes en setiembre de 1961, con su pericia habitual, dirigió en el teatro Avenida la revista-espectáculo "**Estrellas en el Avenida**". Allí aparecían nombres rutilantes como Hugo del Carril., Tita Merello, Tatos Bores, María Antinea y la orquesta-espectáculo de Mariano Mores. Tenía numerosos cuadros y en uno de ellos Hugo del Carril estrena este tango del título y fue ruidosamente aplaudido y ovacionado. Era el preámbulo de lo que le esperaba al tema.
 

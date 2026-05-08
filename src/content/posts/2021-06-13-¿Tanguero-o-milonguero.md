@@ -24,7 +24,7 @@ Efectivamente fui a la tarde siguiente y Nelson -a quien tanto había escuchado 
 
 Hablé por teléfono con el señor de que me había convocado y me dijo que entraría en la próxima selección. A los quince/veinte días me convocaron para presentarme en el Palais de Glace, desde donde se transmitía el programa. Augusto Bonardo era el presentador y Cacho Fontana el encargado de la publicidad. La audiencia era enorme.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEheOode7NB7XrvPEhzEKvmqoh1T3cCyqHRfufBfw6ppnHey6lu_XvC4pAva6oyHuzS4NucC-bnh6SZIbkTtm2YAhkRNi65iRV6gZzy_MlEaIqhmt2cCJa7vCr5UnUcIjyNfR2mcF9UJS5iy/s320/Odol42-0.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEheOode7NB7XrvPEhzEKvmqoh1T3cCyqHRfufBfw6ppnHey6lu_XvC4pAva6oyHuzS4NucC-bnh6SZIbkTtm2YAhkRNi65iRV6gZzy_MlEaIqhmt2cCJa7vCr5UnUcIjyNfR2mcF9UJS5iy/s711/Odol42-0.jpg)Augusto Bonardo en Odol pregunta, con una concursante
+[![](/tangos-al-bardo/images/1338925115b9.jpg)](/tangos-al-bardo/images/8dd30140dc24.jpg)Augusto Bonardo en Odol pregunta, con una concursante
 
 La cuestión es que tuve la suerte de acertar en los primeros cuatro programas y seguir adelante. En mi barrio tenía una hinchada enorme. Y como yo era muy jovencito, venían los coleccionistas, me invitaron a un par de casas donde me aportaban toda clase de informaciones y me regalaron entre otras cosas, el Libro de los Bates sobre la historia del tango que años más tarde se lo prestaría a Troilo por pedido suyo y ahí se quedó. Por suerte años más tarde pude conseguir otro en Plaza Dorrego.
 

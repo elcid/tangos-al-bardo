@@ -10,7 +10,7 @@ Es como una deuda personal que tengo con este personaje del tango. Porque allá 
 
 Bastaría, quizás, con recordar que su primer tango de éxito fue nada menos que **Tras cartón**, con Anselmo Aieta, aportando Adamini, en este caso, los versos. Ello ocurrió en 1929, y lo grabó Carlos Gardel con las guitarras de Aguilar y Barbieri. Figura también como autor, además de los dos citados, nada menos que Benito Bianquet, *El Cachafaz*, pero, por los datos que yo tengo, fue más bien una atención de los verdaderos creadores del tema, por motivos de amistad. A Adamini le gustaba bailar y se entreveraba con el Cachafaz en variadas milongas, compartiendo mesa con él.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj9kYsucU3_BSKQKloLRqka2B05RtbGG27pg80U4teZtq0qBHkxMhyJwtTuASCMHAWskIhasM65ynXNcsj0Z96HzC2o8c-B28WrEWRY_yAu16Gaxmzgnz8E39NVbjCtGKAX9VDjOYEeUc3j/s400/adaminiybaliotti.gif)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj9kYsucU3_BSKQKloLRqka2B05RtbGG27pg80U4teZtq0qBHkxMhyJwtTuASCMHAWskIhasM65ynXNcsj0Z96HzC2o8c-B28WrEWRY_yAu16Gaxmzgnz8E39NVbjCtGKAX9VDjOYEeUc3j/s1600/adaminiybaliotti.gif) Santiago Adamini y Armando Baliotti
+ [![](/tangos-al-bardo/images/019da26c311d.gif)](/tangos-al-bardo/images/4f8bfb480a7b.gif) Santiago Adamini y Armando Baliotti
 Además se la rebuscaba con la guitarra, tenía parola fácil y sabía ganarse su lugar en los medios. Y lo mismo se las arreglaba escribiendo todo tipo de versos, que rasquetéandolos en la viola. Con el pianista y director del barrio de Boedo, Armando Baliotti, supo estrechar fuertes lazos de amistad, siendo ambos luchadores fervientes por los derechos autorales y por ello figuran entre los directivos de SADAIC, durante un tiempo prolongado.
 
 Pero además crearon una sociedad que acertó plenamente en la creación de tangos que adquirieron rápida y lunga popularidad:** A las siete en el café, Trasnochando, Como nos cambian los años, Yo me presento aquí**, **Barrio** **Norte****** ****y la milonga****** ** Señores yo soy del centro** **. Temas que estuvieron en las partituras que ejecutaban distintas orquestas y cantores, por su expresividad, melodía y llegada al público.
@@ -22,7 +22,7 @@ Por ejemplo podría citar:**El cocherito**, con Ángel D'Agostino y Alfredo Atta
 
 En la milonga que hizo con Tito Ribero: **A diez centavos la pieza**, recuerda y rubrica su pasado milonguero, dando por sentado que supo ganar fama de buen bailarín, además de andar 15 años al lado de El Cachafaz. Dice en en una parte:
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg2iv3fINwVaiV5NlABSlBKcnuu2I5TlbcR3-KFWad08iWtJ8kHpIo7yzFMQa-pmS-_j9TU4AKPCUD5fmBK65jD_pBOB5z8bMJrFvVM1jpyr_uNzmAyS64qeAhPq0LMfQIJdEJKClKS4otn/s400/a_diez_centavos_la_pieza_tapa_72.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg2iv3fINwVaiV5NlABSlBKcnuu2I5TlbcR3-KFWad08iWtJ8kHpIo7yzFMQa-pmS-_j9TU4AKPCUD5fmBK65jD_pBOB5z8bMJrFvVM1jpyr_uNzmAyS64qeAhPq0LMfQIJdEJKClKS4otn/s1600/a_diez_centavos_la_pieza_tapa_72.jpg)
+[![](/tangos-al-bardo/images/87858d5ad0af.jpg)](/tangos-al-bardo/images/df99d42965a9.jpg)
 Gascón era la academia
 de los guapos de Palermo,
 y fue Thames el porteño

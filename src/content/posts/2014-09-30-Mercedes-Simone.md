@@ -16,7 +16,7 @@ Fue fundamentalmente artista de la radio, de unas ondas que llegaban a los hogar
 
 La segunda vez que la convocaron para una película fue en 1936. Se llamaba *Sombras porteñas*, la dirigió Daniel Tinayre y Mercedes tiene su papel junto a Francisco Petrone y Milagros De la Vega. Simone pidió que la acompañara Sebastián Piana, que la estaba secundando con su trío, y éste a su vez logró que lo ayudara Pedro Maffia con la música y Homero Manzi con los versos.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgM80xkYs0rtnlHonDCrq5bcDG6MXRsFJEORCelMBCynCg9u4aG5WR8_6vFs6ue7zbDiJ9HloCMB3ZyP9R5UwlZsnSx8MOT7FRKGv63AruEgJa9ciO1Y4XfVA2l1rGxL03TVhqHcw9UHeY/s1600/Mercedes+Simone,+Libertad+y+G%C3%B3mez.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgM80xkYs0rtnlHonDCrq5bcDG6MXRsFJEORCelMBCynCg9u4aG5WR8_6vFs6ue7zbDiJ9HloCMB3ZyP9R5UwlZsnSx8MOT7FRKGv63AruEgJa9ciO1Y4XfVA2l1rGxL03TVhqHcw9UHeY/s1600/Mercedes+Simone,+Libertad+y+G%C3%B3mez.jpg) Mercedes Simone, Libertad Lamarque y Alberto Gómez
+ [![](/tangos-al-bardo/images/0d5e5902ffba.jpg)](/tangos-al-bardo/images/0d5e5902ffba.jpg) Mercedes Simone, Libertad Lamarque y Alberto Gómez
 Así Mercedes Simone interpreta en dicha película el tango *Dale dale*, que lleva letra de Manzi y música de los cuñados: Piana y Maffia. Y ella lo grabaría con ese Trío en el sello Odeón el 20 de marzo de dicho año 1936.
 
 

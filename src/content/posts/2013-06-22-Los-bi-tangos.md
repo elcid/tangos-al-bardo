@@ -10,7 +10,7 @@ Alguna vez hemos hablado de esos choques emocionales que sentíamos hace ya año
 
 Un ejemplo claro de ello son los tangos: *Desvelo* y *De flor en flor*. Este tango lleva música de Eduardo Bonessi, el conocido maestro de cantores, entre ellos, Carlos Gardel. En 1923, se embarcaron en el vapor "*Antonio Delfino*", Gardel, Razzano, los guitarristas Guillermo Barbieri y José Ricardo Soria, el manager Luis Gaspar Pierotti y el maestro Bonessi.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEghyY4sUCfzdNCGoNeqki8W56fr9uVvTkxi_xSLKWIXYEZBdWQZAoZ8V-MVgHNnbgxcod5aPLibLfnazG_4FpaZ1vuzsRA_eKnRnyasodhrC-Ryh1y0sEPsfVdoCyeLYOJZD_uVL3qzZVE/s1600/Bonessi_Gomez.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEghyY4sUCfzdNCGoNeqki8W56fr9uVvTkxi_xSLKWIXYEZBdWQZAoZ8V-MVgHNnbgxcod5aPLibLfnazG_4FpaZ1vuzsRA_eKnRnyasodhrC-Ryh1y0sEPsfVdoCyeLYOJZD_uVL3qzZVE/s1600/Bonessi_Gomez.jpg) El maestro Eduardo Bonessi con Alberto Gómez
+ [![](/tangos-al-bardo/images/a5cf1885f4c7.jpg)](/tangos-al-bardo/images/a5cf1885f4c7.jpg) El maestro Eduardo Bonessi con Alberto Gómez
 En la escala de Montevideo, embarcó la compañía encabezada por Enrique De Rosas y Matilde Rivera que llevaban a Gardel y Razzano para amenizar los fines de fiesta de sus espectáculos. Bonessi, que portaba su armonio, les hizo escuchar a los viajeros un tango que había compuesto, y el periodista uruguayo Domingo Gallicchio, que actuaba en función de secretario de la compañía, se ofreció para ponerle letra y así nació durante el viaje a España, el tango *De flor en flor*.
 
 Gardel lo registró al año siguiente con las guitarras de Ricardo y Barbieri y seis años más tarde (22 de mayo de 1930) con el acompañamiento de Barbieri, Aguilar y Riverol.

@@ -6,7 +6,7 @@ labels: ""
 tags: ["José María Otero"]
 ---
 
-[](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj92DvXHRB2EpA5IC2pdA6vUGKhfXdxT1I7HtDSbmzd-R5QV76R8XLjwN7Ogi8AzlABen6_F2Gi2-FV6x_oeRMCzBfMneGucLX6641D6lNk_ab4155zjWwjkoWFae1lt6LFd0g8yoU4qP9Z/s1600/Pintura.png)[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj92DvXHRB2EpA5IC2pdA6vUGKhfXdxT1I7HtDSbmzd-R5QV76R8XLjwN7Ogi8AzlABen6_F2Gi2-FV6x_oeRMCzBfMneGucLX6641D6lNk_ab4155zjWwjkoWFae1lt6LFd0g8yoU4qP9Z/s400/Pintura.png)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj92DvXHRB2EpA5IC2pdA6vUGKhfXdxT1I7HtDSbmzd-R5QV76R8XLjwN7Ogi8AzlABen6_F2Gi2-FV6x_oeRMCzBfMneGucLX6641D6lNk_ab4155zjWwjkoWFae1lt6LFd0g8yoU4qP9Z/s1600/Pintura.png)
+[](/tangos-al-bardo/images/a6820b2695e1.png)[![](/tangos-al-bardo/images/ebc6b4ca8875.png)](/tangos-al-bardo/images/a6820b2695e1.png)
 
 Arde la hoguera, en sazón, patibularia,
 chamuscante, yirando, con la grela

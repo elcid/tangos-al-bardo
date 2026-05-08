@@ -58,7 +58,7 @@ Nos detenemos a meditar en esta primera bis, y se nos ocurre pensar en la orques
 
 Escucho estas versiones que cito en la nota y más me reafirmo en la belleza de este tango y estas interpretaciones que me arrastran a la pista de baile. ¡Cuánto sentimiento porteño atesoran! ¡Cuántas veces nos hace poner la marcha atrás y sumergirnos en aquellas inolvidables veladas tangueras que inspiraron los versos y la hermosa música de Kaplún!
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi5XgtrBs6hoes6-N4OXWSZAv8OxKXu0spbaRYeWjkReKcHbfe8jjLmiy_VOJFNdEt0GKNrJNnbUeZEMFlHfzO3Dmr-dG_nyZRd82SF2jxA65MpB0-ZiyAXwFWSvF2xKt-P_IS8L7zZnnsz/s320/KAP.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi5XgtrBs6hoes6-N4OXWSZAv8OxKXu0spbaRYeWjkReKcHbfe8jjLmiy_VOJFNdEt0GKNrJNnbUeZEMFlHfzO3Dmr-dG_nyZRd82SF2jxA65MpB0-ZiyAXwFWSvF2xKt-P_IS8L7zZnnsz/s1600/KAP.jpg) Raúl Kaplún -centro- al frente de su orquesta típica.
+ [![](/tangos-al-bardo/images/db424db3d6cd.jpg)](/tangos-al-bardo/images/fae9deb515d3.jpg) Raúl Kaplún -centro- al frente de su orquesta típica.
 
 Sencillito pero querendón, como aquellas barras de muchachos y muchachas que llenaron las pistas de los clubes de barrio, donde muchos de ellos encontraron su pareja, se casaron, tuvieron hijos... al compás de una emoción, tanguera....
 

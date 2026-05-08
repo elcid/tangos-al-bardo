@@ -18,7 +18,7 @@ Juan Carlos Copes, que era un gran milonguero, también recuerda aquellos años 
 -*Bailaba para mí, me sentía en libertad. En Atlanta empecé a fantasear y a demostrar que con Troilo tenías que bailar de una forma, con Pugliese de otra, con D'Arienzo de otra...*
 
 * *
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhqBPIlQIuwc8lTu9wr1OUANqRQ8gbplNJztVlpn6YZuPcRqT_nzfc2w6oJvwiwbHY-D-8_G7NNeDJXgZJPZkqw3gMS3upR2eyr42p6ilMU39GJrIl1bUpye9EjtwS25UNSPvejdJ8G4g8/s320/copes-me2.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhqBPIlQIuwc8lTu9wr1OUANqRQ8gbplNJztVlpn6YZuPcRqT_nzfc2w6oJvwiwbHY-D-8_G7NNeDJXgZJPZkqw3gMS3upR2eyr42p6ilMU39GJrIl1bUpye9EjtwS25UNSPvejdJ8G4g8/s1600/copes-me2.jpg) Juan Carlos Copes en la milonga   * *
+ [![](/tangos-al-bardo/images/b59d9cde2c32.jpg)](/tangos-al-bardo/images/fb01dc84aca0.jpg) Juan Carlos Copes en la milonga   * *
 
 * -Así como cada orquesta tenía una diferencia de ritmo, de sabor, de sentimiento para escucharla, eso también se tenía que demostrar bailando, con los cuerpos, en pareja. Aún con tu estilo de baile, a cada orquesta la tenía que masticar distinto*.
 

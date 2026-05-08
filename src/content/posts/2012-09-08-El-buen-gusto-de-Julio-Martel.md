@@ -16,7 +16,7 @@ Se llamaba Julio Pedro Harispe y a su muerte en el año 2009, le realicé un sen
 
 El *Glostora Tango Club* fue quizás el programa más exitoso de la radio argentina, dado que permaneció en el aire veintidós años, nada menos, y era infaltable en la mayoría de los hogares. Alfredo De Ángelis fue la gran estrella de ese ciclo, aunque alternaron varias orquestas.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgA74uH0QfDgOyRGzfDXKkISsf00iPL6abWhgPOAN6jO5Bxb_GMJiLg32y-dzrMmeV3zJmS27DNWAPW3wsSrzGX6wm0rfK3CJWOwHvYooJQ_d6TF3UzWNLcs_eUJpTNyponUjHyiDSj_0EF/s1600/glostora-gel.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgA74uH0QfDgOyRGzfDXKkISsf00iPL6abWhgPOAN6jO5Bxb_GMJiLg32y-dzrMmeV3zJmS27DNWAPW3wsSrzGX6wm0rfK3CJWOwHvYooJQ_d6TF3UzWNLcs_eUJpTNyponUjHyiDSj_0EF/s1600/glostora-gel.jpg)Martel estrenó muchos temas en dicho espacio. Algunos de ellos no llegaron al disco.
+[![](/tangos-al-bardo/images/d7a8f114380d.jpg)](/tangos-al-bardo/images/d7a8f114380d.jpg)Martel estrenó muchos temas en dicho espacio. Algunos de ellos no llegaron al disco.
 
 Hoy que estoy nostálgico, les traigo dos temas de este cantor nacido en Baigorrita, Junín, Provincia de Buenos Aires, aunque afincado en Munro, vecino a la Capital.
 

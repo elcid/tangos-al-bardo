@@ -6,7 +6,7 @@ labels: ""
 tags: ["Francisco Canaro", "Teófilo Ibáñez", "Aníbal Troilo"]
 ---
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj5fZUSJeKFpnRR1uZe-tC9kyk2ukesSbq8r-FSCrwnURo-9l2KkIynPtePCSX9-SIYFnasfGn1Uh6w24yS55xSPcUMyrmy664cx1xZXKoCvC0U0VCgEV37zB7HT9sQF2mOspNclcXy8Cgn/s320/bailando-tango.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj5fZUSJeKFpnRR1uZe-tC9kyk2ukesSbq8r-FSCrwnURo-9l2KkIynPtePCSX9-SIYFnasfGn1Uh6w24yS55xSPcUMyrmy664cx1xZXKoCvC0U0VCgEV37zB7HT9sQF2mOspNclcXy8Cgn/s1600/bailando-tango.jpg) *A tango limpio, nada más* **
+[![](/tangos-al-bardo/images/bad20577bbfd.jpg)](/tangos-al-bardo/images/c4242b702ccc.jpg) *A tango limpio, nada más* **
 ** muy suavemente la abrazás, **
 ** ******un paso aquí y el otro allá,****  **** *********media vuelta y ya está.*****  ***** * ******  ****** A tango limpio sentirás******  ****** *******su respirar, su palpitar*  * ***y lo demás es emoción,* *  * ***ya lo sabrás si sos varón** ** **Jorge Antonio Bocacci
 

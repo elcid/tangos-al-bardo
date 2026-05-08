@@ -23,7 +23,7 @@ Todo esto ocurría en 1932, pero el año anterior Gardel ya había protagonizado
 
 Marcel Lattès que hizo muy buenas relaciones con Gardel, sería encarcelado por las tropas alemanas que invadieron Francia en diciembre de 1941 por su condición de judío, pese al renombre que había alcanzado como músico. Sacha Guitry, el reconocido dramaturgo conseguiría su liberación, pero finalmente volvería a ser arrestado por las tropas invasoras en 1943 y conducido en el tren de la muerte al campo de concentración de Auschwitz, donde finalmente lo ejecutaron.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj6Qpa_igz2hUs6_7eFPGRECGcpufcxvsNlq8VGq09Ccwlg3nnGikCfIYwKI1nq2l03MnTBOvmWWce0-9RiicEdtBu2Fl4BI6TVHIm0hUM3nQgBKx-eatpva3AV5uAibL76j5Z1ub9_cZw/s1600/lat1213.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj6Qpa_igz2hUs6_7eFPGRECGcpufcxvsNlq8VGq09Ccwlg3nnGikCfIYwKI1nq2l03MnTBOvmWWce0-9RiicEdtBu2Fl4BI6TVHIm0hUM3nQgBKx-eatpva3AV5uAibL76j5Z1ub9_cZw/s1600/lat1213.jpg) El músico francés Marcel Lattès
+ [![](/tangos-al-bardo/images/7cfd4a7ea886.jpg)](/tangos-al-bardo/images/7cfd4a7ea886.jpg) El músico francés Marcel Lattès
 
 Haydeé Breslav realizó una exhaustiva investigación sobre Lattès y algunos de estos datos, son precisamente extraídos de su trabajo. Y nada mejor que volver a escuchar esta canción que recuerda incluso al músico nacido en Niza, en la voz de Carlos Gardel acompañado por la orquesta que dirige desde el piano Alberto Castellano. Y también para saborear la música de la misma podemos oírla interpretado en dupla por Antonio Agri en violín, acompañado por Esteban Morgado con la guitarra.
 

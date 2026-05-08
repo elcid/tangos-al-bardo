@@ -5,4 +5,4 @@ original_url: https://tangosalbardo.blogspot.com/2024/04/academico-del-tango.htm
 labels: ""
 ---
 
-[](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiaVDITBiVk3UFa7mG6QBAeL6W37HDESKnqDQRwMXUvPtUrnlvlAzOLBb8k-0xgMGkrOWgqpOyDk5I60qbvY5PjPrv2gAMow1YkknjebIC4eLNqS86A0kETLO5dV1GbKzNdtHdtAawK9pUBdhCK6FEkYhgD_hYixKPg0pCyJ9LqEWwpSk4xx0K4HHaFcc55/s3128/Acad%C3%A9mico%20d%20e%20Tango%20-%20Diploma20240404_160952.jpg)
+[](/tangos-al-bardo/images/936733e31a45.jpg)

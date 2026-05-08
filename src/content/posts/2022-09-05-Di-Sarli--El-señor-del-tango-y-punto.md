@@ -26,7 +26,7 @@ Y que él se limitó a contestar: "*Ustedes toquen lo que está escrito. El esti
 
 Dejaría la dirección en 1959, a causa del cáncer que finalmente lo venció el 12 de enero de 1960. Cuando se sumergía en sus largos silencios, sus músicos comentaban: "*Ya entró en la cámara*". Verdi conoció como pocos su extraño carácter, que los lentes ahumados (con los que ocultaba la pérdida de un ojo en un episodio sobre el que existen versiones diversas) parecían volver más inescrutable.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhWON5xuiYjFVKLgR6GTRA9_v_P5snwYi0X7HH37nmk2zrERnlTtR4SfTiA36QZeJZlkJ2c3MydQlUEGEnwaC9dEp5cVTIe2oGEO1KLMntBwq4nzPK6EGk6gydvxrfHeIEwftFmGNIauLq99Q-4sAZ28d3uFnS8EMYCIUitqN1Q31GghbLgqIaQ1dkeEw/w268-h400/verdi%204.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhWON5xuiYjFVKLgR6GTRA9_v_P5snwYi0X7HH37nmk2zrERnlTtR4SfTiA36QZeJZlkJ2c3MydQlUEGEnwaC9dEp5cVTIe2oGEO1KLMntBwq4nzPK6EGk6gydvxrfHeIEwftFmGNIauLq99Q-4sAZ28d3uFnS8EMYCIUitqN1Q31GghbLgqIaQ1dkeEw/s430/verdi%204.jpg)Verdi y Di Sarli
+[![](/tangos-al-bardo/images/ddbc200a2068.jpg)](/tangos-al-bardo/images/cbf1d8c21f99.jpg)Verdi y Di Sarli
 
 -*Era muy retraído y, cuando algo de lo que sonaba no le gustaba, insultaba bajito a los músicos. Aunque no me olvido de esas cosas, fui muy feliz en su orquesta. Era muy bueno, pero llevaba un gran dolor adentro, por lo mucho que habían hablado de él*, dice Verdi.
 

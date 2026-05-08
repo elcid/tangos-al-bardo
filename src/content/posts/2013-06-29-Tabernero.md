@@ -23,7 +23,7 @@ Al día siguiente, a hora temprana, se presentó Costa Olivieri en la casa de Fr
 
 Efectivamente, éso sucedió y así se rescataron los perdurables octosílabos del tango *Tabernero*, estrenado el 19 de octubre de 1919 en el Teatro América de la calle Boedo, en una función a beneficio de los canillitas (vendedores de periódicos), por Cafre-Mendoza, y que grabaría en disco, antes que nadie, Ignacio Corsini.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiI7U95KmC6JR5kK1oF6p05AkxuKw6pSORqMq-15Co_0uhq-yDUZkQpnUhaeMiAcHDLM0VazKODXmi1ZukNXmcnkIHP-vp1D-FKKnJ6BRAl4AnDqPv13-0Yr1RctwgJ-j4WVtyHcFmtTME/s320/ensayoconricardoybarbieri.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiI7U95KmC6JR5kK1oF6p05AkxuKw6pSORqMq-15Co_0uhq-yDUZkQpnUhaeMiAcHDLM0VazKODXmi1ZukNXmcnkIHP-vp1D-FKKnJ6BRAl4AnDqPv13-0Yr1RctwgJ-j4WVtyHcFmtTME/s1096/ensayoconricardoybarbieri.jpg) Carlos Gardel ensayando con sus guitarristas Ricardo y Barbieri
+ [![](/tangos-al-bardo/images/0511dce6441a.jpg)](/tangos-al-bardo/images/31ae549ec4e8.jpg) Carlos Gardel ensayando con sus guitarristas Ricardo y Barbieri
 Cuando se lo llevaron a Gardel, su franqueza no anduvo con rodeos. No sólo no le gustaba sino que dijo: Además Miguel (Cafre) lo canta muy bien y yo no podría hacerlo como él. Curiosamente, en 1927, estando en España, mientras iba en un taxi por Barcelona se lo oyó cantar al conductor del coche y Gardel le preguntó si ese tango que cantaba era un tango español.
 -*No, hombre, es un tango argentino y se llama Tabernero* - respondió el chófer.
 

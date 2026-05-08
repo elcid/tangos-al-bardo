@@ -12,7 +12,7 @@ Oscar Rubens
 
 La milonga es un volcán de emociones y en esta noche de martes, como sucede durante todo el año, **BIEN MILONGA** lo revive una vez más, desde las 21 a las 0 horas en la convocante pista de la madrileña CASA de ARAGÓN (Pza. República Argentina nº 6).
 
-[![](https://blogger.googleusercontent.com/img/a/AVvXsEgZT1eNajUweZsMgULOETqvhHgmQ7FnvxG6p86Jhxxi2HNJqoXIlIPO-IlTHy1-YcFME-2CN1W45O0FZplPibROEsff5DntkEQ1KaiMwtKxpSVT94v7-XXUMF9oM5DT46VgLd1Ph4aJn87dkbpI9I4wdVB2OxhQnYmIzLnHBPkCBwnXzg37CtUHEp61Cg=w428-h640)](https://blogger.googleusercontent.com/img/a/AVvXsEgZT1eNajUweZsMgULOETqvhHgmQ7FnvxG6p86Jhxxi2HNJqoXIlIPO-IlTHy1-YcFME-2CN1W45O0FZplPibROEsff5DntkEQ1KaiMwtKxpSVT94v7-XXUMF9oM5DT46VgLd1Ph4aJn87dkbpI9I4wdVB2OxhQnYmIzLnHBPkCBwnXzg37CtUHEp61Cg=s788)
+[![](/tangos-al-bardo/images/3e7c13c5d008.jpg)](https://blogger.googleusercontent.com/img/a/AVvXsEgZT1eNajUweZsMgULOETqvhHgmQ7FnvxG6p86Jhxxi2HNJqoXIlIPO-IlTHy1-YcFME-2CN1W45O0FZplPibROEsff5DntkEQ1KaiMwtKxpSVT94v7-XXUMF9oM5DT46VgLd1Ph4aJn87dkbpI9I4wdVB2OxhQnYmIzLnHBPkCBwnXzg37CtUHEp61Cg=s788)
 
  Y para ir templando gaitas con vista a la velada nocturna nuestra, nos damos la vueltita de rigor por otras pistas del ancho mundo donde reina el tango bailado.
 Arrancamos por el porteño Salón Cánning de la Avenida Raúl Scalabrini Ortiz donde anclamos tantas veces. En este caso para ver a Facundo Piñero y Vanesa Villalba bailando el tango **Cuatro vidas**, interpretado por la orquesta de Carlos Di Sarli, cantando Oscar Serpa.

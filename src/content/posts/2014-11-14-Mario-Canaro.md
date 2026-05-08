@@ -10,7 +10,7 @@ Fue el menor de la saga que tantos aportes le dió al tango y el único que naci
 
 Es importante destacar de dónde emergió esta gente para comprender el valor de su epopeya. Francisco los fue introduciendo a todos sus hermanos en la música -salvo a Luis-, y les compraba un instrumento para que estudiasen con el mismo y se formaran. Mario lo fue intentando con el bandoneón, el violín, e incluso el contrabajo, en el afán de emular rápidamente a los mayores y un viaje a Francia acompañando a su hermano Francisco, lo puso en la órbita debida.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg98lNRbVn3Phd5kqOEKKLF2EFsMubF1MblEsJg7OwS66jsQ6FphYOVF3YMGZHXELWtjfS7Ya0ZgY6AdXSlFJKtn4TnoS5Xr1VKUJLjwECtFCB5C17IJG0kqzM8agNHI0z7c1VbWeCYWQQ/s1600/Rafa+Canaro+1.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg98lNRbVn3Phd5kqOEKKLF2EFsMubF1MblEsJg7OwS66jsQ6FphYOVF3YMGZHXELWtjfS7Ya0ZgY6AdXSlFJKtn4TnoS5Xr1VKUJLjwECtFCB5C17IJG0kqzM8agNHI0z7c1VbWeCYWQQ/s1600/Rafa+Canaro+1.jpg) Mario toca el contrabajo en la orquesta de su hermano Rafael
+ [![](/tangos-al-bardo/images/2ea3051ffc79.jpg)](/tangos-al-bardo/images/2ea3051ffc79.jpg) Mario toca el contrabajo en la orquesta de su hermano Rafael
 
 En el Conservatorio Bruselas, de París, recomendado por el cónsul argentino en la capital francesa, terminó su aprendizaje y ya estaba listo para incorporarse a la troupe de los Canaro. Tanto Francisco, como Rafael o Humberto, lo incluían en sus orquestas y luego de probar con varios instrumentos se quedaría definitivamente y más cómodo con el contrabajo.
 

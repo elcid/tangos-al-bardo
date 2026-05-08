@@ -17,7 +17,7 @@ Hoy que los habitantes de la Ciudad de Buenos Aires van comprobando que todos es
 
 Los vecinos de Parque Avellaneda y Villa Luro han decidido bautizar con su nombre y apellido la plazoleta de la Avenida Emilio Castro y Escalada, en el barrio que lo vio nacer.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg8eLDOYrZjcw91li0LYv3zeRbvDy85FSTBkWWyn_OMcl1ePVfvtCjAJW3CI67FA6GDQ-X5xEPSdcJ5LKmgD_O3IUtWVQU3s2hrxYKp_Q72_FyLki0pxhfpYUmnvww-7cXv8bx1-iNoiCwG/s1600/Castillo.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg8eLDOYrZjcw91li0LYv3zeRbvDy85FSTBkWWyn_OMcl1ePVfvtCjAJW3CI67FA6GDQ-X5xEPSdcJ5LKmgD_O3IUtWVQU3s2hrxYKp_Q72_FyLki0pxhfpYUmnvww-7cXv8bx1-iNoiCwG/s1600/Castillo.jpg)Un acto de estricta justicia, que me llena de placer el cuore, desde la distancia, porque pasé algunas tardes con Alberto en los baños turcos del Colmegna y pude verlo como era realmente: un buenote, algo ingenuo, pero con un profundo sentimiento tanguero.
+[![](/tangos-al-bardo/images/98e933ed4cbe.jpg)](/tangos-al-bardo/images/98e933ed4cbe.jpg)Un acto de estricta justicia, que me llena de placer el cuore, desde la distancia, porque pasé algunas tardes con Alberto en los baños turcos del Colmegna y pude verlo como era realmente: un buenote, algo ingenuo, pero con un profundo sentimiento tanguero.
 
 Y lo bailo con Tanturi y todavía me produce una sensación de goce enorme.
 

@@ -13,7 +13,7 @@ A todos mis amigos/as tangueros/as y milongueros/as, de aquí, de acá, de allá
 
  Como por ejemplo con este **Candombe de Navidad**, de Romeo Gavioli-Carmelo Imperio y Jerónimo Yorio por Romeo Gavioli y sus muchachos orientales. (1948)
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhG1edPGsp4OPseJMZi9iyizSFYlTkG7LXu4N_Ksz-6xIXNeUrWPa0znvSwaYoHe8bGsBgh6Vo_pGfCwfdQD3W-WOf7ngNIBxS6jVDub-3oBp0YTWyQ2q3kntRfEJ1me8MbKNfLxD3t1On1/s1600/AlfredoDeAngelis-AlfredoDeAngelis-170x170.gif)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhG1edPGsp4OPseJMZi9iyizSFYlTkG7LXu4N_Ksz-6xIXNeUrWPa0znvSwaYoHe8bGsBgh6Vo_pGfCwfdQD3W-WOf7ngNIBxS6jVDub-3oBp0YTWyQ2q3kntRfEJ1me8MbKNfLxD3t1On1/s1600/AlfredoDeAngelis-AlfredoDeAngelis-170x170.gif) Y la seguimos con **El vals de Nochebuena**, de Domingo Losso y Néstor Rodi por Alfredo De Angelis, cantando Carlos Dante (27 de noviembre de 1944) .
+[![](/tangos-al-bardo/images/ebf8ecdd7fcc.gif)](/tangos-al-bardo/images/ebf8ecdd7fcc.gif) Y la seguimos con **El vals de Nochebuena**, de Domingo Losso y Néstor Rodi por Alfredo De Angelis, cantando Carlos Dante (27 de noviembre de 1944) .
 
 [Candombe de Navidad](http://sdrv.ms/12G6DYD)
 
@@ -29,7 +29,7 @@ Observen con los ojitos abiertos de par en par.
 <iframe src="https://www.youtube.com/embed/wd5xaPT2I9M?feature=player_embedded"></iframe>
 
 Y para comenzar a celebrar esta Noche buena nada mejor que una Buena noche de una pareja que dio que hablar en el tango. Por su arte, por su calidad, su entendimiento, su plenitud espiritual y emocional.
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhrKEp1vwlO2NNh_QeJKc-p4YokfJ64FyOD7gYtCkLySorssIP4wxpexgU8tnul_F6lO8bXmmb8nGoTV5xisUI8GDlxK1Zp4XQo_4Zw7dGq5gdIj2SKNukx2Iu2_gD4R_vTizf-hD8gEZ64/s1600/mala_junta.gif)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhrKEp1vwlO2NNh_QeJKc-p4YokfJ64FyOD7gYtCkLySorssIP4wxpexgU8tnul_F6lO8bXmmb8nGoTV5xisUI8GDlxK1Zp4XQo_4Zw7dGq5gdIj2SKNukx2Iu2_gD4R_vTizf-hD8gEZ64/s1600/mala_junta.gif)
+[![](/tangos-al-bardo/images/7081b7b77431.gif)](/tangos-al-bardo/images/7081b7b77431.gif)
 En cada etapa, el ser humano ha de buscar no tanto la enfática felicidad, sino, como en el baile, ese momento propicio que los griegos llamaron *Kairós.*
 
 Javier Rodríguez y Geraldine Rojas lo encontraron y nos llenaron de gozo cuando fueron pareja, con sus creaciones. Y en este Día de Nochebuena, evoco una de aquellas noches felices que los unió en el baile, con esta creación de **Mala junta**, el enorme tangazo de Julio De Caro y Pedro Laurenz.

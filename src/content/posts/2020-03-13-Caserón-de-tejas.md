@@ -10,7 +10,7 @@ Aquel grupo del barrio de Boedo que presidía, sin quererlo, el patriarca del cl
 
 Piana y Cátulo fueron los autores del tango **Tinta roja** y el valsecito **Caserón de tejas**, en 1941 y previamente, junto a González Castillo, habían realizado esa otra maravilla: **Silbando**, que Carlos Gardel consagró grabándolo en 1925 y adosándole por su cuenta ese silbido que quedó para siempre adosado al tango. En este caso, Cátulo hizo la primera parte musical del tema y le dijo a Piana que hiciera la segunda, si le gustaba. Este lo aceptó y creó la segunda que tanto trabajo le daría a Don José para adosarle los correspondientes versos.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiTE56ng40OsyvohQYgZ_71omj-b128tRtRsLKNRotVrKNqGW6mTk8lHhSFxxvIKyepM0Qc7_PlghX5Dmd-ImaNvP-tm4HrAQKuORY7V89ZUYQcpDTGZ5qL6KHumcsypiRkNMeUi08O4u_E/s320/C%25C3%25A1tulo-Castillo.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiTE56ng40OsyvohQYgZ_71omj-b128tRtRsLKNRotVrKNqGW6mTk8lHhSFxxvIKyepM0Qc7_PlghX5Dmd-ImaNvP-tm4HrAQKuORY7V89ZUYQcpDTGZ5qL6KHumcsypiRkNMeUi08O4u_E/s1600/C%25C3%25A1tulo-Castillo.jpg) Cátulo Castillo
+ [![](/tangos-al-bardo/images/c6290c0edd8f.jpg)](/tangos-al-bardo/images/af13e3fa3664.jpg) Cátulo Castillo
 Recién a la muerte de su padre Cátulo decidió sacar patente de poeta, convencido de que el tango es una pequeña obra de arte que requiere talento. Su obra es realmente impresionante y hoy me detengo en ese hermoso valsecito que también en 1941 compusiera con Piana. Cátulo recrea, en estado de ensoñación, aquel barrio con estampa colonial que conoció de pibe y que comienza a ser reemplazado por una arquitectura moderna, de gran estatura estructural, que amenaza con barrer toda la escenografía de sus recuerdos infantiles.
 
 Barrio de Belgrano...
@@ -50,7 +50,7 @@ nos llama mamá.
 Como un coleccionista de asombros, el poeta va deshilachando su corazón sin dejar ese lado de tristeza y melancolía que resaltan en su poder de vivificación. Las imágenes alborotadas se van poniendo en orden en el ensimismamiento del niño que fue. El paso del tiempo, el poso, acentúan las ensoñaciones del recuerdo. En el umbral que separa el pasado del futuro, aquel caserón de tejas vuelve una y otra vez con el encanto y la magia de antaño.
 
 Barrio de Belgrano...
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhwkDSnNlDHm5w4yt2mCqWHASx2wP5uRrCFNI9d9yLiLwSwJ3JPfgWOZ19p1M9feHhNxdSzB10BmIOAiZiHnICbs5N3fMmnrJ6o5g653FCHYe9md0JqVncp9CFlKIgSjCJL6y_cfY7hJuaY/s320/CasitaEKMpwUnW4AY6Juw.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhwkDSnNlDHm5w4yt2mCqWHASx2wP5uRrCFNI9d9yLiLwSwJ3JPfgWOZ19p1M9feHhNxdSzB10BmIOAiZiHnICbs5N3fMmnrJ6o5g653FCHYe9md0JqVncp9CFlKIgSjCJL6y_cfY7hJuaY/s1600/CasitaEKMpwUnW4AY6Juw.jpg)Caserón de tejas...
+[![](/tangos-al-bardo/images/85b663593454.jpg)](/tangos-al-bardo/images/5ceb7e91440a.jpg)Caserón de tejas...
 ¿Dónde está el aljibe?
 ¿Dónde están tus patios?
 ¿Dónde están tus rejas?

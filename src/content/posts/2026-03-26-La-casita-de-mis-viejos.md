@@ -14,7 +14,7 @@ Cobián se entusiasmó con el "monstruo" y se puso a cantarlo. Al terminar me di
 
 Yo alquilaba un pequeño departamento en Talcahuano 309. Habiendo quedado desocupado el del piso de arriba y sabiendo que Cobián buscaba uno para mudarse, lo llamé para que viniera a verlo. A los pocos días lo tuve de vecino.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiK9TNkBniO-cbxMUC2dd6aNRaXCHmnXGcPsAyqtjUmtJR-2iappvm5KU8m98wd0PsRyMR2gmaN0ALg2sDtQiC03WoZnSMEYX3POAedLtnryjLXbYBeJuJAXucZWt16uC4QW12qAArc7GG_MZdgxb4WMum6xtbhhmlO2Qp1flJkBAkEuE9ozKUfmUtHlU-J/w256-h320/COBI%C3%81.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiK9TNkBniO-cbxMUC2dd6aNRaXCHmnXGcPsAyqtjUmtJR-2iappvm5KU8m98wd0PsRyMR2gmaN0ALg2sDtQiC03WoZnSMEYX3POAedLtnryjLXbYBeJuJAXucZWt16uC4QW12qAArc7GG_MZdgxb4WMum6xtbhhmlO2Qp1flJkBAkEuE9ozKUfmUtHlU-J/s251/COBI%C3%81.jpg) Juan Carlos Cobián
+[![](/tangos-al-bardo/images/7cb9bf44738a.jpg)](/tangos-al-bardo/images/9d8e99d5e053.jpg) Juan Carlos Cobián
 
 Nos comunicábamos de balcón a balcón proyectando el programa de la noche, Yo escribía unos *sketchs *para una revista teatral que encabezaban María Esther Pomar y Segundo Pomar, en la sala del teatro Astral y su debut se produjo el 12 de diciembre del 31.
 

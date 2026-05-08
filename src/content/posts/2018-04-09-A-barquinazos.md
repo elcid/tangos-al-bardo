@@ -10,13 +10,13 @@ Este tango, como muchos de la enciclopedia tanguera, tiene una curiosa historia 
 
 El filme se estrenó el 2 de setiembre de dicho año, con la particularidad de que actuaron los cinco hermanos Alonso: Tito, Pola, Iris, Mario y Héctor. En el mismo intervino también la orquesta de Osvaldo Pugliese y el maestro decidió sacar a relucir su tango inédito. Contaría con la colaboración nada menos que de Homero Expósito -con quien se encontró en el Café El Águila-, que le puso versos para el mismo y lo tituló **A barquinazos**. Que viene a significar, "a los tumbos".
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEivQmao6UHpGx7lAB85jlv2ih02PhtEa91eOd_DBG_t490ApkTlSgY5H52ebYVI91qSIWNC2wMhi5489Xr0LJaWAzo6G2kUiwcnIkuYKzWOQbTvtj716RFsD2pR-nWq4WSsQY-6_mRZ7HWv/s400/Osvaldo+Pugliese+-+Mis+cinco+hijos.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEivQmao6UHpGx7lAB85jlv2ih02PhtEa91eOd_DBG_t490ApkTlSgY5H52ebYVI91qSIWNC2wMhi5489Xr0LJaWAzo6G2kUiwcnIkuYKzWOQbTvtj716RFsD2pR-nWq4WSsQY-6_mRZ7HWv/s1600/Osvaldo+Pugliese+-+Mis+cinco+hijos.jpg) La orquesta de Osvaldo Pugliese en la película "Mis cinco hijos"
+ [![](/tangos-al-bardo/images/4dda6d093fe2.jpg)](/tangos-al-bardo/images/a711f11bcace.jpg) La orquesta de Osvaldo Pugliese en la película "Mis cinco hijos"
 
 En la película actúa la orquesta de Pugliese y se filmaron esas escenas en el Club Social Villa Crespo, del cual el propio músico había sido uno de sus fundadores. Tocaron los instrumentales **Adiós Bardi** y **La yumba** y Pugliese invitó a a Mario Alonso a cantar dos temas -para desazón de Alberto Morán-. Uno de ellos fue **El encopao** (de Pugliese y Dizeo) y el otro: **A barquinazos**.
 
 La letra de Expósito contiene la retórica habitual del poeta, y aunque deba trabajar sobre una música previamente escrita -tarea nada fácil- logra darle ese imperio de maestría a la aventura del amor que va a los tumbos, pero los reproches y quejas del romance no le impiden seguir creyendo en el mismo. En el tema recrea la historia juvenil de Zárate que nunca pudo olvidar.
 
- Yo sé que puedo llegar  y me propongo hasta el fin,   tengo tu amor al ojal,   una ansiedad de cantar    [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjboDxlk6_c64AkJGk7auuArTnJ8nKx_bD8ZBk7BWwniyS3oWxZ3JH6NYq05DdmbxGq7kqn3CxDNWFTcB4UU3hzhQIGtFlui2cbSXuPIzIfD2PuOEPP6Jn2SYN8mwMBZwT2s1FLB1SD-mEi/s1600/homero+exposito.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjboDxlk6_c64AkJGk7auuArTnJ8nKx_bD8ZBk7BWwniyS3oWxZ3JH6NYq05DdmbxGq7kqn3CxDNWFTcB4UU3hzhQIGtFlui2cbSXuPIzIfD2PuOEPP6Jn2SYN8mwMBZwT2s1FLB1SD-mEi/s1600/homero+exposito.jpg) Homero Expósito  y una ambición de vivir.
+ Yo sé que puedo llegar  y me propongo hasta el fin,   tengo tu amor al ojal,   una ansiedad de cantar    [![](/tangos-al-bardo/images/1a2e1a92af7a.jpg)](/tangos-al-bardo/images/1a2e1a92af7a.jpg) Homero Expósito  y una ambición de vivir.
 
 
  La cuesta siempre nos cuesta  pero a la larga no es larga,

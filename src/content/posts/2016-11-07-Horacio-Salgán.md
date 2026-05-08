@@ -24,7 +24,7 @@ Salgán llevó el tango al límite. Después de él llegó Piazzolla. Pero a los
 A él concretamente lo vi dos veces en mi vida. Una en Rafaela, en el aniversario de la radio del lugar. Estuvo con De Lío, con quien armó un dúo inigualable. Otra vez en Vicente López con su quinteto. Y lamentablemente la última vez que escuché en vivo al Quinteto Real, él ya no pudo venir. Lo reemplazó admirablemente su hijo César, quien gracias a Dios se empeñó en la misión de continuar su obra. Unos días antes yo le había enviado unos versos, que tienen mucho valor afectivo y poco literario. Hace unos años caminaba solo por la montaña y después de rezar el rosario, encendí uno de esos aparatitos con música. Apareció Salgán. Me senté mirando al Fitz Roy, saqué papel y bolígrafo de la mochila y me puse a escribir. Me salieron estos versos, que son los que le hice llegar. Salgán me escribió diciéndome que lo habían conmovido, pero que tratándose de un obispo, por discreción no los iba a hacer públicos. Un verdadero acto de humildad.
 Me enteré de su muerte tomando un buen café con leche con medialunas y leyendo el diario en un bar del centro de Buenos Aires. Pienso que desde su inmortalidad a Salgán le debe haber gustado que la noticia de su muerte me llegara de una manera tan porteña. Aquí van los versos y por supuesto ofrecí la misa del día por él.
 
-**  [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjUBAeeMgl2sY7R1j8y1dB3udRRZTU40q0ENtrQF3h0SXH6nG0mSaCwd-ioBbSAsCh5BkZ7aOAsBgPnkp3K7WY9PWVpY5b5kIz_heg73rrV-zUukNEzyHj4h_GsO39HwgZgfe7NWzgq4alK/s320/Jorge_Casaretto.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjUBAeeMgl2sY7R1j8y1dB3udRRZTU40q0ENtrQF3h0SXH6nG0mSaCwd-ioBbSAsCh5BkZ7aOAsBgPnkp3K7WY9PWVpY5b5kIz_heg73rrV-zUukNEzyHj4h_GsO39HwgZgfe7NWzgq4alK/s1600/Jorge_Casaretto.jpg) Obispo Emérito Jorge Casaretto  **
+**  [![](/tangos-al-bardo/images/584a07a25de5.jpg)](/tangos-al-bardo/images/fb62bb6b48b6.jpg) Obispo Emérito Jorge Casaretto  **
 
 **A Horacio Salgán**
 
@@ -46,7 +46,7 @@ nostálgico, armonioso,
 triste y festivo,
 alegre y quejumbroso.
 Fuiste fiel al dos por cuatro
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg7SBdCVl0Z8nQVeYtnwHrJR2eRwSGaYFxdez3d8tKV2DpD8GThoHG7PP-BICj06PU-piHpNKHGkCSBedpyqfsLK2M4xvvg34ACyE2JCf3nc4OeKYOc1twimpv2xd_Rvqrms6ovngR_qlK7/s320/Horacio+y+C%25C3%25A9sar.JPG)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg7SBdCVl0Z8nQVeYtnwHrJR2eRwSGaYFxdez3d8tKV2DpD8GThoHG7PP-BICj06PU-piHpNKHGkCSBedpyqfsLK2M4xvvg34ACyE2JCf3nc4OeKYOc1twimpv2xd_Rvqrms6ovngR_qlK7/s1600/Horacio+y+C%25C3%25A9sar.JPG) Horacio Salgán y su hijo César  y a su austera melodía.
+ [![](/tangos-al-bardo/images/70cddd63abc5.jpg)](/tangos-al-bardo/images/d1c04445a6c7.jpg) Horacio Salgán y su hijo César  y a su austera melodía.
 Nunca pasaste la raya
 que transforma el tango en sinfonía.
 

@@ -10,7 +10,7 @@ Hoy traigo al blog este tango de Héctor Negro, con música de Raúl Garello par
 
 Negro admiraba a sus antecesores en el tango, especialmente a Celedonio Flores, porque fueron los que establecieron las pautas de las letras que canturrearía el pueblo y perdurarían en la memoria colectiva. En su sabia combinación de experimentalismo y alegoría hay una fineza de fondo, e incluso, una fuerte crítica social referida a las injusticias que soportan sus paisanos.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj_CSF1Q8OLXCnMIlK865njT5YhaEvnA2LHxG0mbtxJBc7X9FzFsgw3o32ImwbHK-b_j8JzcrS4_yJT2NuT7pimJfVl2RxSvhFkArNyYh5bfcmz98N2rpKT5P7ipHu-il6-mO0J4fEYUTr_/s1600/_HECTOR_NEGRO-13.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj_CSF1Q8OLXCnMIlK865njT5YhaEvnA2LHxG0mbtxJBc7X9FzFsgw3o32ImwbHK-b_j8JzcrS4_yJT2NuT7pimJfVl2RxSvhFkArNyYh5bfcmz98N2rpKT5P7ipHu-il6-mO0J4fEYUTr_/s1600/_HECTOR_NEGRO-13.jpg) Héctor Negro
+ [![](/tangos-al-bardo/images/abcf8a1a255c.jpg)](/tangos-al-bardo/images/abcf8a1a255c.jpg) Héctor Negro
 
 Si tuviéramos que buscar un referente próximo a su poesía, quizás Homero Expósito fuera quien más se aproximara a este temprano constructor de canciones para la murga de su barrio, siendo un niño, como Manzi, Bahr, Bigeschi y tantos otros hombres del tango. En 1967 ganó el Premio Odol con su tango E**sta ciudad**, en colaboración con el guitarrista y compositor Osvaldo Avena.
 

@@ -10,7 +10,7 @@ La Orquesta Municipal de Tango de la ciudad de Mar del Plata –Provincia de Bue
 
 
      Fue creada por decreto 1711 de agosto de 1997 del Intendente Elio Aprile y su presentación oficial tuvo lugar el 11 de diciembre de 1997 en el Teatro Municipal Colón, en conmemoración del Día Nacional del Tango. La iniciativa del intendente Caprile, no pudo ser más afortunada y exitosa. Desde entonces la Orquesta se ha presentado en distintos escenarios, incluidas sus actuaciones en la Ciudad de Buenos Aires.
-  ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjkhFLcSqd56BF71RRePDkYUvvW1cR3q7dpMIvVPU4rv2SqzBfjHAiwVGrUpmiiay7hO7feCa1_B-e-1ENGI3rMFNmRJe56zJ4QjU37XZr00UHbB4knQdZ97kIsVy3dcvGrklzH6THtyXM/s1600/Orq.+Municipal+Mardel+con+Enrique+Alessio.JPG) Los integrantes de la Orquesta Muncipal rodeando al recordado Enrique Alessio.
+  ![](/tangos-al-bardo/images/f846c9cefbba.jpg) Los integrantes de la Orquesta Muncipal rodeando al recordado Enrique Alessio.
 En 1999 ofrecieron un concierto en dependencias del Senado de la Nación -Tributo a Enrique Cadícamo-, y también en la Casa de la Cultura y el Teatro Nacional Cervantes, de gran solera, representando a la Provincia de Buenos Aires en el I Encuentro Nacional de Tango.
  Inicialmente la orquesta se integró bajo la dirección de Julio Dávila en el piano; Ernesto Scorziello (solista) y Carlos Báez (bandoneones); José De Pilato (solista), Pablo Albornoz y Jorge Smitt en violines; José Cardoso Borges en viola; Daniel Sergio, cello, solista; Eduardo Luc al contrabajo y Carlos Ramos en su rol de cantor.
 

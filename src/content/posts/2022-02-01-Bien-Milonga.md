@@ -6,7 +6,7 @@ labels: ""
 tags: ["Alberto Echagüe", "Juan D'Arienzo"]
 ---
 
-[![](https://blogger.googleusercontent.com/img/a/AVvXsEgQEhV2xltWjkYsGWCmDKJP3CHzxNju0jRYv-AoKmZQyyy4s0O0wvfGlgpf_NNkC1DY0hDDJxDXfPNtNCiv10Sf64swf-RRvscGBi60t7hbA0sVrzYeEWKNg53jeRwnOnsRKRMm2rynnAKrGdilCmmn9z4iW80I0_74j9tp3T94_CmBgKYx1dv0aBBfAw=w200-h120)](https://blogger.googleusercontent.com/img/a/AVvXsEgQEhV2xltWjkYsGWCmDKJP3CHzxNju0jRYv-AoKmZQyyy4s0O0wvfGlgpf_NNkC1DY0hDDJxDXfPNtNCiv10Sf64swf-RRvscGBi60t7hbA0sVrzYeEWKNg53jeRwnOnsRKRMm2rynnAKrGdilCmmn9z4iW80I0_74j9tp3T94_CmBgKYx1dv0aBBfAw=s1000)
+[![](/tangos-al-bardo/images/1cb3e6534650.jpg)](https://blogger.googleusercontent.com/img/a/AVvXsEgQEhV2xltWjkYsGWCmDKJP3CHzxNju0jRYv-AoKmZQyyy4s0O0wvfGlgpf_NNkC1DY0hDDJxDXfPNtNCiv10Sf64swf-RRvscGBi60t7hbA0sVrzYeEWKNg53jeRwnOnsRKRMm2rynnAKrGdilCmmn9z4iW80I0_74j9tp3T94_CmBgKYx1dv0aBBfAw=s1000)
 Yo soy el tango, señores
 bien porteño, siempre fui,
 mi viejo es un bandoneón,

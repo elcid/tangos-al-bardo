@@ -8,7 +8,7 @@ tags: ["Francisco Lomuto"]
 
 Hoy estoy con el *cuore in ritornello *hacia el barrio donde me crié. Donde mastiqué tantos códigos que siguen rigiendo mi andar por la vida.
 
-[](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEimGnFMjMyEnNy3l2wZdEjfyQYgF2-zHbQhsumtmaltUTEbIc5ytjTO0cnmaGoR6GSux_IOl5_gRdS4Vxs2LPvtVk5AdvHy7oINFy0M_S_aBbQQa7Nrh8mjma9kInL6U4yrBq8KCLTl1KIH/s1600/viejo-parque-patricios-01.jpg)Donde aprendí, entre tantos otras cosas a reservar la confidencia, a aguantar los cimbronazos, a pelear cuando no había más remedio, a conocer las primeras caricias e impericias del amor...
+[](/tangos-al-bardo/images/946004fca863.jpg)Donde aprendí, entre tantos otras cosas a reservar la confidencia, a aguantar los cimbronazos, a pelear cuando no había más remedio, a conocer las primeras caricias e impericias del amor...
 
 Y a valorar la amistad por sobre los vaivenes de la vida. A disfrutar las serenatas, los fueyes y las violas del barrio. ¡Y a bailar el tango!
 
@@ -16,8 +16,8 @@ Por todo eso, nada menos, estoy siempre volviendo, que diría el gordo Pichuco.
 
 Infinidad de próceres del tango vivieron en Parque Patricios. Y para algunos historiadores, en este barrio nació el tango.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjUN88fCrL7dwZrP1YYWFVa5VCxdsdjYZ9DMzXASm8NB-umu9AmK6RuzE3zaCBKnicEhkvPgSgTFSnbRZYevUCKr25JRZANY4xYpsKw1QPfHusMGRNBVljTU6po_mNeLAIQd3qmKkVSufJb/s320/yo-soy-de-parque-patricios-01.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjUN88fCrL7dwZrP1YYWFVa5VCxdsdjYZ9DMzXASm8NB-umu9AmK6RuzE3zaCBKnicEhkvPgSgTFSnbRZYevUCKr25JRZANY4xYpsKw1QPfHusMGRNBVljTU6po_mNeLAIQd3qmKkVSufJb/s1600/yo-soy-de-parque-patricios-01.jpg)
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEimGnFMjMyEnNy3l2wZdEjfyQYgF2-zHbQhsumtmaltUTEbIc5ytjTO0cnmaGoR6GSux_IOl5_gRdS4Vxs2LPvtVk5AdvHy7oINFy0M_S_aBbQQa7Nrh8mjma9kInL6U4yrBq8KCLTl1KIH/s320/viejo-parque-patricios-01.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEimGnFMjMyEnNy3l2wZdEjfyQYgF2-zHbQhsumtmaltUTEbIc5ytjTO0cnmaGoR6GSux_IOl5_gRdS4Vxs2LPvtVk5AdvHy7oINFy0M_S_aBbQQa7Nrh8mjma9kInL6U4yrBq8KCLTl1KIH/s1600/viejo-parque-patricios-01.jpg)
+[![](/tangos-al-bardo/images/f7103b15a0a9.jpg)](/tangos-al-bardo/images/4c6d438e8136.jpg)
+[![](/tangos-al-bardo/images/1c5e13a22a08.jpg)](/tangos-al-bardo/images/946004fca863.jpg)
 
 Yo los recuerdo a ellos y a la querida barra, en este poema, que dediqué a mi inolvidable barrio porteño.
 

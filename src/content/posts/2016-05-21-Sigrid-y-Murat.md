@@ -10,7 +10,7 @@ Para un milonguero no hay nada más emocionante que bailar con la milonguera ade
 
 Horacio Sanguinetti, en su* Bailarina de tango*, compuesto con el violinista, director y arreglador, Oscar De la Fuente, pinta a esa milonguera con palabras exactas. La presenta con su pollera de satén y color negro, de charol y tacos altos los zapatos, y dibujando garabatos, del ritmo que se adueña, su estampa de porteña. Lo hace con trazos hímnicos y merecidos, porque siempre fueron la fuente de inspiración de los milongueros que las codiciaron y las disfrutan en la pista. Y culmina su dibujo de esta guisa:
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjQ5u99qcll2dl5Fv1OmKwp95E4zOwWQOfmQmEwgmNVSkngFHSJKgwztgK2zsPUPNvecXIVjYThpQUe8Km4VozkOVZa9XbzWc_DTNjo3DDanj8zakcXWUuWaQ29ryjrI2P1r_-nI0yEfbyV/s320/Sigrid_Murat2.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjQ5u99qcll2dl5Fv1OmKwp95E4zOwWQOfmQmEwgmNVSkngFHSJKgwztgK2zsPUPNvecXIVjYThpQUe8Km4VozkOVZa9XbzWc_DTNjo3DDanj8zakcXWUuWaQ29ryjrI2P1r_-nI0yEfbyV/s1600/Sigrid_Murat2.jpg) Sigrid y Murat
+ [![](/tangos-al-bardo/images/ec7c379e0a39.jpg)](/tangos-al-bardo/images/f2e2e117d7a5.jpg) Sigrid y Murat
 Sacerdotisa del tango,
 sacerdotisa sentida.
 Rito es la danza en tu vida

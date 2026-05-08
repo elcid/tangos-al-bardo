@@ -15,7 +15,7 @@ Pistas de arena, gente "pesada", de mano rápida; la inconsciencia adolescente m
 Rivero recordaba que lo invitaron a tocar en *El Rancho grande* y fue con su amigo Benjamín Acha.
 "Esa tarde se nos había agregado un valor local, bandoneonista veterano de pinta brava y mano cruel para el fueye. Llegó enojado, casi sin saludar, como receloso de los musicante porteños. Y lo que empieza mal es difícil que siga bien. - contaba Edmundo-
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgLYQ-7OCTRdYSY1RRsGLD6z6VZ4N9QaNpDWOSdhLpDa_nwfMl8V7SnD6BsJN8z-7leYZRejg8riROf4m0vUUQxRoi3BvNgnfutTLPZyIM9hdPYfvL0cSpqpbj1JG5aI_UI1RSrbYARqm6s/s1600/Rivero.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgLYQ-7OCTRdYSY1RRsGLD6z6VZ4N9QaNpDWOSdhLpDa_nwfMl8V7SnD6BsJN8z-7leYZRejg8riROf4m0vUUQxRoi3BvNgnfutTLPZyIM9hdPYfvL0cSpqpbj1JG5aI_UI1RSrbYARqm6s/s1600/Rivero.jpg) Edmundo Rivero
+ [![](/tangos-al-bardo/images/6581abc2e29a.jpg)](/tangos-al-bardo/images/6581abc2e29a.jpg) Edmundo Rivero
 Pasó que a mi amigo Benjamín, que era muy fumador, le saltó del cigarrillo que vino a picarme apenas la botamanga.
 -¡Huy, lo quemé! - dijo Acha señalándome el pantalón.
 -No es nada, no ves que está viejo. Ya no sirve para nada - lo consolé yo refiriéndome por supuesto a lo mismo.

@@ -10,7 +10,7 @@ Florindo Sassone fue un tanguero de la cabeza a los pies. Recibido de profesor d
 
 A los 18 años, y luego de haber estudiado armonía, se alistó en la orquesta de Antonio Polito. Al año siguiente daría un salto considerable al encaramarse en la fila de violines del triunfante Roberto Firpo. Y en 1933 ingresa en una orquesta que lo marcará para siempre: la de Osvaldo Fresedo.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjRnb9VYzbiY3KEkYZDBDTh0ZruNpjWNOMfDKQxqgngxiAc4fxuvNW_QgwezQbD4biFmipn2r67zt2FtrO0q-tiXIx1DR6uUuiUuOzCSigks3686V2SxdQh_iNuWnBFnx5RaOYFhNgn2sw/s320/Sassone-Casal.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjRnb9VYzbiY3KEkYZDBDTh0ZruNpjWNOMfDKQxqgngxiAc4fxuvNW_QgwezQbD4biFmipn2r67zt2FtrO0q-tiXIx1DR6uUuiUuOzCSigks3686V2SxdQh_iNuWnBFnx5RaOYFhNgn2sw/s1600/Sassone-Casal.jpg) La gran época con Jorge Casal
+ [![](/tangos-al-bardo/images/ffa597e44487.jpg)](/tangos-al-bardo/images/dcc2355a7ce2.jpg) La gran época con Jorge Casal
 A partir de ese momento, Pedro Florindo Sassone bucea en el ritmo enfoscado, esa* summa* estética que determina un poder de sugestión musical. Las transfusiones estilísticas lo ubican entre las químicas de Fresedo y Di Sarli por el poder de la admiración, que no puede soslayar.
 
 Nunca llegará a los primeros planos, que están copados y porque el tango está en su apogeo, vigorizado con las grandes estrellas que convocan multitudes y venden discos como si fueran bizcochitos de grasa. Pero de repente aparece un cantor enorme como Jorge Casal en su orquesta y el director desvía la atención y las orejas de los tangueros hacia esa formación. Se produce entonces el tambaleamiento de la mirada única y jerarquizada.

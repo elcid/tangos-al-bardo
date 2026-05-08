@@ -23,7 +23,7 @@ El caso que hoy traigo al blog, tiene como protagonista al violinista. arreglado
 Pero es asombroso también su precoz trabajo de arreglador, si nos atenemos a los datos que figuran en su curriculum y que él mismo detallaba como anécdota en un reportaje que le hicieran en el diario Clarín:
 - *Las dos primeras piezas en las que debuté como arreglador, siendo aún un pibe, fueron "La polla" y "París", que después fueron dos grandes éxitos con otros títulos: "Madreselva" y "Corazón de oro".*
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjST_Z09HB5aRsA2QYNrBcdlw5hWh5WWOj6BFLGRTr7BlU_19q5AkeJisAbCSEVfEVsdgEi6fSxm2q4cNktd_88dNRRLcVpgmGxlXQrjuA_uKeYRY33O9_guybmL_9Ad97_7_6YJUW_Xpqu/s400/OrquestaRodolfoBiagi-+Oscar+De+la+fuente+1%25C2%25BA+parado+izq..jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjST_Z09HB5aRsA2QYNrBcdlw5hWh5WWOj6BFLGRTr7BlU_19q5AkeJisAbCSEVfEVsdgEi6fSxm2q4cNktd_88dNRRLcVpgmGxlXQrjuA_uKeYRY33O9_guybmL_9Ad97_7_6YJUW_Xpqu/s1600/OrquestaRodolfoBiagi-+Oscar+De+la+fuente+1%25C2%25BA+parado+izq..jpg) Oscar De la Fuente, arriba izq. con su violín en la orquesta de Rodolfo Biagi
+ [![](/tangos-al-bardo/images/e3b1357fcbbb.jpg)](/tangos-al-bardo/images/0a9ecbe48f14.jpg) Oscar De la Fuente, arriba izq. con su violín en la orquesta de Rodolfo Biagi
 
 Y más asombroso resulta entender como luego se tranformó el tango de Francisco Canaro: *París*, en el valsecito **Corazón de oro**. Oscar de la Fuente era "un pibe" -como él decía-, de apenas 16 años cuando arregló el tango *París*. En el caso de *La polla-Madreselva*, fue adaptado para el canto con la supresión de la tercera parte, dado que era instrumental, y lleva versos de Luis César Amadori, siendo estrenado por Tania en el teatro Maipo en 1931.
 

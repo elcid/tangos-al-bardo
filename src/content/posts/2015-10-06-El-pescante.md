@@ -23,11 +23,11 @@ En una genial descripción de aquella zona alejada del centro, el propio Manzi l
 
 -Boedo era algo así como un paso pesado que diera Puente Alsina para llegar al centro, como también el tránsito obligado de las gentes del centro cuando querían acercar el alma al Riachuelo.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiY7gbieAgSUnw5pI6HE6fAmVQ2M8ku3PiXMmgVYgU8lSpP9n1fnJLocpz2RHQDsBG0E9FoiG6weys4djorEFGhVvQdpqhvKiC6nvj3hWFekcq2t0NdfIJMLvsPf6I5lFMFAndQm4DO2kg/s320/Homero+Manzi+IV.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiY7gbieAgSUnw5pI6HE6fAmVQ2M8ku3PiXMmgVYgU8lSpP9n1fnJLocpz2RHQDsBG0E9FoiG6weys4djorEFGhVvQdpqhvKiC6nvj3hWFekcq2t0NdfIJMLvsPf6I5lFMFAndQm4DO2kg/s1600/Homero+Manzi+IV.jpg) Cátulo Castillo, Homero Manzi, Sebastián Piana y Pedro Maffia
+ [![](/tangos-al-bardo/images/a954e49d0da2.jpg)](/tangos-al-bardo/images/ee725135ea99.jpg) Cátulo Castillo, Homero Manzi, Sebastián Piana y Pedro Maffia
 
 Homero Manzi cantó como nadie el paso irremediable del tiempo, en versos convertidos en páginas maravillosas, y que descubrieron el sur perdido de los porteños que nunca fueron merecedores de la atención de intendentes y concejales municipales. Ellos sólo mimaron al centro y el Barrio Norte. Temas metafísicos e íntimos como *Barrio de tango, Cornetín, Valsecito de antes, Nobleza de arrabal, Milonga de Puente Alsina, Arrabal, El último organito, Esquinas porteñas, Mano blanca, Romance de barrio* y la inmortal e hímnica *Sur*, que hiciera con Troilo y nos sigue emocionando, son apenas brochazos maravillosos de su pluma homenajeando al barrio que lo acogió. Son paisajes que brotan en el recuerdo como fotografías desteñidas por el paso del tiempo. Pero la paleta lírica de Homero las devuelve indemnes, hermoseadas y llenas de nostalgia
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEji_BeP4O3O18Qpgx5mZDplmU9CeZk1mh1GgSGKbvU7xkGqye_oi7BbgZbYqVKgDQA3r8qYCM_ei1GQ0vrLmQgG5RQE5_BQjfP5HSz8Lr53Tdb4bY-ftqYtlhkPA-2IE34IfuECfY-wjn0/s320/HOMERO_MANZI_.JPG)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEji_BeP4O3O18Qpgx5mZDplmU9CeZk1mh1GgSGKbvU7xkGqye_oi7BbgZbYqVKgDQA3r8qYCM_ei1GQ0vrLmQgG5RQE5_BQjfP5HSz8Lr53Tdb4bY-ftqYtlhkPA-2IE34IfuECfY-wjn0/s1600/HOMERO_MANZI_.JPG) Homero Manzi
+ [![](/tangos-al-bardo/images/013ea443daf8.jpg)](/tangos-al-bardo/images/147df0edbfe4.jpg) Homero Manzi
 
 Curiosamente, en un reportaje lejano (Manzi vivió solo 46 años), cuando le dieron un a elegir un tema entre su vasta producción, dudó, y al final dijo algo así.
 

@@ -16,7 +16,7 @@ Francisco Lomuto, que se había empleado en la casa de música Castiglioni, como
 
 Allí este artista multifacético, además de tocar diversos temas que iban saliendo al mercado, ejecutaba diariamente estas dos composiciones suyas, que lograron gran repercusión de los oyentes que se paraban a escucharlo. Ya se había hecho un nombre con el éxito de *Tut-Ankh-Amón*, que Gardel también grabó en 1924 con el acompañamiento de las guitarras de Ricardo y Barbieri. La letra le pertenece a Cancio Millán.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjP7eLjveYyysgtR4oFfP6chFV7Pe3p3aaJ9btpMmCFzjLJP_QptWRRghLfCkiBKlPHlrtlhw-WypIt_45CaOxHLFQeGeLkEP7LHrafkKIBkFX3sWXX-wcb3sYgdj_bTtKiZQC6wzuHtDg/s1600/Jos%C3%A9+Bohr+-+Rogue+of+the+Rio+Grande.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjP7eLjveYyysgtR4oFfP6chFV7Pe3p3aaJ9btpMmCFzjLJP_QptWRRghLfCkiBKlPHlrtlhw-WypIt_45CaOxHLFQeGeLkEP7LHrafkKIBkFX3sWXX-wcb3sYgdj_bTtKiZQC6wzuHtDg/s1600/Jos%C3%A9+Bohr+-+Rogue+of+the+Rio+Grande.jpg) José Bohr - actor en Hollywood
+ [![](/tangos-al-bardo/images/3f312d3133ee.jpg)](/tangos-al-bardo/images/3f312d3133ee.jpg) José Bohr - actor en Hollywood
 
 La editorial Perroti sacá a la venta la partitura de *Cascabelito*, con su título inicial:* Feria franca*. El poeta y sainetero Juan andrés Caruso, que visitaba seguido la Casa Castiglioni, ya que era amigo de los dueños, escuchó este tema y le propuso a Bohr, ponerle versos. Caruso había cosechado fama con sus creaciones y el autor de la música, ni lo dudó, le dió el sí rápidamente.
 

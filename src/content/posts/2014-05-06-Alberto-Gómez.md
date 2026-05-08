@@ -27,7 +27,7 @@ Convertido en solista y acompañado por guitarristas como José Canet y otros de
 
 La década del cuarenta la vivió casi fuera del país por sus permanentes contratos y las grabaciones en otros lugares. Pero filmaría en Argentina como actor principal *Juan Moreira* o *Donde comienzan los pantanos*, además de otras donde tendría una actuación menor. Ya entrados en los cincuenta lo encontraría numerosas veces en los hipódromos de Palermo o San Isidro. Y generalmente en la calle Corrientes donde me lo presentaría un amigo común y hasta tomamos una copa en el Bar Suárez de Lavalle y Esmeralda. En la charleta destacaría su predilección por Fiorentino, Floreal Ruiz, Rufino y Ángel Vargas. Y también destacó a los fresedianos Ray y Ricardo Ruiz.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgpH7EsEtixhG36CyzVxWaraGIKYw4_nK1Sa4NBwuCxef5wDurvAdGpVL27h2PE4SN2eTUhMvChKMwT9IYEiwGXJis8YSEtIGBwUzlRFdEaFsWkzWb_rz0DEILvz4GBRjjQ5WlI6gkv8io/s1600/Radio+Belgrano.png)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgpH7EsEtixhG36CyzVxWaraGIKYw4_nK1Sa4NBwuCxef5wDurvAdGpVL27h2PE4SN2eTUhMvChKMwT9IYEiwGXJis8YSEtIGBwUzlRFdEaFsWkzWb_rz0DEILvz4GBRjjQ5WlI6gkv8io/s1600/Radio+Belgrano.png) Corsini, Scianmarella, Gómez y Alberto Cosentino
+ [![](/tangos-al-bardo/images/648410f96845.png)](/tangos-al-bardo/images/648410f96845.png) Corsini, Scianmarella, Gómez y Alberto Cosentino
 Salía de su casa sobre las 20/21 horas y me lo crucé en numerosas ocasiones, por la calle Corrientes, siempre con su sombrero tapando la despoblada cabeza. El jocundo Ciriaco Ortiz en uno de sus miles de chistes tan festejados decía que cuando Alberto Gómez se despertaba por la mañana, su mujer le llevaba a la cama el mate y el sombrero...
 
 

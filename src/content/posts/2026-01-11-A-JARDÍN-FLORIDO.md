@@ -9,7 +9,7 @@ Este valsecito folklórico tuvo mucha pegada popular cuando lo interpretaron "Lo
 
 Lo curioso es que "*Jardín Florido*", era en realidad un personaje cordobés llamado Fernando Albiero Bertapelle, muy popular en las calles céntricas de Córdoba por su elegante vestimenta a toda hora y por su talante piropeador a las mujeres que circulaban por la calle, cerca suyo. Allá por el año 1936 fue cuando la gente comenzó a observarlo con curiosidad por esa faceta tan extraña para la época.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhhrNp_OHvDDA1xySd80Yv1UryAhdOKHfCm8JufvqZjdWnHIRvcW7CQDA2R689FNRw2uSKbjBSvQf2L_o0N9Rz5NN8z3Z-zY9c91DKDYnsJQOVH8Hru2ZHvyj1ZIjjl55DFE_MO5dUj5WAtr1uB3QL2QepMTqv1aVca9HLvliq-xK3IJmzxXEvI5eLIdEW9/w211-h400/AJARDIN.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhhrNp_OHvDDA1xySd80Yv1UryAhdOKHfCm8JufvqZjdWnHIRvcW7CQDA2R689FNRw2uSKbjBSvQf2L_o0N9Rz5NN8z3Z-zY9c91DKDYnsJQOVH8Hru2ZHvyj1ZIjjl55DFE_MO5dUj5WAtr1uB3QL2QepMTqv1aVca9HLvliq-xK3IJmzxXEvI5eLIdEW9/s882/AJARDIN.jpg) "Jardín Florido"
+[![](/tangos-al-bardo/images/935b54f20c6e.jpg)](/tangos-al-bardo/images/2feb7938edac.jpg) "Jardín Florido"
 
 Curiosamente, su manera de despachar piropos a la damas que encontraba en su trayecto no provocaba rechazo, por el contrario, ella sonreían por su desparpajo y manera de adularlas. Hubo que rebuscar en publicaciones antiguas para descubrir, en la revista "Mistura", que vivía en el barrio Alta Córdoba. Exactamente en la calle Antonio del Viso 738.
 

@@ -14,7 +14,7 @@ Con guitarra española, eléctrica, amplificada y hasta el mandolín, lo suyo fu
 
 Su dúo con Horacio Salgán que nació en el mítico local *Jamaica*, a fines de 1957 -donde Ástor Piazzolla convocaba a sus fans para deleitarlos con el nuevo tango que portaba en sus venas-, nació jugando, después de hora, casi sin público. Y el dueño del local les propuso formar la dupla que duraría 50 años y recorrería el mundo. "*Pasábamos más tiempo juntos que con nuestras familias"*, recordaba Ubaldo (que en realidad se llamaba Uvaldo)."*Y pese a ello, jamás nos tuteamos*", aclaraba, aunque todos lo sabíamos.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhWmSxiVvjO0Uoj8OSfmyFJXyktJ5nNU3Ef0aYThL8OBC1gmN8yX-WFXU6FNEMJTfjWMxWoQ0VILSyVLc0KcbU3u_qfuQ4UPSmMcHajDCbArsjkNMwS9LY2GsiglWKMJEKUxbHmQ4ScZwVC/s1600/De+L%25C3%25ADo+y+Salg%25C3%25A1n.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhWmSxiVvjO0Uoj8OSfmyFJXyktJ5nNU3Ef0aYThL8OBC1gmN8yX-WFXU6FNEMJTfjWMxWoQ0VILSyVLc0KcbU3u_qfuQ4UPSmMcHajDCbArsjkNMwS9LY2GsiglWKMJEKUxbHmQ4ScZwVC/s1600/De+L%25C3%25ADo+y+Salg%25C3%25A1n.jpg) Ubaldo De Lio y Horacio Salgán  Entre su legión de admiradores figuraron personajes de la talla de Igor Stravinsky, Arthur Rubinstein o el famoso guitarrista Jim Hall, que le regaló su propio equipo.
+ [![](/tangos-al-bardo/images/d027e2959c13.jpg)](/tangos-al-bardo/images/d027e2959c13.jpg) Ubaldo De Lio y Horacio Salgán  Entre su legión de admiradores figuraron personajes de la talla de Igor Stravinsky, Arthur Rubinstein o el famoso guitarrista Jim Hall, que le regaló su propio equipo.
 
 Después fundarían el fabuloso** Quinteto Real** junto al maravilloso violín de Enrique Mario Francini, el fueye inigualable de Pedrito Laurenz y el contrabajo de Rafael Ferro.
 

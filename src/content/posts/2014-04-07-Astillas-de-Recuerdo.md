@@ -18,7 +18,7 @@ El tango fue estrenado por el bandoneonista Juan Bava en el Café Mitre en la co
 
 Pero en 1925, Pugliese estaba alistado en el cuarteto de Enrique Pollet, apodado "*El francesito*" por el origen de sus padres, que se presentaba en el Café ABC de Canning y Rivera (Hoy Scalabrini Ortiz y Avenida Córdoba). El mismo lo componían Emilio Marchiano y Francisco Perrone en violines, Pugliese al piano y Pollet en bandoneón.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi5zZ-XBQAmZK-YTDRJ_-AkYn69kX4sOv8HJv2qmPlJGrECE-D0aA0N_WLthKAhaAc9qUaipSAZJIXLmNpuxkEFS-U_5NhonkTh3FwZowCAbEA6ZtDbcGmccJg8zDmLI4LGFNNtSZv4ILY/s1600/Pollet.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi5zZ-XBQAmZK-YTDRJ_-AkYn69kX4sOv8HJv2qmPlJGrECE-D0aA0N_WLthKAhaAc9qUaipSAZJIXLmNpuxkEFS-U_5NhonkTh3FwZowCAbEA6ZtDbcGmccJg8zDmLI4LGFNNtSZv4ILY/s1600/Pollet.jpg) Enrique Jorge Pollet ("El francesito")
+ [![](/tangos-al-bardo/images/84018be3367e.jpg)](/tangos-al-bardo/images/84018be3367e.jpg) Enrique Jorge Pollet ("El francesito")
 Allí recibió su bautismo definitivo este tangazo y Pollet le recordaba a Zucchi el suceso: *"Yo escribí los arpegiados de la segunda parte durante estas actuaciones en el ABC; el éxito era tan grande que debíamos bisarlo 8 o 9 veces cada noche".*
 
 De allí se trasladarían al Café "*El Parque"* de Talcahuano y Lavalle, con el conjunto modificado. El director y primer bandoneón seguía siendo Pollet y a su lado Francisco Diodatti. Violines: José De Grandis y el* zurdito* Fernando Franco. Piano: Osvaldo Pugliese. A pocas cuadras de allí actuaba el sexteto de Julio De Caro, y cuando éstos terminaban su actuación, se corrían hasta *El Parque* para escuchar al conjunto de Pollet.

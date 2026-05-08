@@ -12,7 +12,7 @@ Era el tipo de *chansonnier* que encajaba marvillosamente en el estilo fresedian
 
 Ruiz, tuvo la formación necesaria en *Chispazos de tradición*, semillero de tantas figuras y su ascenso fue paulatino, pasando por la fragua de Francisco Canaro en el Teatro, con 21 años, y llegando a Fresedo a los 23. Pero ocurrió en su segunda estancia en la orquesta del *Pibe de La Paternal*, cuando se afincó y deleitó con su afinación y el modo de cantar, derramando miel al compás de la orquesta.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiZlIDmyYJKc_UCzzNjkNXpR50X4HmM75NwDeBVRZ6VXfnX5kAHHsT4CMaJrvbEtvbnuOS_mo1cj8CpZrhOuKHWA0xZT8OI4SFI-bYmMqGAqixHATxcDwB-DnVHOvVc2iQ1NIx7NBVFr2CD/s320/escanear0009.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiZlIDmyYJKc_UCzzNjkNXpR50X4HmM75NwDeBVRZ6VXfnX5kAHHsT4CMaJrvbEtvbnuOS_mo1cj8CpZrhOuKHWA0xZT8OI4SFI-bYmMqGAqixHATxcDwB-DnVHOvVc2iQ1NIx7NBVFr2CD/s1600/escanear0009.jpg) Ricardo Ruiz canta con Fresedo, parado a su lado. Hugo Baralis (p) en el contrabajo  Sin exagerar, haciendo brillar los versos y de rebote que florezca la música. Esquivando la sobredosis de énfasis. La contención y musicalidad fue una de sus mayores virtudes.
+ [![](/tangos-al-bardo/images/f99c9d436102.jpg)](/tangos-al-bardo/images/fdba5ae33696.jpg) Ricardo Ruiz canta con Fresedo, parado a su lado. Hugo Baralis (p) en el contrabajo  Sin exagerar, haciendo brillar los versos y de rebote que florezca la música. Esquivando la sobredosis de énfasis. La contención y musicalidad fue una de sus mayores virtudes.
 
 Me remito a esta etapa floreciente y milonguera que iluminaba el alba de los años cuarenta. Fresedo tenía entonces arrastre entre los bailarines y tocaba en un tiempo más rápido y menos lánguido que en los cincuenta y sesenta. La ejecutante de arpa es Etelvina Chinici, integrante de una familia de músicos que brilló en el jazz.
 
@@ -21,7 +21,7 @@ Tiene un deje de melancolía esta etapa fresediana y el estilo de canto que, añ
 
 Escuchando a Fresedo-Ruiz, el sonido reverbera y se consigue esa *summa* estética, seda melódica.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgOSD_OucLCPCUk5oWzqY0yGeVqL1cu_TEW4a9933r4zRbbrAVJQyrwvyHI8HIkXV4oyHXo6WU0Sl1QvD2GDE-c-icLdwTwNHEayc7zWv4MTdai-A1Q8D1IOlod-JovRgTT2iybxSIXTyeh/s1600/Vida_querida_tapa_72.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgOSD_OucLCPCUk5oWzqY0yGeVqL1cu_TEW4a9933r4zRbbrAVJQyrwvyHI8HIkXV4oyHXo6WU0Sl1QvD2GDE-c-icLdwTwNHEayc7zWv4MTdai-A1Q8D1IOlod-JovRgTT2iybxSIXTyeh/s1600/Vida_querida_tapa_72.jpg)Los escuchamos en dos temas. **Vacilación**, de Rafael *Rata* Iriarte (Rafael Yorio) y versos de Antonio Molina y José R. De Prisco. Lo grabaron el 17 de noviembre de 1941. Y **Vida querida**, de Eduardo Lalo Scalise y Juan Carlos Thorry, grabado el 10 de mayo de 1940.
+[![](/tangos-al-bardo/images/276705daaf2f.jpg)](/tangos-al-bardo/images/276705daaf2f.jpg)Los escuchamos en dos temas. **Vacilación**, de Rafael *Rata* Iriarte (Rafael Yorio) y versos de Antonio Molina y José R. De Prisco. Lo grabaron el 17 de noviembre de 1941. Y **Vida querida**, de Eduardo Lalo Scalise y Juan Carlos Thorry, grabado el 10 de mayo de 1940.
 
 Lalo Scalise era el que pasaba al papel la música de Discépolo en sus tangos. Y Thorry (Torrontegui) evoca en estos versos sencillos a una novia juvenil de su pueblo natal (Coronel Pringles). El resultado es inmejorable. Una *delicatessen*.
 

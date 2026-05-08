@@ -18,7 +18,7 @@ Corrientes y Esmeralda fue bautizada sin duda por algún explorador noctámbulo 
 
 "Alaska" significaba aquella "nieve" de droguería que era la moda *très chic* importada directamente por las *cocottes* europeas y que más tarde fueron adoptadas por algunos buscadores de paraísos artificiales, como refinado snobismo.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjh7XOQYh2FdSf3eHTrmgy2bYKRdILuSrayQDtmj19IvlBm8HJaibsdRcrkBROZPT0wm7blnaf_0DY02cD1QmasjtwSvigiiRTzHsU6wlbpJyx1pQLF__PHPREtAN5R0ydvfXEep264-j0Z3MmmXG49FqPsy27UcEkiWLOZww1fModV2TebJvGR74GxQc5d/w242-h400/Undarz%20001.bmp)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjh7XOQYh2FdSf3eHTrmgy2bYKRdILuSrayQDtmj19IvlBm8HJaibsdRcrkBROZPT0wm7blnaf_0DY02cD1QmasjtwSvigiiRTzHsU6wlbpJyx1pQLF__PHPREtAN5R0ydvfXEep264-j0Z3MmmXG49FqPsy27UcEkiWLOZww1fModV2TebJvGR74GxQc5d/s527/Undarz%20001.bmp) El Mocho Undarz
+[![](/tangos-al-bardo/images/38961193a95f.bmp)](/tangos-al-bardo/images/a3ed6122f8b6.bmp) El Mocho Undarz
 
 A dos cuadras de "Alaska", Maipú al 300, en los altos del Teatro Casino, hasta ese entonces escenario tradicional de grandes actos de* varieté* y de novedosos campeonatos de lucha grecorromana, se inaugura el cabaret "Casino Figall", y a corta distancia y en la misma acera, comienza a funcionar otro competidor denominado "Maipú -Pigall".
 

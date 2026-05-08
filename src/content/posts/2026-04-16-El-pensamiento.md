@@ -10,7 +10,7 @@ tags: ["Francisco García Jiménez", "Francisco Canaro", "Osvaldo Pugliese", "Os
 
 José Martínez vivía permanentemente en un estado de gracia inspirativo. La mirada de sus ojos buenos un poco perdida en oros cielos. Con la sonrisa entregada, pero un poco triste. Con la palabra quieta y criteriosa, que lo hizo siempre simpático y escuchado. Pertenece a la promoción señera del tango; la que hubo de crear la melodía al tiempo de ejecutarla..
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgRTIcGUzqWgdebCZxVc_polkO7AheTFDsoltwFJu1AsZgzeC1t9kNVprb81pkjxe9cmq5IOsGAlFa7iItyp3s_U327OQmDnSmyrpW28suB-qOToi9jKe1-7MGBpsPr7wSqFvIPLLkSwGNr3_33gZcqw_p_bhYMuR4hlDwiXNm4DP1tQSevBwtjjrnXAnJP/s320/Jose%CC%81-Marti%CC%81nez-port.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgRTIcGUzqWgdebCZxVc_polkO7AheTFDsoltwFJu1AsZgzeC1t9kNVprb81pkjxe9cmq5IOsGAlFa7iItyp3s_U327OQmDnSmyrpW28suB-qOToi9jKe1-7MGBpsPr7wSqFvIPLLkSwGNr3_33gZcqw_p_bhYMuR4hlDwiXNm4DP1tQSevBwtjjrnXAnJP/s1500/Jose%CC%81-Marti%CC%81nez-port.jpg) José Martínez
+[![](/tangos-al-bardo/images/7469768573c6.jpg)](/tangos-al-bardo/images/3ee744721d92.jpg) José Martínez
 
 Fondo y forma espontáneos. La que en esta función instrumental liberó la limitación del solista de la casa de baile, del guitarrero del tabladillo o del dúo recorredor de boliches, y dio salida al camino triunfante del breve conjunto abriendo cancha consagratoria a la "orquesta típica".
 

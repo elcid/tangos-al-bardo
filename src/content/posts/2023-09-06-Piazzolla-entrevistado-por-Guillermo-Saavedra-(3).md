@@ -12,7 +12,7 @@ Eso, Troilo no podía entenderlo. Lo más curioso es que ni siquiera se daba cue
 
 * ¡No! No toquen eso que se van a mal acostumbrar! Toquen lo que tocamos nosotros* - decía. Sin embargo, cuando él componía tenía una relación muy personal, elaborada, con la música. Cada uno de sus tangos -**Garúa**,** La última curda, Che bandoneón**- era una pequeña joya. Al igual que lo fueron los tangos de Mariano Mores; él también fue un creador excepcional, hasta que un día se cansó y empezó a escribir de memoria...
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgKwqtzv43g_3WbKv136SQkl7jFGJ0sqDYrKmUF_loeR1XoxTO9xuM5U0SApmH2jPhah-zVd4J_dyvesdSLGzRSot5_klqUQUrT5xNt0IOPXoXSNYzSvLVcuGOaaZm0E1O0n7mYNGDCc7a_5tVOjKvp31UnilWbMRWVeJx8mA2PFnxgSvFJT2pnpiygTXRv/w400-h289/EwOT_i-XMAMZ5bQ.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgKwqtzv43g_3WbKv136SQkl7jFGJ0sqDYrKmUF_loeR1XoxTO9xuM5U0SApmH2jPhah-zVd4J_dyvesdSLGzRSot5_klqUQUrT5xNt0IOPXoXSNYzSvLVcuGOaaZm0E1O0n7mYNGDCc7a_5tVOjKvp31UnilWbMRWVeJx8mA2PFnxgSvFJT2pnpiygTXRv/s512/EwOT_i-XMAMZ5bQ.jpg)Astor Piazzolla en París con Nadia Boulanger
+[![](/tangos-al-bardo/images/ec47c62006b2.jpg)](/tangos-al-bardo/images/1f3ea977d072.jpg)Astor Piazzolla en París con Nadia Boulanger
 
 Es que el mundo de la música ha sido muy duro para todos. Para mí, lo sigue siendo incluso ahora, porque no puedo detenerme, no puedo conformarme; después de cierto tiempo, tengo que romper todo y empezar de nuevo. Y así fue desde siempre, desde que abandoné la orquesta de Troilo: cambiar, enfrentarme a la resistencia de la gente, a los músicos de tango ultraconservadores que me despreciaron, me segregaron, me insultaron como si yo hubiera sido el demonio.
 

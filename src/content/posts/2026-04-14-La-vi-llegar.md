@@ -10,7 +10,7 @@ Cuando echamos manos a nuestra discoteca, siempre terminamos encontrando algún 
 
 Con los años fui conociendo a muchos personajes del tango, en mis andanzas por las milongas del centro y los cafetines donde actuaban orquestas y cantores. A Julián Centeya lo traté mucho en el boliche que estaba frente a radio El Mundo y terminé compartiendo muchos momentos juntos. Un personaje increíble. Teníamos raíces barriales cercanas y eso nos comunicó más. Con el tiempo trabajaríamos ambos en un programa de Antonio Carrizo en radio El Mundo. Y años después lo tuve de *charleta* en el el programa que conducíamos con Osvaldo Papaleo en radio Argentina.
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjJ48rewnWmozBt7LjfmBcWKiSbZKByktowGpNZ0FCXCP3r1X1QcoUyWFiEo1VmcSBcrlQ6MsKuXc9NdBIvblMuAgYPrOEk-VKyPUXaiJLpAtAjdEA9yDfGHJApIVSI0gsVrhs4gSolDNxzaqCGu1i2yGNq28UIjOt0MjVLXvfoPZByoATvEsID5YPduSIQ/s320/Julian-Centeya.jpg) ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiCDabcPf8WUk2ZE1dMqsRvu63Cxg9KlIhUI4I9ChBKhyyXcpjyZwqooWW74dPuzCoP2RghSE4hGMgSGGydk5oaXidraI8oPhauS7fWbzHAyOVlWa8lvX-FamIl4W9Gbu6kjQFveFcVI5i8gjC6RaxYxEyGMWYo_ZUK6geDJ_V8oVV_4T6dvO152qffgogP/s320/la-vi-llegar-centeyaita.jpg)
+![](/tangos-al-bardo/images/a6d60f4e07e9.jpg) ![](/tangos-al-bardo/images/6e4685b6c4ff.jpg)
 
 Julián Centeya
 

@@ -10,7 +10,7 @@ En su ciclo de conferencias: "*Cómo nacieron mis canciones*", que Enrique Santo
 
 *Secreto*, compuesto en 1932, que lleva música del propio Discépolo trata de un amor secreto, precisamente y el autor lo narraba así:
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjxpHAwou1p3LCPT5EOC0LqpPjujo80m_iXjowtppqU5K8NJBwyWpIZjYUI_b-WeVWn1gvCWOa2P5aJiJtK-BPtCqN6BJ4WYtDK_3CUiKxBCp4EwdGi6w3_Wu_Y8RnaQkUkXvtTNzcMlc4/s1600/escanear0002.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjxpHAwou1p3LCPT5EOC0LqpPjujo80m_iXjowtppqU5K8NJBwyWpIZjYUI_b-WeVWn1gvCWOa2P5aJiJtK-BPtCqN6BJ4WYtDK_3CUiKxBCp4EwdGi6w3_Wu_Y8RnaQkUkXvtTNzcMlc4/s1600/escanear0002.jpg) Discépolo por Bourse Herrera
+ [![](/tangos-al-bardo/images/6239d9b05909.jpg)](/tangos-al-bardo/images/6239d9b05909.jpg) Discépolo por Bourse Herrera
  - Yo viví minuto a minuto el pequeño drama de *Secreto*. Es el drama de un hombre. De un amigo, fraternal amigo. Era un hombre simple, bueno, sin problemas mayores. No era ni rico, ni pobre. Hombre maduro ya, conoció y casó con una mujer que no era ni linda ni fea. Una de esas mujeres que nacieron para casarse y tener hijos. Porque en esto, como en todo, hay dos clases de mujeres: las que se casan... y las que se casan siempre, aunque no sean sensacionales... ni hermosas... ni nada.
 
 El caso de mi amigo era vulgar, el de tantos. Tenía su mujer, su casa, dos hijos. Vivía. Llegaba a nuestro grupo trasnochador muy de vez en cuando, pero se retiraba siempre a una hora discreta. Tenía el pudor de no llegar tarde a casa. A mí la gente exageradamente discreta me asusta, porque el día que hace una tontería la hace muy grande...

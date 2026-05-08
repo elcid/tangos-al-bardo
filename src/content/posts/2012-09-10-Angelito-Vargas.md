@@ -12,7 +12,7 @@ De pibe ya lucía su gola tanguera en los intervalos del Cine-Teatro Rivas de la
 
 Fue un afamado locutor: Raúl Ástor, que luego triunfaría y se radicaría en México quien lo motejó como *El ruiseñor de las calles porteñas*. En esa época se daba mucho este tipo de apodos que más allá de la distinción señalaban la llegada a la fama de los personajes.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiC9YyZk4QoZhI1FJs31or-Cguf4_B2UEWue7868F3nuv1GYb8c8GkR5cOJ0RXljZ-vE97PuCpOjqNQCkXPsNHFhHquKO1NlIJ9CV2mOpss7Mp5w1pn-XMiLi8WwLwyQYxEkUKhTCItqClk/s320/250px-Dagostino_vargas.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiC9YyZk4QoZhI1FJs31or-Cguf4_B2UEWue7868F3nuv1GYb8c8GkR5cOJ0RXljZ-vE97PuCpOjqNQCkXPsNHFhHquKO1NlIJ9CV2mOpss7Mp5w1pn-XMiLi8WwLwyQYxEkUKhTCItqClk/s1600/250px-Dagostino_vargas.jpg) Los dos Ángeles: D´'Agostino y Vargas-  Angelito nunca tuvo una gran voz, pero la usaba maravillosamente y tenía ese barniz barrial que le permitía consustanciarse con el poema cantado, y sus interpretaciones siguen teniendo la misma aceptación que en 1932, cuando pasa a formar parte de la orquesta de Ángel D'Agostino en el cine Florida y el Teatro Cómico.
+ [![](/tangos-al-bardo/images/58b7964bd843.jpg)](/tangos-al-bardo/images/213810beea36.jpg) Los dos Ángeles: D´'Agostino y Vargas-  Angelito nunca tuvo una gran voz, pero la usaba maravillosamente y tenía ese barniz barrial que le permitía consustanciarse con el poema cantado, y sus interpretaciones siguen teniendo la misma aceptación que en 1932, cuando pasa a formar parte de la orquesta de Ángel D'Agostino en el cine Florida y el Teatro Cómico.
 
 Como decía D'Agostino: "*Vargas tenía una afinación natural"*
 

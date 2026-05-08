@@ -25,7 +25,7 @@ El argumento del tango versa sobre una de aquellas chicas que saltan al ambiente
 
 -En el "Café 36 billares", de la calle Corrientes, un voluminoso y muy simpático amigo mío, Casaravilla Sienra, me presentó a Matos Rodríguez, el autor de "La cumparsita". Era un hombre joven de alta estatura, de prestancia y señorío, ex estudiante de arquitectura en Montevideo y que a pesar de su solvencia económica, no lo demostraba. Tampoco gozaba de mucha simpatía entre quienes lo trataban. Continuamos viéndonos con Matos un par de veces en el mismo café y un día me pide que le escriba una letra de tango. Yo tenía un par de ellas escritas y a los pocos días le llevé una, titulada "*Che, papusa, oí*". El título le cayó muy bien. Luego de enterarse del contenido me pidió que le dejara unos días para ver si "embocaba" algún tema...
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjWyb41g-DgEXi8KYXSnrv-HE1fQJ6uDci3hJOn-0ULX8Cr10UZ6wTEsW8cP7W1TNGcy2rxOuI4rnGIyDoxBpgf2Q4D__Ln7MkJvCcY0hyBHb457FNcBNfmrVU1P2bqu325PlRgcSo_F4s/s1600/matos+1.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjWyb41g-DgEXi8KYXSnrv-HE1fQJ6uDci3hJOn-0ULX8Cr10UZ6wTEsW8cP7W1TNGcy2rxOuI4rnGIyDoxBpgf2Q4D__Ln7MkJvCcY0hyBHb457FNcBNfmrVU1P2bqu325PlRgcSo_F4s/s1600/matos+1.jpg) Gerardo Matos Rodríguez
+ [![](/tangos-al-bardo/images/22b7d38925be.jpg)](/tangos-al-bardo/images/22b7d38925be.jpg) Gerardo Matos Rodríguez
 
 *Che papusa, oí*
 *los acordes melodiosos que modula el bandoneón;*
@@ -59,7 +59,7 @@ Otro sello competidor lo lanzó a la venta con Gardel, Corsini, Azucena Maizani.
 
 Cabe acotar que poco después viajarían en el mismo barco a Europa junto a Cátulo Castillo y Roberto Maida, y compartirán junto a otros compatriotas uruguayos y argentinos, unas buena calavereadas con el tango como* leit motiv,* en el viejo continente. Terminarían teniendo una buena amistad, como el mismo Cadícamo comentaría. Pero la anécdota, en el relato del propio poeta, tiene esos ingredientes que realzan la valía de este tango que sigue sonando en los silbos de un tanguero de barrio, y en las milongas, con los acordes melodiosos que modula el bandoneón.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgaaHOq79hBK_czo1GnNp3p0vXPJQaO0uXzLlaFeV_WKG-FlPyU5Il4pmdbymuAG-k8AuLXFc1fJ-tk_m5vvggpLH1zQNlKDFOQ9qW9i0iwdjX9uCxjsw248kezpvcdO7XLNE4Gt_NdUL0/s1600/MAT.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgaaHOq79hBK_czo1GnNp3p0vXPJQaO0uXzLlaFeV_WKG-FlPyU5Il4pmdbymuAG-k8AuLXFc1fJ-tk_m5vvggpLH1zQNlKDFOQ9qW9i0iwdjX9uCxjsw248kezpvcdO7XLNE4Gt_NdUL0/s1600/MAT.jpg) En el barco rumbo a Europa. están invertidos los nombres de Matos y Maida.
+ [![](/tangos-al-bardo/images/f1cb9c0a2e5a.jpg)](/tangos-al-bardo/images/f1cb9c0a2e5a.jpg) En el barco rumbo a Europa. están invertidos los nombres de Matos y Maida.
 
 Vamos a revivirlo en dos versiones: Las de la orquesta de Roberto Firpo con el cantor Teófilo Ibáñez, grabado el 29 de marzo de 1928, y del Polaco Roberto Goyeneche con la Orquésta Típica Porteña, y arreglos de Raúl Garello, registrado en 1976.
 

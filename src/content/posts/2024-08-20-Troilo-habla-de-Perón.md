@@ -9,7 +9,7 @@ tags: ["Aníbal Troilo"]
 "Voy a hablar del Perón de la primera presidencia. Tuve la suerte de conocerlo. ése, del que la historia de Buenos Aires va a tener que hablar... La historia de la Argentina... Era entrador, simpático. Y con un talento extraordinario.
 
 En una época lo veía día por medio... Yo trabajaba en el Tibidabo con mi orquesta y él, sí, iba día por medio... Era coronel. Años más tarde me llamaron para hacer* El patio de la morocha*. Yo dije que, tratándose de esa obra, lo más lógico era que la hiciera Marianito (Mores), el autor de la música. Yo creía eso, ¿no?
-![Aníbal Troilo, «El colmo del afecto» | Meer](https://media.meer.com/attachments/5ce72c5fc386966fb65036012c48ad048441ab61/store/fill/410/410/b8212757eacd94187373668addf027a1f5a4a7d097fd66c46c1a1a3044d6/Juan-Domingo-Peron-con-Anibal-Carmelo-Troilo-alias-Pichuco.jpg)En la imagen están Perón, Troilo y un ministro
+![Aníbal Troilo, «El colmo del afecto» | Meer](/tangos-al-bardo/images/e6553b30c17d.jpg)En la imagen están Perón, Troilo y un ministro
 
 Pero viene Cátulo (Castillo) y me dice que en la Subsecretaría (de Prensa y Difusión), querían que fuera yo. Más todavía: si yo no aceptaba, la obra no se hacía. Al fin, acepté. Éramos ciento cuarenta y seis personas en la compañía. Yo no era peronista. Ni anti-peronista, porque yo me sentí libre y me siento libre, ninguna idea política pudo , todavía, corromper mis sentimientos.
 

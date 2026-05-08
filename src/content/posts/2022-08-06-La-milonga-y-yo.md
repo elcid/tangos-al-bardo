@@ -10,7 +10,7 @@ Los milongueros nos sentimos muy identificados con Leopoldo Díaz Vélez, ese po
 
 Como cantor, militó en orquestas importantes, animando milongas y recibiendo ese espaldarazo que dan las parejas bailando y transmitiendo la emoción que les producen, e iluminan, la música y el canto. Esta experiencia le sirvió -y cómo- para reproducir en tangos y milongas todo ese ambiente que hemos vivido en carne propia durante años y seguimos frecuentándolo como un antídoto para circunstancias adversas o poco atractivas.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgF8wQmBGn5cL-yrj0mjMf1adt6H6z0yKMrfMVEGC9e47jJMpn1vzsi-fBgxQaH6tecmtZ2JL7vyY1hoPMTW0QVttWWvE51ndWIbbOm-oDdrfanzzQn21gczT4SqQgDD6d_Yq7HK7JuzvgOFG31i8T6XGdGoCNC_evPwpx8aMEs8R77Od71Mo8hA_y1cg/w220-h320/leopoldo_diaz%20velez.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgF8wQmBGn5cL-yrj0mjMf1adt6H6z0yKMrfMVEGC9e47jJMpn1vzsi-fBgxQaH6tecmtZ2JL7vyY1hoPMTW0QVttWWvE51ndWIbbOm-oDdrfanzzQn21gczT4SqQgDD6d_Yq7HK7JuzvgOFG31i8T6XGdGoCNC_evPwpx8aMEs8R77Od71Mo8hA_y1cg/s218/leopoldo_diaz%20velez.jpg)Leopoldo Díaz Vélez
+[![](/tangos-al-bardo/images/43d8ba098860.jpg)](/tangos-al-bardo/images/891069051d37.jpg)Leopoldo Díaz Vélez
 
 ** La milonga y yo** fue concebida a pedido de Tita Merello, que la cantaría en la película *Esto es alegría.* dirigida por Enrique Carreras y estrenada en 1968. Tito Ribero le puso música. El propio Leopoldo Díaz la cantaba con la orquesta de Armando Pontier en los bailes de Carnaval del Centro Lucense, en 1980.
 

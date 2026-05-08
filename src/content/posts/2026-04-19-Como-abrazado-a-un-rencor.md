@@ -10,7 +10,7 @@ Conforta poder aludir a la modestia de nuestros músicos populares de la primera
 
 Pertenece a una esforzada "guardia nueva" de hace medio siglo, que cinchó por el tango al lado de los primitivos, en una hora crucial que ahora calificamos de gloriosa. Siguió años en el género, apegado simplemente a la modalidad de ejecución simplista, respetuosa de la línea melódica. Vinieron nuevas formas orquestales, el perifollo se inmiscuyó en la obra; se insinuó el vanguardismo que arribaría después entre los vientos de fronda de la polémica.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjGJO6fa4YjI8E0a5SUFwZEQI6Mz6HV0HeXmbq9Cm4Iamz9BoYmoUKf-uSZBtf66AbdebrcYdgFlafF8-Zw4O_ua5pMaMkILwjA2Sihyphenhyphenur5uRP1lRSUNSRx8W8kgniC-8hR3enkXLNd8-dIIwgs9hOpdIlNfSYelxbvNNkM3vFVe_1h2O4EX8RxG3pJH8D9/s1600/ROSSI%20%20mages.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjGJO6fa4YjI8E0a5SUFwZEQI6Mz6HV0HeXmbq9Cm4Iamz9BoYmoUKf-uSZBtf66AbdebrcYdgFlafF8-Zw4O_ua5pMaMkILwjA2Sihyphenhyphenur5uRP1lRSUNSRx8W8kgniC-8hR3enkXLNd8-dIIwgs9hOpdIlNfSYelxbvNNkM3vFVe_1h2O4EX8RxG3pJH8D9/s263/ROSSI%20%20mages.jpg)Rafael Rossi
+[![](/tangos-al-bardo/images/9adf2af8b9d2.jpg)](/tangos-al-bardo/images/8aa5ed7a6e4d.jpg)Rafael Rossi
 
 Rafael Rossi -que no es precisamente un hombre dado a la discusión -resguardó en el alma su "pasatismo" y trasladó su sencilla manera interpretativa a un repertorio de miscelánea, consultando el gusto de la gente del interior de la República. con sus versiones incomplicadas salió en giras y grabó discos. Tocó en trío; flanqueando su bandoneón con dos guitarras; en cuarteto, agregando violín; con orquesta, incluyendo cantores en dúo.
 

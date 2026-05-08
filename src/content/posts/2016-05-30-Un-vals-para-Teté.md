@@ -15,7 +15,7 @@ Teté, apodo de sus años infantiles, se llamaba Pedro Rusconi y se crió en Nue
 
 Teté, se hizo famoso en muchos lugares, especialmente por su interpretación del valsecito porteño. Tenía un estilo algo antiguo, pero lo interpretaba con el alma. El valsecito se bailó en las milongas durante años del modo original, con giros constantes. Fue en los años cincuenta cuando algunos milongueros de los barrios del sur (Pompeya, Soldati) comenzaron a bailarlos con pasos del tango.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgrfDTsCm2musxUBJGyMKEnnPzntVA5oA8aqhK827sI-XL-pATjmi6SGJH6chzR1GdvDsgeZeCI5Owc9jeYiyr_CDGZQwPt79AvJehdunMxWryQIdC8OzdCV8pAhyk4cG9Z2ljE5kSAbIjy/s320/tete-y-silvia.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgrfDTsCm2musxUBJGyMKEnnPzntVA5oA8aqhK827sI-XL-pATjmi6SGJH6chzR1GdvDsgeZeCI5Owc9jeYiyr_CDGZQwPt79AvJehdunMxWryQIdC8OzdCV8pAhyk4cG9Z2ljE5kSAbIjy/s1600/tete-y-silvia.jpg) Silvia y Teté
+ [![](/tangos-al-bardo/images/f31ccf246a6d.jpg)](/tangos-al-bardo/images/9b46387114c1.jpg) Silvia y Teté
 
 En esa época, los que ponían la música (todavía no había llegado el vocablo anglófilo: discjockey), lo hacían con discos de pasta de 78 rpm, y pasaban los dos temas del mismo. Ya fueren dos tangos como un tango y un vals, o una milonga. Luego uno de jazz o música entroamericana o brasileña. Y así sucesivamente. Entonces, estos muchachos decidieron bailar todo con pasos de tango, para aprovechar la noche, y poco a poco esa costumbre se generalizó en el caso de los valsecitos.
 

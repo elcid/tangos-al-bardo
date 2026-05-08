@@ -19,7 +19,7 @@ Fue uno de los fundadores del Círculo de Autores y Compositores de Música de A
 **SEGUIME, CORAZÓN **
 
 Amigo corazón, vos has llorao
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhRMvhkcfndHZ7KLHsb1wo649olR_GWHmvVUZjp9wO0k7c00DmSAPCuAFv8sm0AP0xbWA8ZWAAcNlSyCbxiJTW1AlzjtsQNlVRZD7Y0QPrYbspjiwqljeztld1GOEmprv_xOudFh-EFXvEi/s320/partitura-seguime-corazon.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhRMvhkcfndHZ7KLHsb1wo649olR_GWHmvVUZjp9wO0k7c00DmSAPCuAFv8sm0AP0xbWA8ZWAAcNlSyCbxiJTW1AlzjtsQNlVRZD7Y0QPrYbspjiwqljeztld1GOEmprv_xOudFh-EFXvEi/s1600/partitura-seguime-corazon.jpg)apenas una duda te mordió,
+[![](/tangos-al-bardo/images/988970c7d828.jpg)](/tangos-al-bardo/images/3e2e2c403fe3.jpg)apenas una duda te mordió,
 y estás como los maulas, arrugao,
 sin chance pa'seguir, la ruta del dolor.
 Al verte sollozar acobardao

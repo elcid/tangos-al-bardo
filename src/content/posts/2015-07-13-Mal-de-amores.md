@@ -16,13 +16,13 @@ Comienza despacito como una letanía y se te va metiendo, transmitiendo nostalgi
 
 Cada vez que lo escucho me sumerjo en una umbría zona de recuerdos juveniles, pero por sobre todo la belleza del tango le gana a la nostalgia. La orquesta venía seguido a Huracán y una noche me arrimé al escenario, que lo teníamos a mano, y le espeté a Pugliese: "*Mal de amores, troesma..."*. Sonrió, me guiñó un ojo y asintió con la cabeza. Un rato más tarde escuché el sonido del tema que le había solicitado y salí a bailarlo como un resorte.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgEJnR_cdWuKToyR_75Elc0K7eu6jp-XzCFa9ka6H0s-BNQdew1LaflnQ0Q_n-z5GJyLs3JwyjbH2pNqievi4Ie0tlnPG7Bfyvtk_Sro7YXRoN4aSlevxnCjeVCVqY2ydG4jsAEae4f_zA/s400/ORQ.+PL.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgEJnR_cdWuKToyR_75Elc0K7eu6jp-XzCFa9ka6H0s-BNQdew1LaflnQ0Q_n-z5GJyLs3JwyjbH2pNqievi4Ie0tlnPG7Bfyvtk_Sro7YXRoN4aSlevxnCjeVCVqY2ydG4jsAEae4f_zA/s1600/ORQ.+PL.jpg) La orquesta de Pedro Laurenz cuando tenía a Osvaldo Pugliese de pianista
+ [![](/tangos-al-bardo/images/3c4ae41c7b20.jpg)](/tangos-al-bardo/images/ab35dec5c949.jpg) La orquesta de Pedro Laurenz cuando tenía a Osvaldo Pugliese de pianista
 
 El tango lo había estrenado el sexteto de Julio De Caro, que lo grabó el 14 de septiembre de 1928, cuando los dos fueyes eran Pedro Laurenz y el *cieguito* Armando Blasco. Y quedaría encallado en una zona de sombras, hasta que el 21 de agosto de 1946, lo llevase al disco la orquesta de Pugliese, unos 18 años más tarde. Hubo algunos registros más, como los de Mario Demarco, Leopoldo Federico, el Sexteto tango. José Basso, Francisco Rotundo y otros, pero yo me quedé esperando la versión de Pichuco, o Gobbi, que nunca llegaron.
 
 Y, lo más curioso, Pedro Laurenz recién lo grabó en el final de su orquesta, en 1967, en el sello Microfón. Aunque es cierto que también lo llevó al disco con el Quinteto Real, junto a Salgán, Francini, De Lío, Ferro y el propio Laurenz, en 1959.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhvqg_pbcRF6p2CWW0KAw2w3TArRW1PgqsLDRVSRDHZgCNqFjNmHcSYHa8U5X5Z8udxMpTDfnU4AZ4Lm71YXRyoJT3Kzb4mtiKMfRcVNcsGEnU86RSBJmGWphQUX2ph3miybzRWjS1muRE/s320/Pedro_Laurenz1.JPG)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhvqg_pbcRF6p2CWW0KAw2w3TArRW1PgqsLDRVSRDHZgCNqFjNmHcSYHa8U5X5Z8udxMpTDfnU4AZ4Lm71YXRyoJT3Kzb4mtiKMfRcVNcsGEnU86RSBJmGWphQUX2ph3miybzRWjS1muRE/s1600/Pedro_Laurenz1.JPG) Pedro Laurenz
+ [![](/tangos-al-bardo/images/6885863fd15f.jpg)](/tangos-al-bardo/images/3abf438590e2.jpg) Pedro Laurenz
 Me doy vuelta con mis vivencias juveniles pobladas de aventuras milongueras inolvidables, y vuelvo a escuchar la versión citada de Osvaldo Pugliese. Y, entre las ejecuciones de este tango que pueblan mi discoteca, tengo una muy linda del gran fueye rosarino Antonio Ríos y su Cuarteto Los Poetas del tango. Se trata de una grabación particular realizada en el año 1955. Integraban el mismo: Antonio Agri en violín, José Puertas en piano, Omar Murtagh en contrabajo, y el citado Ríos, bandoneón.
 
 Atenti!

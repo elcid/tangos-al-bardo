@@ -17,7 +17,7 @@ Hoy nos deleitaremos con dos Selecciones de tangos que realizara en su día, con
 
 Se trata de Julio De Caro y Eduardo Arolas. Dos muestras muy bien cuidadas y elaboradas que sirven para calibrar la calidad del compositor, el arreglador y la orquesta que los ejecuta.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiNW3drATZS8rfCj7Cfa9ZddZGer57ORH6V87mbTMQBxUjznuGKrClhE9osIuT-ha2r0-Lr3B2aDTtL2LS7ujUSvvjNIs7JSYnE3aNni-sas6tEvjbhMGDLpuHUt6T5WgSe0w9_iXtpUsWu/s1600/Troilo-Escalada.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiNW3drATZS8rfCj7Cfa9ZddZGer57ORH6V87mbTMQBxUjznuGKrClhE9osIuT-ha2r0-Lr3B2aDTtL2LS7ujUSvvjNIs7JSYnE3aNni-sas6tEvjbhMGDLpuHUt6T5WgSe0w9_iXtpUsWu/s1600/Troilo-Escalada.jpg) Grela, Del Priore. L.Federico, De Caro y Roberto Escalada rodean a Troilo.  La Selección de tangos de Julio De Caro, escrita por Julián Plaza en el pentagrama, la grabó Troilo con su conjunto, el 6 de diciembre de 1966. Ya había registrado otro parecido del mismo De Caro en 1952.
+ [![](/tangos-al-bardo/images/491a52c4c2f6.jpg)](/tangos-al-bardo/images/491a52c4c2f6.jpg) Grela, Del Priore. L.Federico, De Caro y Roberto Escalada rodean a Troilo.  La Selección de tangos de Julio De Caro, escrita por Julián Plaza en el pentagrama, la grabó Troilo con su conjunto, el 6 de diciembre de 1966. Ya había registrado otro parecido del mismo De Caro en 1952.
 
 La selección de temas de Eduardo Arolas, las grabó en un arreglo de Raúl Garello el 6 de diciembre de 1967. ¿Casualidad en las fechas? Es que Pichuco era obsesivo y detallista. Y cuando le daba la vena, volvía al ruedo de sus nostalgias y sus espiantes.
 

@@ -10,7 +10,7 @@ Hoy estamos de cumpleaños en BIEN MILONGA, el bailongo que realizamos todos los
 cantaba el tano Fiore los versos de Homero Expósito:
 
 Soy
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgOVpLYjYWoCCGFR8_AD-fcV-Cex6tSgOpR5jyV8l8iv6xtFuEY2403ZHvBGAZmOB_SvnDilS5wSX7irI7xzmsVVcKRTIBYgu9P77zkkbuoU2Q_JYcB7oIYSJwZq9iZfoX9gRiDUgaydD8/s200/TROFIO.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgOVpLYjYWoCCGFR8_AD-fcV-Cex6tSgOpR5jyV8l8iv6xtFuEY2403ZHvBGAZmOB_SvnDilS5wSX7irI7xzmsVVcKRTIBYgu9P77zkkbuoU2Q_JYcB7oIYSJwZq9iZfoX9gRiDUgaydD8/s1600/TROFIO.jpg)el tango milongón
+[![](/tangos-al-bardo/images/0c7311932cfb.jpg)](/tangos-al-bardo/images/6509407d0e4c.jpg)el tango milongón
 nacido en los suburbios
 malevos y turbios.
 Hoy,

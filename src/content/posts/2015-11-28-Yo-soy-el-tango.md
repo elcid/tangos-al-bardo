@@ -15,7 +15,7 @@ Todos los mitos construídos en torno a la parte fundacional de la música porte
 En estos momentos, en que se ha instalado para quedarse, en todo el orbe, los milongueros de siempre tratamos de respetar la heráldica del tango y proteger su verdadera personalidad, que ya no es precisamente la de la leyenda bravía.Y así lo hacemos en **BIEN MILONGA**, la que realizamos todos los sábados y martes a partir de las 21 horas, en la Casa de Aragón de Madrid, sita en la Plaza República Argentina nº 6. de Madrid. Homero Expósito lo subraya más adelante.
 
 *Hoy,*
-*[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjpiXL2zyJSzARkQu15_9U73adVp_OMdIzHUu-FhZkZceqeESYsbZE93usAg1O_3BV6DLsHLZCQAvVr_3_ZbS2hZbuU1gLlvXRgUfO2ybD1cWuhK3j3v2pogvJf_E6t-s-vCC3soikiJh7z/s1600/Yo_soy_el_tango_tapa_72.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjpiXL2zyJSzARkQu15_9U73adVp_OMdIzHUu-FhZkZceqeESYsbZE93usAg1O_3BV6DLsHLZCQAvVr_3_ZbS2hZbuU1gLlvXRgUfO2ybD1cWuhK3j3v2pogvJf_E6t-s-vCC3soikiJh7z/s1600/Yo_soy_el_tango_tapa_72.jpg) que estoy en el salón,*
+*[![](/tangos-al-bardo/images/701c25c7baa8.jpg)](/tangos-al-bardo/images/701c25c7baa8.jpg) que estoy en el salón,*
 *me saben amansado, *
 *dulzón y cansado*
 *Pa'que creer,*

@@ -11,7 +11,7 @@ tags: ["José González Castillo", "Francisco Canaro", "Juan D'Arienzo", "Ricard
 En mi larga trayectoria artística han actuado en mi orquesta, los siguientes cantores:
 
 **Roberto Díaz**, que fue con quien inicié en discos la primera grabación cantando el estribillo de mi hermano Mario, titulado: *"Así es el mundo*". Después don Mauricio Godard, director artístico de los discos "Odeón", me propuso que escuchara a un muchacho que estaba haciendo el servicio Militar. *Creo que le va a gustar* - me dijo. Lo escuché y me gustó mucho. Era **Charlo**.
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjvJJOjNsw8siEtTmzhJZSlR41NA9pJUDeOKy4yFCrCxjRv7S6kwaDzOaSrXRpAQjIjMOqGnV964MbbrwcG07RH1UMrK7YYmdWFgVUltb-ZfqXwHHAOotj9ns0N-mPqUl45VIezReS210mK/w321-h400/canaro-charlo.jpg)Charlo y Canaro
+![](/tangos-al-bardo/images/49ff985538eb.jpg)Charlo y Canaro
 
 Después tuve a **Agustín Irusta**, que debutó conmigo en el Tabaris", y que a falta de micrófono -todavía no se usaba-, cantaba con un megáfono.
 

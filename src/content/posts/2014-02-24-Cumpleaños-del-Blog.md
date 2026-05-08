@@ -25,7 +25,7 @@ Si habremos escuchado el jingle en la cancha, durante el intermedio, cantado por
 
 
 Iba en un paquete con “*Palmieri hermanos / relojes y regalos…”* y “*Si su piloto no es Aguamar / no es impermeable lo puedo asegurar*”.
- Y afuera “¡*Se agota el Alumni se agota…!”*… y tenían una pila infernal…  [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhfERujgyHsRpFe6nX7o7RhZHw0TWbCBma5tgMuX4052FeTq_9PbU0cNzwfDffUsfc9DGy4b-GVWeWcT0VSYCwBs9DxIV6VRJy2ZWzKL9Oo5Ymh8ihZlya4swzDefezpHNKpXGJctU_vNm7/s200/c.bmp)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhfERujgyHsRpFe6nX7o7RhZHw0TWbCBma5tgMuX4052FeTq_9PbU0cNzwfDffUsfc9DGy4b-GVWeWcT0VSYCwBs9DxIV6VRJy2ZWzKL9Oo5Ymh8ihZlya4swzDefezpHNKpXGJctU_vNm7/s1600/c.bmp)
+ Y afuera “¡*Se agota el Alumni se agota…!”*… y tenían una pila infernal…  [![](/tangos-al-bardo/images/93be48e52790.bmp)](/tangos-al-bardo/images/ecda4ff8115d.bmp)
 Si habremos oído aquello de: “*Geniol, el gran calmante argentino de triple fórmula, presenta”:…*  Sí, todo aquello algo naïve de: “*calma, entona, descongestiona*”.
  La publicidad inicial se vendió como grabado por Gardel. En realidad es Juan Carlos Marambio Catán quien la canta. Y no se trata del invento de un publicista muy listo, sino un extracto del tango: “*Venga de donde venga*”, de los hermanos Antonio y Jerónimo Sureda, los de Boedo y los valsecitos.
 

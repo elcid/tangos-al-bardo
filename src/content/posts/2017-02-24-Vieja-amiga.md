@@ -11,7 +11,7 @@ Esta maravillosa página de dos enormes personajes que tuvo el tango: Pedro Laur
 
 Entre ambos bordaron cuatro temas, uno mejor que el otro: **Es mejor perdonar, Como dos extraños, Milonga de mis amores** y el citado **Vieja amiga**. Los versos del *Catunga* que fueron musicalizados por el gran bandoneonista se estrenarían en los carnavales de 1938, en las instalaciones del Club Atlético Boca Juniors, comenzando un viaje interminable que lo convertiría en record de ventas discográficas de su época. Solamente la partitura alcanzaría los 7000 titulos vendidos.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjGXMghlK5aRYmX4n2waEcKNsGlsM-EQFORX12BOPD8IhS1MaTOM5QvKDvV9iiBPgaY5wYO35hH52FfrncG96wXLOFa3enia09xi5dZwOKCOtFMqhNvPtiaR24GDXv3nvFhfe0Ba7DzRWe5/s320/Laurenz.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjGXMghlK5aRYmX4n2waEcKNsGlsM-EQFORX12BOPD8IhS1MaTOM5QvKDvV9iiBPgaY5wYO35hH52FfrncG96wXLOFa3enia09xi5dZwOKCOtFMqhNvPtiaR24GDXv3nvFhfe0Ba7DzRWe5/s1600/Laurenz.jpg) Pedro Laurenz  La letanía de los versos sigue desmayándose en la nostalgia del amor interrrumpido y muestra la desesperación del reencuentro que no logra el efecto balsámico esperado:
+ [![](/tangos-al-bardo/images/4555b92e1bdd.jpg)](/tangos-al-bardo/images/93e5bea4ca6b.jpg) Pedro Laurenz  La letanía de los versos sigue desmayándose en la nostalgia del amor interrrumpido y muestra la desesperación del reencuentro que no logra el efecto balsámico esperado:
 
 ¡Ves!... He tratado inútilmente
 de alejarme y olvidar...

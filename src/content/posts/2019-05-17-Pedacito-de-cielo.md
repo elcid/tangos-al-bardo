@@ -15,7 +15,7 @@ Ese gran escritor y filósofo que fue Ernesto Sábato desmenuzando los méritos 
 
 -No significa que Expósito no haya tocado la tesitura del lamento amoroso, el olvido ante el fracaso, el tiempo que se va, los reproches y quejas de amor, tan típicos de la época. Pero todo dicho en un lenguaje novedoso y personal, y esto es lo que no siguieron los letristas y los caducos convencionalismos, o a una falsa vanguardia, enferma de literatura, pretenciosa y con vergüenza de su propia barroca cursilería...
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhMBMcKTgW8ibtpf-PMC7IXo5g6UnRecNG5QZKXn3hLfd7IFl6ArfXfNIXLdPwFYy11Yt_r1B9DCFilwtaTYcyJov0-k1cEjwdP5Pf6JQE2Ne9CjqMe_9pljtqJ0_GbwyuQlLMHx_TrWNHJ/s400/Homero+Ex.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhMBMcKTgW8ibtpf-PMC7IXo5g6UnRecNG5QZKXn3hLfd7IFl6ArfXfNIXLdPwFYy11Yt_r1B9DCFilwtaTYcyJov0-k1cEjwdP5Pf6JQE2Ne9CjqMe_9pljtqJ0_GbwyuQlLMHx_TrWNHJ/s1600/Homero+Ex.jpg) Homro Expósito, el poeta que renovoó el lenguaje en los versos de tango
+ [![](/tangos-al-bardo/images/50ebae218fee.jpg)](/tangos-al-bardo/images/fdd9c8b8089e.jpg) Homro Expósito, el poeta que renovoó el lenguaje en los versos de tango
 Porque también en esta hermosa pieza, Homero Expósito recrea y se adensa en aquel romance juvenil que sigue con su ronda de voces y emociones en el itinerario poético que se instaló en su espíritu y en su pluma, al ritmo de las obsesiones, con sus cargas de desamor y angustia, con su desesperación y sus fracasos. La memoria es una facultad de la inteligencia, pero al mismo tiempo algo movedizo, fluctuante y para nada constante. Pero el caso del poeta de Zárate, confirma que los recuerdos más lejanos viven más claros. Y los va cincelando en una red discursiva que atrapa y emociona.
 
 La casa tenía una reja
@@ -31,7 +31,7 @@ leyendo esos versos lloramos los dos.
 El vate tiene esa magia para retener los momentos y el clima temporal y emocional. y los revive con fluencia lírica inspirado por el fundamento melancólico de nuestra existencia. La elegía de los sueños rotos, el desasosiego ante el poso de lo cotidiano y el implacable rebobinaje de aquellos momentos que dejaron una herida profunda en su alma, reviven en los versos de *Pedacito de cielo*. Un título que ya, de por sí, encierra toda una historia profunda, desasosegante. Un paraíso íntimo, desvanecido...
 
 Los años de la infancia pasaron, pasaron
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg_WwwghMYMxPDhloUgha44sWHNvrBv-YOU3AcUwL4b62hBaLvxWgi0kuT92IHYRna4bEFo90tjVGFl1SfJoMrH6ibfhoRr57W-YgemhLMXB6SaEP8ymoMm-8SMBnHh_bPZ-AsHrnxPshk7/s320/Z306+%2528002%2529.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg_WwwghMYMxPDhloUgha44sWHNvrBv-YOU3AcUwL4b62hBaLvxWgi0kuT92IHYRna4bEFo90tjVGFl1SfJoMrH6ibfhoRr57W-YgemhLMXB6SaEP8ymoMm-8SMBnHh_bPZ-AsHrnxPshk7/s1600/Z306+%2528002%2529.jpg) Enrique Mario Francini y Héctor Luciano Stamponi  la reja está dormida de tanto silencio.
+ [![](/tangos-al-bardo/images/ec5517a415db.jpg)](/tangos-al-bardo/images/bf0b965af53b.jpg) Enrique Mario Francini y Héctor Luciano Stamponi  la reja está dormida de tanto silencio.
 Y en aquel pedacito de cielo
 se quedó tu alegría y mi amor.
 Los años han pasado, terribles, malvados,

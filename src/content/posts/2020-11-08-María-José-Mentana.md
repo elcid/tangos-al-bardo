@@ -22,7 +22,7 @@ Su consagración fue temprana aunque no respondió el caso de tantos artistas qu
 
 Así fue cómo entró a viajar tempranamente por Latinoamérica, siguió por Europa, Japón (se presentó en 55 ciudades), China, Turquía, como cabeza de compañía junto a orquestas como las nombradas. El éxito la acompañó siempre y ella agradece haber podido estar con tantos personajes históricos del tango que la ayudaron a formarse y consolidarse en aquella panorámica de la época, confirmando todo lo que esbozaba el embrión. Aquel pichón de cantora que apareció en Canal 9 en febrero de 1970.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEilAjBTaQzZwjziJf6XW7hhbmGx0qyJnW4osO96VwcCH36BZ3wkfeFf2fouhzOn326e0iBhV2CupbRBtnqrX73W7Hx6Dsdu7qcr0qUWms7XA0Fgwi-PeU1z38HViIV0KazEbSSzjbPh7WHo/w400-h266/IMG_2211.JPG)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEilAjBTaQzZwjziJf6XW7hhbmGx0qyJnW4osO96VwcCH36BZ3wkfeFf2fouhzOn326e0iBhV2CupbRBtnqrX73W7Hx6Dsdu7qcr0qUWms7XA0Fgwi-PeU1z38HViIV0KazEbSSzjbPh7WHo/s1600/IMG_2211.JPG)Acá estoy con María José y Roberto Mancini en Los 36 billares.
+[![](/tangos-al-bardo/images/c86cf265770c.jpg)](/tangos-al-bardo/images/f4d3fd6ed774.jpg)Acá estoy con María José y Roberto Mancini en Los 36 billares.
 
 Supo adaptarse a los distintos estilos de cada orquesta que la acompañó y nunca desmejoró. En Venezuela tuvo un éxito impresionante. Trabajó en teatro, televisión y grabó varios discos. Incluso actuó con la Orquesta sinfónica Nacional de dicho país y se grabó en vivo aquella presentación. Es de destacar que nunca perdió la frescura de su voz y de su interpretación, ha grabado numerosos discos y sus interpretaciones son toda una llamada a las esencias del género.
 

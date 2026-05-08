@@ -8,7 +8,7 @@ tags: ["Francisco Canaro", "Armando Pontier", "Juan D'Arienzo", "Carlos Bahr"]
 
 ¡Y qué lindo! Justo ahora que ha bajado un poquito el termómetro del tiempo, aunque no el del cuore, porque, cuando se trata de milonguear da lo mismo el frío que el calor. En el tango que escribió Carlos Bahr y que musicalizó Armando Pontier: "**Cuando talla un bandoneón**", el bardo se expresa así:
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhz-QvZ-y9ax63KAGWyAk7Q27T_03k58Q_iVPHRbKPGYNKUjiKOhIQvO3_GIcHotDHeJH7NXGlhs-UzIHOi8OEeclps-1Lh3QFaEgEZUOy-ACSTFbZdtjiPpJL1S4gUnsa9e0HeRx7_Y9-R/s320/Paregotancito.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhz-QvZ-y9ax63KAGWyAk7Q27T_03k58Q_iVPHRbKPGYNKUjiKOhIQvO3_GIcHotDHeJH7NXGlhs-UzIHOi8OEeclps-1Lh3QFaEgEZUOy-ACSTFbZdtjiPpJL1S4gUnsa9e0HeRx7_Y9-R/s1600/Paregotancito.jpg)Disculpen si me doy tono
+[![](/tangos-al-bardo/images/957283e01cca.jpg)](/tangos-al-bardo/images/a91bd899a46b.jpg)Disculpen si me doy tono
 pero yo soy como un trompo
 si se trata de bailar.
 A mí me tira el compás,

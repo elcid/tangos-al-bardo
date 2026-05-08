@@ -12,7 +12,7 @@ La mayoría de ustedes, principiantes, decide aprender a bailar tango porque han
 
 El estilo tradicional de tango es bailar el sentimiento. Tomá el ritmo y ponelo en todo… en tus sueños, pensamientos, tu amor y tu pasión, porque cuando lo hagas, eso es bailar el sentimiento. Empezá a caminar con el latido del tango y vas a tener tu estilo.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjYcq3J-WRcaHvjc3Kz0Tsy_77X6OfSZvpAJy98Uscy6MzmmFp6i7JaWOF_gi-4BRYGT6f7egHuZNiymTZcfR7Wdwy5KvRtzNUn_v0_5o7KaeOOrhm2KZ47cZ0zl566hgSzqNFb0tIRGAjP/w286-h400/Vidortt20170826170838-e1505185400581.webp)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjYcq3J-WRcaHvjc3Kz0Tsy_77X6OfSZvpAJy98Uscy6MzmmFp6i7JaWOF_gi-4BRYGT6f7egHuZNiymTZcfR7Wdwy5KvRtzNUn_v0_5o7KaeOOrhm2KZ47cZ0zl566hgSzqNFb0tIRGAjP/s657/Vidortt20170826170838-e1505185400581.webp)Ricardo Vidort bailando con una compañera
+[![](/tangos-al-bardo/images/a7b828744a24.webp)](/tangos-al-bardo/images/e521c89b8f32.webp)Ricardo Vidort bailando con una compañera
 
 **Clase de Tango**: Una vez que entiendas y sepas cómo caminar con el ritmo que escuchás, vas a empezar a bailar en pareja. Y cuando vayas al piso:
 

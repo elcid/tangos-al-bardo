@@ -8,7 +8,7 @@ tags: ["Edmundo Rivero", "Horacio Salgán", "Ernesto Baffa", "Homero Manzi"]
 
 Los que tuvimos la suerte de alcanzar a conocer la Corrientes tanguera, el centro porteño donde se cocinaba la música popular de Buenos Aires, bailar en las confiterías céntricas con aquellas orquestas o verlas actuar, sentir aquella ansiedad romántica que jugaba su desvelo a la aventura, nos sentimos reconfortados e identificados con lecturas que reflejan ese rumor de época. Por eso hoy lo traigo al gran Edmundo Rivero que en su libro autobiográfico reseña viejas anécdotas. Como ésta por ejemplo:
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhKAbrSeOwAgn5ajJjhb9trEap2a58yHxF4cFGJMHl8eUvzqEdbRIMEaMDYqOgQR8P93-7gfMleD8uZgd9eKZ-M5LvVw_S2W7g25lp3vOY3yLhhboaXSEZLgXviFurAn9TPKr_jcIZE3u8/s1600/Horacio-Salgan-Edmundo-Rive.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhKAbrSeOwAgn5ajJjhb9trEap2a58yHxF4cFGJMHl8eUvzqEdbRIMEaMDYqOgQR8P93-7gfMleD8uZgd9eKZ-M5LvVw_S2W7g25lp3vOY3yLhhboaXSEZLgXviFurAn9TPKr_jcIZE3u8/s1600/Horacio-Salgan-Edmundo-Rive.jpg) Horacio Salgán y Edmundo Rivero. Ernesto Baffa en el fueye
+ [![](/tangos-al-bardo/images/aefe50cf91b5.jpg)](/tangos-al-bardo/images/aefe50cf91b5.jpg) Horacio Salgán y Edmundo Rivero. Ernesto Baffa en el fueye
 
 **Toda esa increíble fiesta**
 

@@ -26,7 +26,7 @@ Porque suyo es el encadenamiento, la ligadura con el paisaje primitivo. Y ha lle
 
 No quiero adivinar los elementos que concurren a la formación nerviosa de su espíritu, base de su condición de artista sin parecido. Enumero tan sólo las razones de la ausencia que padece. La del hijo que no vino. La del amor -aquel- inolvidable. El vacío de un amigo. La madre, enfriada. El nombre del perro que se tuvo una vez y no se olvida. Y otra causa más que es una excusa y la más importante. Causa y excusa que tiene un nombre: Buenos Aires.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi5yGfvOdpWwqve_di1Di8EORev223SquIqxlK6BS-UvDHCUrcRDAMHsmT1ses6moXXW28-JKzHUgpjCCH2Uszsn9ye1EXaPf4G5QD2SK3po5Wrs_aWMHP7pMEH8iGq8iyGMdhgBPZTi1ih/s0/Centeunnamed.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi5yGfvOdpWwqve_di1Di8EORev223SquIqxlK6BS-UvDHCUrcRDAMHsmT1ses6moXXW28-JKzHUgpjCCH2Uszsn9ye1EXaPf4G5QD2SK3po5Wrs_aWMHP7pMEH8iGq8iyGMdhgBPZTi1ih/s300/Centeunnamed.jpg)Julián Centeya y Aníbal Troilo
+[![](/tangos-al-bardo/images/d844317f657a.jpg)](/tangos-al-bardo/images/dddf9272ae7f.jpg)Julián Centeya y Aníbal Troilo
 
 Porque Pichuco no pudo arribar a esta prestación de la vida -la davi, como dice él en su lunfarda barquinesca- sino enviada por nuestra ciudad, a la que le pertenece en virtud de todas las fatalidades de su total fatalidad. Y de la que es su inquilino, con cuotas de amor que paga todos los días, enfrentado la copa, trenzando la frase amistosa, gastándose como quien auténticamente se regala, en paisajes de boliches humosos de mal tabaco. ¿Ídolo? ¡Hasta para dar el vuelto! Con ello está formulada la pretensión de advertirlo con esta autenticidad: Su universalidad.
 

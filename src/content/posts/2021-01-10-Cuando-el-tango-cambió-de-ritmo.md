@@ -11,7 +11,7 @@ Mucho se ha acusado a Piazzolla de haber desnaturalizado el tango. Suponemos que
 
 La modificación más radical que debió sufrir fue cuando, en algún momento de la década de 1910, pasó del ritmo de corchea con puntillo-semicorchea-dos corcheas (generalmente escrito en dos por cuatro) al de cuatro corcheas (que suele escribirse en cuatro por ocho). A lo cual se le sumó una desaceleración que venía,además, a alterar el tempo (velocidad).
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhCAT7LE5YFcXFNLh8_xhXnjsIKaLGMr9QX5MfEAQRdQrjTkGczuPx-4s3gioetyoQ5zT25-zcpVDi8X6kQ5OjurEEwfRZsOcsvD9mzl-heM2n0mvoPF3w5GYSQvnrDB4M0BgHi29lJvQEG/w220-h320/Arolas-with-Roccatagliata-and-Firpo-1914-MEDIUM.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhCAT7LE5YFcXFNLh8_xhXnjsIKaLGMr9QX5MfEAQRdQrjTkGczuPx-4s3gioetyoQ5zT25-zcpVDi8X6kQ5OjurEEwfRZsOcsvD9mzl-heM2n0mvoPF3w5GYSQvnrDB4M0BgHi29lJvQEG/s625/Arolas-with-Roccatagliata-and-Firpo-1914-MEDIUM.jpg) Arolas con Roccatagliata y Firpo
+[![](/tangos-al-bardo/images/55eb74034894.jpg)](/tangos-al-bardo/images/c6c73b2f504a.jpg) Arolas con Roccatagliata y Firpo
 
 La primera vez que escribimos sobre el tema fue en 1985, en una comunicación de la Academia Porteña del Lunfardo. A pesar del paso de los años, la falta de documentación no nos ha permitido arribar a conclusiones definitivas. De todos modos, no está de más volver sobre el asunto. Resulta arduo establecer en qué momento se le imprimió al tango el Nuevo ritmo. De todos modos, hay algunos hechos sugerentes. Digamos, pues, que hacia 1917 Eduardo Arolas llevaba al disco su tango *“La guitarrita*”, grabación en la que se oye tal ritmo.
 
@@ -23,7 +23,7 @@ Todo puede resultar más complejo aún, Veamos. En 1913, cuando la orquesta det 
 
 ¿Qué queria significar el cronista? Qué el tango se habia interpretado más lentamente? Qué, además se le otorgaba el nuevo ritmo? Es probable. Nuestra danza venía de triunfar en Paris y aquel cronista seguía diciendo al respecto que de lo antedicho *“se deduce que, el ambiente europeo con que está impregnado el tango, lo ha devuelto a la patria con otro acento y otra indumentaria*”.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgVdqrNSNx2kYqoqHSwtbUXxMwxVJc09AH7hMxKftjB5Llm4vm70G3fDdY1VpRhoKAdGVlepvSG1vXqGC0kbDPJu565EwVyR9DAl9CVgXeeUXcCmiALu4M5sj6hzf3PEJCm8lU0MsVZHHWd/w285-h400/eltangoenparis-soldi-1963.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgVdqrNSNx2kYqoqHSwtbUXxMwxVJc09AH7hMxKftjB5Llm4vm70G3fDdY1VpRhoKAdGVlepvSG1vXqGC0kbDPJu565EwVyR9DAl9CVgXeeUXcCmiALu4M5sj6hzf3PEJCm8lU0MsVZHHWd/s519/eltangoenparis-soldi-1963.jpg)"El tango en París"- Raúl Soldi 1963
+[![](/tangos-al-bardo/images/e488ccb57198.jpg)](/tangos-al-bardo/images/b9da3fb52947.jpg)"El tango en París"- Raúl Soldi 1963
 
 ¿Interpretaría aquella orquesta de 1913 el tango ya con el nuevo ritmo? ¿Habrá sido en París donde comenzó a modificarse el ritmo tradicional? Podría ser... Quizá todo tenga que ver con otra
 modificación, la obrada por los jóvenes de la sociedad porteña que lo bailaron, por entonces, en la capital francesa, como Ricardo Güiraldes, Daniel Videla Dorna, Vicente Madero y otros. Al respecto, resulta interesante el siguiente párrafo de José Gobello ("Bailarín'e tranco largo”, en Precisiones, 26-VII-1979):

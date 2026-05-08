@@ -24,4 +24,4 @@ Por eso me vi instado a escribir este poema.
 
  jmo
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgwZmkJN6edIYNeEHw36rTvYYvMvXUkIAH-Owe64ltnZHV5w_NlXZ0rcIBrjkezDxXjpEgQCGlcxjw6GoIvlM0yomLg0vy6ZAzK9gB4W4g_CqMu_ugKhWTkML3vxKdRyWHM_5Vgcyfc1SzQ/s320/pugliese4.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgwZmkJN6edIYNeEHw36rTvYYvMvXUkIAH-Owe64ltnZHV5w_NlXZ0rcIBrjkezDxXjpEgQCGlcxjw6GoIvlM0yomLg0vy6ZAzK9gB4W4g_CqMu_ugKhWTkML3vxKdRyWHM_5Vgcyfc1SzQ/s1600/pugliese4.jpg) [ La yumba ](http://www.mediafire.com/?fm02dyxa49uijz1)
+ [![](/tangos-al-bardo/images/f2edc1df0942.jpg)](/tangos-al-bardo/images/41528f3c87d0.jpg) [ La yumba ](http://www.mediafire.com/?fm02dyxa49uijz1)

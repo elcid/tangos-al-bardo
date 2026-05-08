@@ -28,7 +28,7 @@ Así anduvo, tanteando la suerte, armando y desarmando conjuntos, viajando con F
 
 Evidentemente, Miguel Caló se ganó a pulso su lugar en el Olimpo tanguero. Cuando uno encuentra una música así, debe estarle agradecido el resto de sus días. Por eso en este sábado que amenaza lluvia, yo preparo el mate, los bizcochitos de grasa, pongo a la *Orquesta de las Estrellas* en la *vitrola* y me instalo en la década prodigiosa.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi1BcnaaTnHxSFAKR8aYqzSrCDBd4f1UzyzNKVeCDtv8aiBcKXTJG7vY2pgjjw4tMpnxdAaqrAx0Bfwr_ucY4WG-QrVOAbltwaO50RugJHnOoR9RqzbJNXdY2hDmh2W1TL_TfolCm5vB1Q/s320/Ber%C3%B3n+e+Iriarte.JPG)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi1BcnaaTnHxSFAKR8aYqzSrCDBd4f1UzyzNKVeCDtv8aiBcKXTJG7vY2pgjjw4tMpnxdAaqrAx0Bfwr_ucY4WG-QrVOAbltwaO50RugJHnOoR9RqzbJNXdY2hDmh2W1TL_TfolCm5vB1Q/s1600/Ber%C3%B3n+e+Iriarte.JPG) Raúl Berón y Raúl Iriarte, dos baluartes de la orquesta de Caló
+ [![](/tangos-al-bardo/images/26b25023b013.jpg)](/tangos-al-bardo/images/23ff9a5ceeea.jpg) Raúl Berón y Raúl Iriarte, dos baluartes de la orquesta de Caló
 Sí, que hermosura: **Corazón no le hagas caso**, de Armando Pontier y Carlos Bahr, grabado el 29 de junio de 1942, con la voz de Raúl Berón. Y un día más tarde, esa fábrica de éxitos registró el tango de Miguel Caló y Osmar Maderna: **Qué te importa que te llore**, que canta como los dioses Raúl Berón..
 
 [Miguel Caló-Raúl Berón: Corazón no le hagas caso](http://sdrv.ms/10IagAS)

@@ -16,7 +16,7 @@ Muy buen fraseador, cantor al que le iban de maravillas los temas dramáticos, d
 
 El notable pianista y director venía de un alejamiento del medio, cuando vuelve al ruedo y arma una orquesta con el estilo que tanto lo definió, hasta convertirlo en un ícono. El otro cantor escogido fue el mendocino Oscar Serpa, que ya había militado anteriormente en la formación.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgoHJ2SStlhAFcxW1Xqj29QO5sVP2AOe81Ygmgc7_OGJWjp0FuKtbqvXAUWQoQhDq2D1Tfse3I3qSA5968mqhLSQWHn-0CVwWEvknDA08-ZTrvu_L8SaJPxPXXQnIzBBw9EgMI3SKZxRl6D/s1600/POMAR.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgoHJ2SStlhAFcxW1Xqj29QO5sVP2AOe81Ygmgc7_OGJWjp0FuKtbqvXAUWQoQhDq2D1Tfse3I3qSA5968mqhLSQWHn-0CVwWEvknDA08-ZTrvu_L8SaJPxPXXQnIzBBw9EgMI3SKZxRl6D/s1600/POMAR.jpg) Mario Pomar a la izquierda junto a Serpa y Di Sarli  Lo podemos escuchar a Corrales-Pomar, en grabaciones con la Típica Víctor, Antonio Rodio y Carlos Di Sarli. Con esta última, la que, para mí, fue su gran creación: de Enrique Santos Discépolo, **Tormenta**. Una maravilla.
+ [![](/tangos-al-bardo/images/0162cc1f4999.jpg)](/tangos-al-bardo/images/0162cc1f4999.jpg) Mario Pomar a la izquierda junto a Serpa y Di Sarli  Lo podemos escuchar a Corrales-Pomar, en grabaciones con la Típica Víctor, Antonio Rodio y Carlos Di Sarli. Con esta última, la que, para mí, fue su gran creación: de Enrique Santos Discépolo, **Tormenta**. Una maravilla.
 [
 ](http://www.blogger.com/goog_1419520228)
 [Canyengue. A.Rodio](http://www.mediafire.com/?9w97dp962x6x99i)

@@ -7,7 +7,7 @@ tags: ["Ricardo Tanturi", "Juan D'Arienzo", "Enrique Campos"]
 ---
 
 * *
-* Vamos, morocha, a bailar**[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiDCOxK8uatKJHDGTZr7rA4cb6U2GNlqp2Qg2oH8P5UKAz4gtTP92qKRGCp0BVIIEDV2ymEhhgjKrVauYE3ha8mHcL4xbxlnYDk5c-tqeVgH1kBV2OTLuM0-zVb-9vnqc-lQIAQoLZo6Xqt/s320/TANGO+15+MAYO+001+en+baja.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiDCOxK8uatKJHDGTZr7rA4cb6U2GNlqp2Qg2oH8P5UKAz4gtTP92qKRGCp0BVIIEDV2ymEhhgjKrVauYE3ha8mHcL4xbxlnYDk5c-tqeVgH1kBV2OTLuM0-zVb-9vnqc-lQIAQoLZo6Xqt/s1600/TANGO+15+MAYO+001+en+baja.jpg) *
+* Vamos, morocha, a bailar**[![](/tangos-al-bardo/images/7fe19e32d143.jpg)](/tangos-al-bardo/images/4027e77e406b.jpg) *
 * este tango sin par *
  * que rezonga en la orquesta.*  * ** Vamos a vestir de fiesta al corazón*   * que hasta la noche de hoy*
 * se presta.* * *

@@ -7,7 +7,7 @@ tags: ["Cátulo Castillo", "Susana Rinaldi"]
 ---
 
 ###
-  [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgjHLjSFkC8iQARBK5eeSKkZydkgqH0ZCE1_KtI-qfx9hG1rYwPveBNlnFdsVYSlmcxmPI2hBFMeFF9llUeNn_oP1KUjHxzZdcmEVfTvCh4JyEWyhiZhrVWpebt1Md_z_2wQp-i5pDe4Leg/s400/Jones+Joel.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgjHLjSFkC8iQARBK5eeSKkZydkgqH0ZCE1_KtI-qfx9hG1rYwPveBNlnFdsVYSlmcxmPI2hBFMeFF9llUeNn_oP1KUjHxzZdcmEVfTvCh4JyEWyhiZhrVWpebt1Md_z_2wQp-i5pDe4Leg/s1600/Jones+Joel.jpg)
+  [![](/tangos-al-bardo/images/73c2d46ea454.jpg)](/tangos-al-bardo/images/8f459ffa9ac7.jpg)
  Yo tuve un trompo azul que fue mi hermano,
 lejano saltarín de piedras viejas,
 por la zurda del barrio a contramano

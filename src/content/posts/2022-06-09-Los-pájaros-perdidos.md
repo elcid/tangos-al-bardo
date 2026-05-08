@@ -10,7 +10,7 @@ En varias charlas (hechas también de silencios) que tuvimos con **Mario Trejo**
 
 -Mi primera infancia transcurrió en pleno centro de Buenos Aires, entre los ensayos de la orquesta de Julio De Caro y las actuaciones de Mistinguette y Maurice Chevalier. En casa: un piano, discos de toda clase de música y numerosos libros de autores argentinos, entre ellos *Poemas para ser leídos en un tranvía*, de Oliverio Girondo, *Los Lanzallamas,* de Roberto Arlt, y *Don Segundo Sombra*, de Ricardo Güiraldes. Me crié en la cultura pero también en la calle, con potrero y barrio. La primaria fue en un colegio inglés y el secundario en el Nacional Buenos Aires, donde recibí una educación extraordinaria.”
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgnTaB0QajqeqCjB8S6l1phlQ-OidA7t3XoL_aSPdQ3JkxGbmNAKFboU-veTsgOPToUsfwV2c99PMlbQA-gYoajPEWSSh7s0NBb617M83lpvNOpR-_5xlOedTgYKfM5KxCZUu7rE8YC8P-2SYFwG5FZaunFYQJ6djwMqCg6_gSbdUW5zjIMw4XS3ESnIw/w400-h400/TREJOimages.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgnTaB0QajqeqCjB8S6l1phlQ-OidA7t3XoL_aSPdQ3JkxGbmNAKFboU-veTsgOPToUsfwV2c99PMlbQA-gYoajPEWSSh7s0NBb617M83lpvNOpR-_5xlOedTgYKfM5KxCZUu7rE8YC8P-2SYFwG5FZaunFYQJ6djwMqCg6_gSbdUW5zjIMw4XS3ESnIw/s225/TREJOimages.jpg)Mario César Trejo
+[![](/tangos-al-bardo/images/c86189dca4dc.jpg)](/tangos-al-bardo/images/be1b7ad99754.jpg)Mario César Trejo
 
 Trejo, apenas egresado del Colegio Nacional de Buenos Aires, empezó a ser lo que se dice un hombre de la noche y el bajo porteños. Unos años más tarde, sitios como el *676* –bar de tragos y música en la calle Tucumán, donde casi a diario tocaba su amigo Astor Piazzolla– y el *Jamaica*, lo tuvieron de habitué.
 

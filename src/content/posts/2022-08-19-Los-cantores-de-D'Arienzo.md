@@ -10,7 +10,7 @@ El *Rey del compás* le dio mucha manija a los cantores de su orquesta. Por su r
 
 Algunos de sus vocalistas no llegaron al disco, como fue el caso de Rafael Cisca y Mario Landi. El que más temas grabó con Juan D'Arienzo fue Armando Laborde que estuvo en tres etapas distintas con la orquesta. Muchos de sus registros discográficos son en dúo con Echagüe y también sumó otros con Osvaldo Ramos.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjIw00SXy6h-cWYJQul46A7E4XvI3AOPHeW5teqTBt3LIktI4EG2ZddK1XnTu01CCC4DYvZAXpRS5sKZwRmqDG5F7ghXWepoWodfzIB4aVWa93FsLQBDJeN_J_wqss5QrHUT6Lb0HvZCIlhuU4Os1QtYmBoKR7Uy0lWzPvdwFzECtXVgwLkBud_DNUHBA/w400-h208/Lamas%C3%ADndice.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjIw00SXy6h-cWYJQul46A7E4XvI3AOPHeW5teqTBt3LIktI4EG2ZddK1XnTu01CCC4DYvZAXpRS5sKZwRmqDG5F7ghXWepoWodfzIB4aVWa93FsLQBDJeN_J_wqss5QrHUT6Lb0HvZCIlhuU4Os1QtYmBoKR7Uy0lWzPvdwFzECtXVgwLkBud_DNUHBA/s311/Lamas%C3%ADndice.jpg)D'Arienzo con su cantores Héctor Mauré y Juan Carlos Lamas
+[![](/tangos-al-bardo/images/5af3bc48e4cb.jpg)](/tangos-al-bardo/images/ab91338f8e92.jpg)D'Arienzo con su cantores Héctor Mauré y Juan Carlos Lamas
 
 Alberto Echagüe fue, sin la menor duda, "***la voz**"* de la orquesta con el Rey del compás. El que más se identificó con el estilo nervioso, pujante, arrabalero que le imprimía D'Arienzo a su formación. Además, los tangos reos, le calzaban como anillo al dedo y logró infinidad de éxitos en forma de venta de discos con sus creaciones. Tiene apenas un tema menos que Laborde en la discografía darienzana.
 

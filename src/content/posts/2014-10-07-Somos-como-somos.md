@@ -18,7 +18,7 @@ Eladia construyó más de 500 temas, la mayoría de los cuales son como fotos de
 
 Pero a la vez, entre toda su lieratura, tierna y descarnada a la vez, supo hacer esos retratos que "*nos dan la cana*", y son un muestrario de nuestras debilidades. Los habitantes de los distintos países del mundo tienen como un estereotipo que los caracteriza ante el forastero o el de quien los observa y califica a la ligera. Cuando uno se aleja de los lugares queridos y cada tanto vuelve a recorrerlos con el alma en ascuas, ve algunas realidades que en otro momento no aquilataba. O se sentía en su sitio.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg35fBDpzVAfTZvi6gLS13ooiMuK6P_a1P5oqRWKWq2Y2uwySNEyMvuQ2jYCfRLjKyKFpqWNqUslvN1HssW9I8KVYV9tf3MFxSw6xhH1fp8mi5Nt-eBo6G28SEiDW12WZFVxnsuFUba-vw/s1600/Eladia+Blazquez+con+Astor+Piazzolla+en+1988.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg35fBDpzVAfTZvi6gLS13ooiMuK6P_a1P5oqRWKWq2Y2uwySNEyMvuQ2jYCfRLjKyKFpqWNqUslvN1HssW9I8KVYV9tf3MFxSw6xhH1fp8mi5Nt-eBo6G28SEiDW12WZFVxnsuFUba-vw/s1600/Eladia+Blazquez+con+Astor+Piazzolla+en+1988.jpg) Eladia Blázquez con Ástor Piazzolla en 1988
+ [![](/tangos-al-bardo/images/f29dba1190f9.jpg)](/tangos-al-bardo/images/f29dba1190f9.jpg) Eladia Blázquez con Ástor Piazzolla en 1988
 
 En **Somos como somos**, Eladia pone su lente certera y nos descubre así, sin máscaras ni corazas.
 

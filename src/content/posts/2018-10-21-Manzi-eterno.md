@@ -48,7 +48,7 @@ Pero también la lucha le señalaba un puerto: los autores de versos y los músi
 Así llegó hasta ellos, a nosotros, para formar el nudo y para atarlo con la fuerza feliz de su palabra. SADAIC era un símbolo que apretaba en la sigla cien caminos de conquistas
 gremiales que estaban ya a un paso, nada más, de la esperanza.
 
-  [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjNV_6ANyWdZQtQyCPADl-sv-yR2GXReBeDJ81kOvP4REx-PYD0GOAYvoFToftURW45nfQl4aJarkuvON1hqq9qQV9aNB9rG9Favk5L5PLdaopGSGi2tobeCBJNSY7LMmHWdPN_EwXBkFd4/s400/Piana%252CManzi%252Ccatulo.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjNV_6ANyWdZQtQyCPADl-sv-yR2GXReBeDJ81kOvP4REx-PYD0GOAYvoFToftURW45nfQl4aJarkuvON1hqq9qQV9aNB9rG9Favk5L5PLdaopGSGi2tobeCBJNSY7LMmHWdPN_EwXBkFd4/s1600/Piana%252CManzi%252Ccatulo.jpg) Cátulo, Homero Manzi, Sebastián Piana y Pedro Maffia con sus sueños jóvenes
+  [![](/tangos-al-bardo/images/66c7d06c617c.jpg)](/tangos-al-bardo/images/0301eee37298.jpg) Cátulo, Homero Manzi, Sebastián Piana y Pedro Maffia con sus sueños jóvenes
 
 Homero ya era un hombre.
 Y su barba crecida, casi excéntrica, le dio fisonomía de patriarca. Un patriarca muchacho que recordaba cerca de sus ojos, que a veces le brillaban como lágrimas...

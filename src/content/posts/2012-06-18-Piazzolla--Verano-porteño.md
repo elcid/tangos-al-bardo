@@ -9,7 +9,7 @@ En Madrid estamos entrando ya en el verano y es la estación en que, escuchar es
 
 En este caso me ubica mental y físicamente en el verano. Tiene esta música la cualidad casi mágica de hacerte sentir la plenitud de la naturaleza, la fuerza del sol, la arborescencia, los insectos, el tráfico pesado de la ciudad, la inmensidad de la noche y el bullicio de los pájaros en celo.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhs1WhMLd1o6rN0uAVkVtQrDE40P1QSV8o8MJN3PXVjUGKQ6zpQDV1aclHrPoQegBD0Jled0zXiRIe2kVfVGErp1qjY8GS4sDsSelT6uplixaK2UumOSVP-f2t13YHcAKQxNkB7pz862ui_/s1600/Verano_porteno.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhs1WhMLd1o6rN0uAVkVtQrDE40P1QSV8o8MJN3PXVjUGKQ6zpQDV1aclHrPoQegBD0Jled0zXiRIe2kVfVGErp1qjY8GS4sDsSelT6uplixaK2UumOSVP-f2t13YHcAKQxNkB7pz862ui_/s1600/Verano_porteno.jpg)Todo esto lo experimento al escuchar este tango que me transporta a la tremenda humedad porteña, al espesor de las horas y las madrugadas tangueadas.
+[![](/tangos-al-bardo/images/8affe210a52b.jpg)](/tangos-al-bardo/images/8affe210a52b.jpg)Todo esto lo experimento al escuchar este tango que me transporta a la tremenda humedad porteña, al espesor de las horas y las madrugadas tangueadas.
 
 Por todo ello traigo la versión que realizó en la TV italiana en 1972, con la orquesta de la propia emisora.
 

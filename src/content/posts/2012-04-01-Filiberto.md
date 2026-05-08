@@ -8,7 +8,7 @@ labels: ""
 Y como estamos luciendo aquellos arrestos juveniles de los/as chochamus/as cuando gastábamos pinta y gola, ya conté una vez que yo también canté con una orquesta grosa: ¡Nada menos que con la de Juan de Dios Filiberto! *"Ese par de patillas que anda entristeciendo el Riachuelo"*, decía de él Borges.,
  Claro que fue en un acto patriótico, un 9 de julio, en nuestro Colegio Nacional Juan Martín de Pueyrredón –Chacabuco y Estados Unidos-.
  Los de nuestro Cole ensayamos espaciadamente durante un mes con los del Colegio Mariano Acosta. El día señalado dirigió Filiberto, viejito, medio jorobadito, flacucho, con cuatro pelos peinados con gomina hacia la diestra, tapando la bocha, a una orquesta como de 20 músicos. Y tocaron dos temas suyos: *El pañuelito* y *El clavel del aire*, con ese estilo lánguido y lento que caracterizaba al dire.
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhj6fkmheoWAQL5xD7iKm1_2T-I8QM4t4PsLMaWgvy7qL3lVQZuUUSDd1UNnYqlWh798ZibvwMKe-fUDVXn3LF9hBTc3royOaWwJvfYZpDTyKkq3P2r-s_psRZb3CXxbdN6w2HAnqMLI7Fo/s320/Cara_Filiberto.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhj6fkmheoWAQL5xD7iKm1_2T-I8QM4t4PsLMaWgvy7qL3lVQZuUUSDd1UNnYqlWh798ZibvwMKe-fUDVXn3LF9hBTc3royOaWwJvfYZpDTyKkq3P2r-s_psRZb3CXxbdN6w2HAnqMLI7Fo/s1600/Cara_Filiberto.jpg) Juan de Dios Filiberto (1885-1964)
+ [![](/tangos-al-bardo/images/e92e8931fadd.jpg)](/tangos-al-bardo/images/24e2d183c95d.jpg) Juan de Dios Filiberto (1885-1964)
 
  Lo más curioso fue que vino Perón al colegio, y era Presidente en ese momento. Lo recuerdo junto a nosotros en posición semi firme con un piloto –impermeable- blanco, y cantó entero los dos temas junto con los dos colegios.
  Pero no lo grabamos (Menos mal…).

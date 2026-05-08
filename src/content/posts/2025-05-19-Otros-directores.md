@@ -10,7 +10,7 @@ tags: ["Francisco Canaro", "Pedro Maffia"]
 
 El poeta Luis Rubistein, en un reportaje publicado en el semanario "Sintonía", el 31 de diciembre de 1936, pregunta al maestro Maffia que cumplía sus bodas de plata con el bandoneón:
 
-![Tangos al bardo: Abandono](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjjBzGq7byjT-5RSEWnCPraHxBvdksKiR6iRcfW4IuGnoP7wPTLZyKj9cmrlHjRf_jmnG_5wqRXGbpLJEVczc7zrIUV9uqSXc_4IXqSnLFflhiHuwzIH1gNyodnL8uCEx1NZDgBQZObnmU/s1600/Pedro-Maffia-joven.jpg)
+![Tangos al bardo: Abandono](/tangos-al-bardo/images/10cfe6dbf322.jpg)
 
 -Entre De Caro y Canaro ¿dónde se ubica? -Yo tengo una modalidad personal como director de orquesta, modalidad que es en ese plano mi manera de sentir el tango en forma íntima. Sin embargo, puesto a optar, opino que esta más en el tango Francisco Canaro. "Pirincho" es mucho dentro del tango. Quienes lo discuten se olvidan de sus grandes composiciones. Su simpleza musical como director no es lo que más se adapta con mi temperamento, pero confieso que traduce una aspiración popular. Con respecto a De Caro quiero dar una opinión simple y sin animosidad; él dice que sólo él y Fresedo trabajaron en el tango. Yo creo que ellos han trabajado, pero no puedo olvidarme de Canaro, de Firpo, de Pacho, de Lomuto y muchos otros, entre ellos yo.
 

@@ -12,7 +12,7 @@ Llegarían bien entrado el siglo veinte. Las grabaciones mecánicas o acústicas
 
 En la parte más estrecha de la bocina, una sencilla membrana accionaba directamente la púa que registraba los sonidos en el disco madre. No había por entonces sistema alguno para modificar las condiciones de grabación artificialmente y, aunque con deficiencias, lo registrado era el resultado directo de lo ejecutado frente al rígido cono metálico.
 
-![](https://i.imgur.com/MARM51i.jpg)
+![](/tangos-al-bardo/images/a72494eb16c5.jpg)
 
 Para grabar canto con aquel sistema era necesario tener voz, pero voz en serio. Todo lo que registró Gardel desde 1912 hasta octubre de 1925, tanto en Odeón como en Columbia, lo hizo en sistema acústico. Recién el 26 de diciembre de 1925, grabó en Barcelona parta Odeón en el sistema eléctrico.
 
@@ -30,7 +30,7 @@ Ya era un Gardel metamorfoseado, distinto al del comienzo. Mucho más cultivado,
 
 Edmundo Rivero, que sabía mucho de música y de canto, lo explicó cabalmente: "Con respecto a la tan cuestionada N que él pronunciaba insinuando una R, se debe a que la N es consonante líquida y puede perder su sonoridad al encontrarse con una consonante sorda (T o P) de las que obstruyen el pasaje del aire (son oclusivas) y al pronunciar la N anterior a ellas, éste se apoya en la nariz y sabiendo que en el canto elevado esto es anti estético y reprochado, Gardel enviaba directamente el aire hacia adelante (siempre apoyada)".
 
-![8 ideas de Carlos Gardel en 2026 | gardel carlos, tango, tango argentino](https://i.pinimg.com/236x/9c/ba/65/9cba65d2d2b4030b452a9e92c9d4ae24.jpg)
+![8 ideas de Carlos Gardel en 2026 | gardel carlos, tango, tango argentino](/tangos-al-bardo/images/029b09407cee.jpg)
 
 *Volver, Mi Buenos Aires querido, Cuesta abajo, Amores de estudiante, El día que me quieras, Soledad, Sus ojos se cerraron, Arrabal amargo, Volvió una noche, Rubias de New York, Lejana tierra mía, Por una cabeza*, son algunas de sus canciones que sembraron el Tango por el mundo, llevando nuestro cancionero a los rincones más apartados y haciéndolas inmortales.
 

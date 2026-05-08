@@ -10,7 +10,7 @@ Este es un tango que impone. Y no sólo eso, sino que uno se imagina en el exter
 
 Cuando lo tuve a De Caro en mi programa matinal de los domingos en Radio Argentina, estaba retirado y vivía en mar del Plata. Además tenía dificultades para expresarse oralmente por los daños que la mentonera o barbada del violín, le habían producido en sus cuerdas vocales. Pero fue muy grato revivir aquellos años gloriosos de su sexteto y orquesta, y los monstruos que alineó en esos conjuntos.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhHRSTIdRmdU4-16sOLuaHwqoXT6JffBw7-m0XGjbmP8nWyUUuJ6vFBiFpu5FQGeD9c1PtGDxpzBCPlt1bd66N1D1-gaXhaJx3uBYKVfrxR1blyF70MgRq7qXa-3ZsCMguvNlrh_-KDbNp1/s320/julio.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhHRSTIdRmdU4-16sOLuaHwqoXT6JffBw7-m0XGjbmP8nWyUUuJ6vFBiFpu5FQGeD9c1PtGDxpzBCPlt1bd66N1D1-gaXhaJx3uBYKVfrxR1blyF70MgRq7qXa-3ZsCMguvNlrh_-KDbNp1/s1600/julio.jpg) Julio De Caro
+ [![](/tangos-al-bardo/images/7d39b7847581.jpg)](/tangos-al-bardo/images/d1a2acbe14ad.jpg) Julio De Caro
 No podía falta la mención de algunos de sus tangos y **Tierra querida** es uno de los que me llegan más hondo. Tiene una letra del cantor Luis Díaz que prácticamente nunca se ha escuchado. Aquella mañana del año 72 o 73, no sólo me contó cómo le brotó esta música durane sus actuaciones en Río de Janeiro, sino que me regaló su libro *El Tango en mis recuerdos*, donde narra cómo es contratado para actuar en Brasil, mientras actuaba con su Sexteto en el Select Lavalle con enorme afluencia de público y músicos.
 
 Entonces prefiero recurrir a sus propias expresiones al respecto publicadas en dicho libro.
@@ -19,7 +19,7 @@ Entonces prefiero recurrir a sus propias expresiones al respecto publicadas en d
 
 -...Una de esas veces, atrapado por el mal "que apretaba fuerte" (la nostalgia y las cartas de su madre), recurrí a mi válvula de escape: el balcón de mi departamento del Copacabana, cuya ubicación, mirando al mar, permitía admirar la costa enjoyada, de multicolores luces. Respiré hondo... tan hondo como pude, impregnándome por dentro y por fuera de aquel ambiente paradisíaco, obra de genio benéfico para, con su soplo mágico, disipar penumbras, donde me debatía... Nunca más propenso a la composición que esa noche cuyo encuadre tan ajustadamente se prestaba...
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhVwD9Pu4b8zVVowOcZy_FR8ScIJhzWOoPnpbi2Js3xnhMzwhsqMDEUA6oGAfOlnipjKZ9m344smbqMkqShlBAfstZz7GiRvP0JgModtzrCxzyixd7DiU19SgVJfihOTd_bZGdzIFxAR0yI/s400/DeCaroysuorquesta_corneta.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhVwD9Pu4b8zVVowOcZy_FR8ScIJhzWOoPnpbi2Js3xnhMzwhsqMDEUA6oGAfOlnipjKZ9m344smbqMkqShlBAfstZz7GiRvP0JgModtzrCxzyixd7DiU19SgVJfihOTd_bZGdzIFxAR0yI/s1600/DeCaroysuorquesta_corneta.jpg) Julio De caro, su violín corneta y su Sexteto
+ [![](/tangos-al-bardo/images/b646effbb9a8.jpg)](/tangos-al-bardo/images/23e9c5c3a6b6.jpg) Julio De caro, su violín corneta y su Sexteto
 
 -En mi éxtasis dieron las tres de la madrugada... Fue entonces, cuando volví a sentir esa sensación previa a algún acontecimiento. Algo o alguien guió mi mano hasta el cuadernillo del papel de música, escribiendo un título: *Nido de amor*, para luego continuar su cometido el fluido creador. Al día siguiente, la orquesté con Francisco (mi hermano), agregándole Laurenz un solo de bandoneón (verdadera filigrana), y que estrenaríamos por la noche. Cansado por lo acontecido horas anteriores, decidí ser frugal antes de actuar, sentándome temprano a comer en el grill.
 

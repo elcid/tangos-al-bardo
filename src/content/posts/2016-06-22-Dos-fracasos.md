@@ -17,7 +17,7 @@ Miguel Caló con su *Orquesta de las estrellas* fue un constante proveedor de é
 Me sorprendí
 cuando te hallé
 como un dolor sin palabras.
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiJIW-Eid5jvmnA5oyd_YwKE9YTTVyb-5KQVE8_RA1gzGdH5GMgde2MOPdBfRXRiuW0o6ruNwKRdVsn5YWXJhG2KLY95Aq0Mz0h4MDfV0sZ3AOaD3M4H1_qFg4ZBNBPEoVIzKvVI0OG0KIp/s1600/homero-exposito.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiJIW-Eid5jvmnA5oyd_YwKE9YTTVyb-5KQVE8_RA1gzGdH5GMgde2MOPdBfRXRiuW0o6ruNwKRdVsn5YWXJhG2KLY95Aq0Mz0h4MDfV0sZ3AOaD3M4H1_qFg4ZBNBPEoVIzKvVI0OG0KIp/s1600/homero-exposito.jpg) Homero Expósito
+ [![](/tangos-al-bardo/images/271452dbc580.jpg)](/tangos-al-bardo/images/271452dbc580.jpg) Homero Expósito
 El arranque te pone en situación y ya vas al corazón del tema que bordaría Alberto Podestá en la primera grabación que hace, de este tango, la orquesta de Caló, el 31 de julio de 1941.
 
 La voz mareada de copas
@@ -49,7 +49,7 @@ de morder la realidad.
 
 Si estos versos no te emocionan, es porque no te gustan ni la poesía ni el tango. Homero Expósito teje una madeja tremenda ante el desconcierto de la pérdida del amor. De dejar atrás una historia fuerte que todos hemos vivido de alguna manera. Pero cómo lo dice...
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjonVrTAzMl6Hq9Ryw2vqVJ_zaD3XogLTWx0NR651TVglQ2WPZXC4cupnLYLigJwess0SWouV14ClgI1rodTKQhxYog_pGwwJYQN0R2Rsobp95Rt6q4xp0zb8EpOWFVvDbcmrZCMWAu2VwD/s320/Estaci%25C3%25B3n-ferrocarril.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjonVrTAzMl6Hq9Ryw2vqVJ_zaD3XogLTWx0NR651TVglQ2WPZXC4cupnLYLigJwess0SWouV14ClgI1rodTKQhxYog_pGwwJYQN0R2Rsobp95Rt6q4xp0zb8EpOWFVvDbcmrZCMWAu2VwD/s1600/Estaci%25C3%25B3n-ferrocarril.jpg)Vuelve otra vez
+[![](/tangos-al-bardo/images/c658feb75589.jpg)](/tangos-al-bardo/images/514a12a54e65.jpg)Vuelve otra vez
 a tu rincón
 que yo me voy con los años.
 Ya llueve plata en mis sienes

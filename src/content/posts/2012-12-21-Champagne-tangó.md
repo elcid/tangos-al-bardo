@@ -8,7 +8,7 @@ tags: ["Pascual Contursi", "Juan D'Arienzo", "Roberto Firpo"]
 
 Cuando sufrimos en alguna pista europea la desidia, inconstancia e ignorancia de las reglas de un buen musicalizador, que nos permita disfrutar del ritmo bailable de tantas orquesta típicas, nos damos cuenta de lo mucho que sabíamos cuando teníamos 20 años y recorríamos las mejores milongas de Buenos Aires.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj4Qnxfm3oT8hB76u_ZO9q1XFgKDlv1rlovrSLC1WZ1J_t1n9LF9oFdQzBh6hyphenhyphenn0eOFlyjGYZ4YcQBBCoiQodcsrl9i4qkuoJ-Dyk7HCQNZYt1gFKVhLNl4ZsjHi_m-uJsxjDHhmhcDg_xB/s320/viruta--478x270.JPG)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj4Qnxfm3oT8hB76u_ZO9q1XFgKDlv1rlovrSLC1WZ1J_t1n9LF9oFdQzBh6hyphenhyphenn0eOFlyjGYZ4YcQBBCoiQodcsrl9i4qkuoJ-Dyk7HCQNZYt1gFKVhLNl4ZsjHi_m-uJsxjDHhmhcDg_xB/s1600/viruta--478x270.JPG) Milongueando en La viruta  Cuando discutíamos entre los amigos de la barra, antes o después de una práctica, o mientras tomábamos mate y escuchábamos las distintas versiones, comparando un tema determinado, interpretado por una u otra orquesta.
+ [![](/tangos-al-bardo/images/87f3e38f8afe.jpg)](/tangos-al-bardo/images/4962bf4850ae.jpg) Milongueando en La viruta  Cuando discutíamos entre los amigos de la barra, antes o después de una práctica, o mientras tomábamos mate y escuchábamos las distintas versiones, comparando un tema determinado, interpretado por una u otra orquesta.
 
 Todos teníamos nuestras preferencias pero sabíamos distinguir perfectamente entre aquellas grabaciones, cuáles eran bailables y cuáles no lo eran, aunque nos endulzaran el oído y el cuore.
 

@@ -12,7 +12,7 @@ El 21 de Septiembre de ese año 24, la orquesta de Fresedo fue convocada para an
 Con todas las cosas que tenía, se me pasó completamente lo pactado y faltando siete días, ni siquiera había comenzado el tango.
 Entonces, estábamos tocando en el cabaret y le dije a los muchachos de la orquesta: “Me van a acompañar en La Mayor, y yo arranco y ustedes me siguen y les voy diciendo el tono. Y así salió el tango “El once”, como una improvisación, con el acompañamiento de la orquesta.
 Después lo escribí, lo publiqué y pudo salir a tiempo en cuatro o cinco días.
-La imprenta, que estaba en Bartolomé Mitre y Riobamba, lo tuvo listo en dos días.  ![El once (A divertirse). Tango](https://repo.todotango.com/partituras/el_once_tapa_72.jpg)  La letra de Emilio le fue agregada después”.
+La imprenta, que estaba en Bartolomé Mitre y Riobamba, lo tuvo listo en dos días.  ![El once (A divertirse). Tango](/tangos-al-bardo/images/6b6b5251168c.jpg)  La letra de Emilio le fue agregada después”.
 En 1924 llegó al país el Príncipe Humberto de Saboya, ante quien actuó Osvaldo Fresedo con su orquesta, en el mes de agosto; ante sus felicitaciones, el maestro Fresedo agradeció con humildad: “*Su Alteza, gracias. Hacemos lo que podemos*”.
 Digamos que desde 1923 a 1927 Fresedo fue el niño mimado en bailes, festivales y recepciones en casa de la aristocracia porteña, entre ellas las de Ortíz Basualdo, Santamarina Uribelarrea, Alvear, Olazábal, Unzué, Pearson y otras.
 En 1925 actuó con su orquesta en el Palacio Errazuris ante Eduardo de Windsor, Príncipe de Gales.

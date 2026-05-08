@@ -54,7 +54,7 @@ Fanny palió su angustia por la indiferencia selectiva de Juancito con el trabaj
 
 Con la desaparición de su referente, Fanny buscó amparo en el presidente, pero este se mantuvo distante de ella, como así también de Juancito. Perón no estaba de acuerdo con el accionar de su cuñado, y tenía referencia de sus negociados y corrupción en nombre de la causa. Tampoco Fanny le caía particularmente bien, tal vez por su cercanía a Juancito, o porque no le hubiera dicho a él o a su mujer lo que sabía sobre él. Decidido a ir a fondo contra Duarte por su enriquecimiento ilícito, el presidente llegó a declarar en una entrevista: "*Aunque sea mi propio padre irá preso, porque robar al pueblo es traicionar a la Patria".*
 
-* *![Insaurralde, Andrés y Maranghello, Cesar. Fanny Navarro y Juan Duarte. Una  triste historia de amor.. | CEDINPE - Centro de Documentación e  Investigación acerca del Peronismo](https://cedinpe.unsam.edu.ar/sites/default/files/portadas/bauso-esplendor_y_caida_de_juan_duarte_1.jpg)
+* *![Insaurralde, Andrés y Maranghello, Cesar. Fanny Navarro y Juan Duarte. Una  triste historia de amor.. | CEDINPE - Centro de Documentación e  Investigación acerca del Peronismo](/tangos-al-bardo/images/a3a087bc72ed.jpg)
 
 **El ocaso de una estrella**
 

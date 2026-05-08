@@ -12,7 +12,7 @@ El canto corre a cuenta de Agustín Magaldi, un casildense que llegó a disputar
 
 La grabación que realizara en el año 1929 con la orquesta Donato-Zerrillo para el sello Brunswick es realmente original y difícil de desentrañar por su extraña realización.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg0KyXlLZOXLkDQEnFTFYEyxd2mUFdJObJ2gVXmPMBJjDuHRiluNHE7i-GnrINp3Ps3locLW0l_wpAvZrRl0B7Y0_rQZSA4IoAZEzVPM1yhWGC4_Sp6cRzhcMdVUBGJ22KTQMpkXrW9WAKU/s1600/Magaldi+y+Donato.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg0KyXlLZOXLkDQEnFTFYEyxd2mUFdJObJ2gVXmPMBJjDuHRiluNHE7i-GnrINp3Ps3locLW0l_wpAvZrRl0B7Y0_rQZSA4IoAZEzVPM1yhWGC4_Sp6cRzhcMdVUBGJ22KTQMpkXrW9WAKU/s1600/Magaldi+y+Donato.jpg) Agustín Magaldi a la izquierda, junto a Edgardo Donato.
+ [![](/tangos-al-bardo/images/773b383767af.jpg)](/tangos-al-bardo/images/773b383767af.jpg) Agustín Magaldi a la izquierda, junto a Edgardo Donato.
 Arranca la orquesta con los compases iniciales, incluso hay una bellísima variación de bandoneón a cargo de Héctor María Artola (en ese relleno que en el ambiente se denomina *verduritas* por el compás que le falta de inicio al tema ) y de repente se detiene la orquesta, y arrancan las guitarras de Magaldi, cuando está el tema llegando a los dos minutos de grabación. El cantor con su melodiosa voz hace la primera parte del tango, acompañado por sus guitarras y en el minuto 2.30, hace mutis por el foro con sus violas.
 
 Y ahí vuelve la orquesta con un final -como al principio- con el dueto de los violines directores: Edgardo Donato y Roberto Zerrillo.

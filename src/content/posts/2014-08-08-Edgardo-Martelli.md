@@ -16,7 +16,7 @@ Mi querida amiga Susana Barrios, que tiene su programa de tango en la radio de l
 
 Tenía ocho años cuando debutó con la compañía Cebrián-Campoy y comenzó sus estudios de técnica vocal y canto. Podía haber sido tranquilamente cantor melódico, porque su voz de tenor y su sensiblidad se prestan fenomenalmente para ello, pero el empujón de Libertad lo respaldó en su deseo de moverse en el ámbito del tango.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiYPlX-ncr3hOJwW6XwM-p8yXnHuSaw31kIxGLEsBR3jmQDa-fTc_AvXLl2ecG4CroXwkn8L_7uGCJ5T69uMuhYL7r5d3myq3s7S5DU2q2eRRr49GUSPIMttTt_JSK4JlRuk_ff77V-sGc/s1600/Edgardo+Martelli.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiYPlX-ncr3hOJwW6XwM-p8yXnHuSaw31kIxGLEsBR3jmQDa-fTc_AvXLl2ecG4CroXwkn8L_7uGCJ5T69uMuhYL7r5d3myq3s7S5DU2q2eRRr49GUSPIMttTt_JSK4JlRuk_ff77V-sGc/s1600/Edgardo+Martelli.jpg) Con el Polaco Goyeneche en sus comienzos
+ [![](/tangos-al-bardo/images/8c4656f445e3.jpg)](/tangos-al-bardo/images/8c4656f445e3.jpg) Con el Polaco Goyeneche en sus comienzos
 
 -*Además aproveché aquel momento para preguntarle muchas cosas a ella -*cuenta*- sobre la voz, el estilo, la entonación y los secretos de la azarosa actuación profesional. Estudié teatro con Alejandra Boero, que me sirvió muchísimo, y profundicé los estudios de canto con el profesor Carlos A. Siniscalco, sobrino de Alberto Castillo y tenor como yo. Incluso cantó en el Colón con los grandes. Y es muy tanguero, hace cosas hermosas en el piano.*
 *

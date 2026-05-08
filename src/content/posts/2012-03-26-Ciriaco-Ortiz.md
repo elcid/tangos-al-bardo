@@ -26,6 +26,6 @@ Pichuco decía que Ciriaco Ortiz tocaba el fueye como un *cordooooobé*.
  [El distinguido ciudadano. Los provincianos. ](http://www.mediafire.com/?mtxzd7sgjfhsavp)
 
   La orquesta Los provincianos estaba integrada así : Ciriaco Ortiz: Direccion y Bandoneón. Anibal Troilo y Horacio Molino: Bandoneones. Elvino Vardaro y Manuel Núñez: Violines.Orlando Carabelli: Piano.Manfredo Liberatore: Bajo
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhct_rvgD-TGepll_pyYhX72aFTlYNvAN53FLym6ZIIsvZvrENsvDmNLONqhYPpqF25ZJNr21AywuZWH6aHhd0UPRZwMkKWXlj7PjTvEQLKSPXlPprskSRBSJ2wDyUa993wZ1UZiyT4T92A/s1600/Edmundo+Zald%25C3%25ADvar+y+Ciriaco+Ortiz++en+su+%25C3%25BAltima+actuaci%25C3%25B3n.bmp)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhct_rvgD-TGepll_pyYhX72aFTlYNvAN53FLym6ZIIsvZvrENsvDmNLONqhYPpqF25ZJNr21AywuZWH6aHhd0UPRZwMkKWXlj7PjTvEQLKSPXlPprskSRBSJ2wDyUa993wZ1UZiyT4T92A/s1600/Edmundo+Zald%25C3%25ADvar+y+Ciriaco+Ortiz++en+su+%25C3%25BAltima+actuaci%25C3%25B3n.bmp) Zaldívar y Ciriaco y su última actuación
+ [![](/tangos-al-bardo/images/be98fb97f883.bmp)](/tangos-al-bardo/images/be98fb97f883.bmp) Zaldívar y Ciriaco y su última actuación
 
-  [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiPD_yPWfnMi3qmSfFGes9qaS0lr6GceQtLxBGL_ufky2v3LDz0wJVRNPmdo8xLpMLvHNIjhqnFXHf1Sktt9lfqjOD58oV0KuURR5Lg8M9xzJ_GEzhswHqw_AMn5a8ZFiltG0T_Sr6PB929/s1600/Perd%25C3%25B3name.bmp)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiPD_yPWfnMi3qmSfFGes9qaS0lr6GceQtLxBGL_ufky2v3LDz0wJVRNPmdo8xLpMLvHNIjhqnFXHf1Sktt9lfqjOD58oV0KuURR5Lg8M9xzJ_GEzhswHqw_AMn5a8ZFiltG0T_Sr6PB929/s1600/Perd%25C3%25B3name.bmp)
+  [![](/tangos-al-bardo/images/10d1edcf3b91.bmp)](/tangos-al-bardo/images/10d1edcf3b91.bmp)

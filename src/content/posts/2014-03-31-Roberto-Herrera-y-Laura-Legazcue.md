@@ -10,7 +10,7 @@ tags: ["José María Contursi", "Leopoldo Federico", "Juan Carlos Copes", "Osval
 
 Desde hace varios meses ha escogido como partenaire a la bailarina uruguaya Laura Legazcue. Laura procede de la danza clásica, el contemporáneo y es también coreógrafa, aunque ha intentado encontrarse en otros aspectos del baile artístico, y un buen día descubrió el tango, que la atrapó de inmediato.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjTPNEIzqG13Z7jJhwFHA4O1Bu7CGT4scLV6E7_9Y0ITzO2MQ8h5p6LOXQ33E82HE3nRCF3OG7INAENtg8ZBSxi25_GNfpC6jHSliBVLsKR2l-_kULHSP4lqX1jIqaNL9ObbB43ON2hw0s/s1600/Lau+y+Rob.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjTPNEIzqG13Z7jJhwFHA4O1Bu7CGT4scLV6E7_9Y0ITzO2MQ8h5p6LOXQ33E82HE3nRCF3OG7INAENtg8ZBSxi25_GNfpC6jHSliBVLsKR2l-_kULHSP4lqX1jIqaNL9ObbB43ON2hw0s/s1600/Lau+y+Rob.jpg) Laura Legazcue y Roberto Herrera  Fue la noche que vió al ballet de Juan Carlos Copes, cuando se le encendió la llama del deseo por aprender esa danza, que hasta allí la consideraba como "un cosa de viejos". Se dio cuenta entonces del potencial que tenía el tango como espectáculo e inspiración artística. Entonces decidió viajar seguido a Buenos Aires para tomar clases con todo tipo de maestros. Incluso encontró a Demián García a quien había visto en algunos videos, incluso, le habló para formar una pareja artística. Ensayaron junto, fueron contratados para una gira por España y luego actuaron con la orquesta Color Tango.
+ [![](/tangos-al-bardo/images/729e1ed6a492.jpg)](/tangos-al-bardo/images/729e1ed6a492.jpg) Laura Legazcue y Roberto Herrera  Fue la noche que vió al ballet de Juan Carlos Copes, cuando se le encendió la llama del deseo por aprender esa danza, que hasta allí la consideraba como "un cosa de viejos". Se dio cuenta entonces del potencial que tenía el tango como espectáculo e inspiración artística. Entonces decidió viajar seguido a Buenos Aires para tomar clases con todo tipo de maestros. Incluso encontró a Demián García a quien había visto en algunos videos, incluso, le habló para formar una pareja artística. Ensayaron junto, fueron contratados para una gira por España y luego actuaron con la orquesta Color Tango.
 
 
 
@@ -46,5 +46,5 @@ Los podemos ver a Roberto y Laura en La semana de la Moda en Milan, con su famos
 Y acá pueden verlos bailando en Baltimore. Lo hacen al compás del tango de Francini, Stamponi y José María Contursi:* Junto a tu corazón*, por Di Sarli-Podestá.
 
 - [189 reproducciones ](https://www.youtube.com/watch?v=VcKD-Tu7vYg)
-- [    ![](https://i1.ytimg.com/vi/4mIhpEs3tUg/default.jpg)     3:17   Roberto Herrera & Laura Legazcue ](https://www.youtube.com/watch?v=4mIhpEs3tUg)
+- [    ![](/tangos-al-bardo/images/62868535e7c2.jpg)     3:17   Roberto Herrera & Laura Legazcue ](https://www.youtube.com/watch?v=4mIhpEs3tUg)
 -  [Roberto Herrera & Laura Legazcue performing at Robin Thomas's Nocturne in NYC, March 15, 2014    de ** Tango Element**   308 reproducciones](https://www.youtube.com/watch?v=4mIhpEs3tUg)

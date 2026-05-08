@@ -10,7 +10,7 @@ El estío castiga con rigor y el cuerpo pide playa y mar. Al fin de cuentas uno 
 
 Y como decía el excelso Carlos Bahr en: **Cuando talla el bandoneón**, que compuso con Armando Pontier:
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj6G5uz5obEIoNfoEFYZHcEhf2Iwyu14JL9O887ETRPbekwxCBdt5GQfG3Web9K81NP6EXuB8R24BPdeb1CJElvW7V-0o5khlQeZdca6zqKMWw5qmEd3PDuALuxxtuU5qMFhZjUm0il5yT_/s320/Mili.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj6G5uz5obEIoNfoEFYZHcEhf2Iwyu14JL9O887ETRPbekwxCBdt5GQfG3Web9K81NP6EXuB8R24BPdeb1CJElvW7V-0o5khlQeZdca6zqKMWw5qmEd3PDuALuxxtuU5qMFhZjUm0il5yT_/s1600/Mili.jpg)*Yo llevo el tango en el alma, *
+[![](/tangos-al-bardo/images/14fc2785506f.jpg)](/tangos-al-bardo/images/e4d477516b6d.jpg)*Yo llevo el tango en el alma, *
 *me arrebato cuando llama*
 *de algún fueye el rezongar.*
 *Porque los pies se me van*

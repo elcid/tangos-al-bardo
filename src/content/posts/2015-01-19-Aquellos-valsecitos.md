@@ -35,7 +35,7 @@ Uno de aquellos inolvidables temas, era *Una lágrima*, que se lo escuché por p
 
 El susodicho valsecito le pertenece al bandoneonista de la guardia vieja José Rebolini, un hombre de Boedo que compaginó su actividad musical con el oficio de herrero, de los tantos que había en aquella Buenos Aires, mezcla de ciudad y campo. Por eso lo llamaban también *Pepe El herrero*, y dirigió sus propios conjuntos, a la vez que alternó en otros como el del violinista Eugenio Nóbile. Pero siempre estuvo muy aferrado a su barrio y le compuso un tango a su equipo de siempre: San Lorenzo, dedicado al campeón de 1927, con letra de Carlos Pesce, que se anotaba en todas...
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiKmxrBjCSl878AaN2QGUnne_YsIpFb2UDa3S82_cjUtne8zJJaruEeFiZ5SfxplU-niUAzgA_H33mLECqkGKLzKf2XImQ5n4U5nkwJIXPYeedHVVXeo37-kxNdeHVn2fi9IzgsNLl655E/s1600/milonga+porte%C3%B1a+robertogatti.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiKmxrBjCSl878AaN2QGUnne_YsIpFb2UDa3S82_cjUtne8zJJaruEeFiZ5SfxplU-niUAzgA_H33mLECqkGKLzKf2XImQ5n4U5nkwJIXPYeedHVVXeo37-kxNdeHVn2fi9IzgsNLl655E/s1600/milonga+porte%C3%B1a+robertogatti.jpg) Bailando valsecitos en los patios, como lo pinta Roberto Gatti
+ [![](/tangos-al-bardo/images/c1655bf0cf87.jpg)](/tangos-al-bardo/images/c1655bf0cf87.jpg) Bailando valsecitos en los patios, como lo pinta Roberto Gatti
 
 Las orquestas de Firpo, Canaro, Fresedo o Pacho, al igual que Corsini en los temas con letra, le grabaron algunos de sus temas. **Una lágrima** fue llevado al disco por Fresedo, Ciriaco Ortiz con su trío, o Juan Cambareri. Libertad Lamarque lo grabó, con la letra que le pertenece a Juan Durante.
 

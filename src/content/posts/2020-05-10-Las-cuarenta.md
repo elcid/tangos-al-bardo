@@ -37,7 +37,7 @@ y si la murga se ríe, hay que saberse reír,
 no pensar ni equivocado... ¡Para qué... si igual se vive!
 ¡Y además corrés el riesgo de que te bauticen gil...!
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjl2V3jvBqStY0DvXLUiVof52qOh9VQTB6bYUaCtv2FPDTfoeSAuyBMpXDjv8qu1Rrr6PfEdJ53gMY9nsYPKctguW1kvrPik29CCItU3LVkylXAUebfj9XB3TXqCZ5EtQvaBQd64nR43H9i/s200/GorrindoA-1041744-1431371745-9307.jpeg.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjl2V3jvBqStY0DvXLUiVof52qOh9VQTB6bYUaCtv2FPDTfoeSAuyBMpXDjv8qu1Rrr6PfEdJ53gMY9nsYPKctguW1kvrPik29CCItU3LVkylXAUebfj9XB3TXqCZ5EtQvaBQd64nR43H9i/s1600/GorrindoA-1041744-1431371745-9307.jpeg.jpg) Froilán Francisco Gorrindo
+ [![](/tangos-al-bardo/images/8e18c649fc6c.jpg)](/tangos-al-bardo/images/c69e4e9c6c8b.jpg) Froilán Francisco Gorrindo
 En el recreo mental de las situaciones vividas, Gorrindo, exhibe sus dilemas morales y emocionales. La sentimentalidad del tango, deja paso a las aguas turbulentas en que nos bañamos tantas veces en nuestras vidas. Los exhaustos propósitos, sin postizos ni artificios vacuos, en el apasionado aprendizaje, emergen con la ternura del descreído y el inventario de asombros.
 
 La vez que quise ser bueno en la cara se me rieron,

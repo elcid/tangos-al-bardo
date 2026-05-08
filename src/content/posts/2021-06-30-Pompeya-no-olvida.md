@@ -10,7 +10,7 @@ Un mediodía del mes de octubre de 1998, encontró al poeta Alejandro Szwarcman,
 
 El poema refería a un niño que jugaba en las calles y era testigo del secuestro de una niña por parte del ejército, a quién luego despojarían de su identidad (seguramente a consecuencia de asesinar a sus padres), para entregarla a otra familia ¨adoptiva¨, que le negaría su verdadera historia durante toda la vida.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi-hjscwidbXHzl0vAzzqnACaFL1mh8h91s5QbS8v9zboMlw0-aO51s0jxkLj9k_gkrnaVAH2iZKY9BPmM4w0uPJYYM0Gs3eS5MZRyt52beG1u4vTOukdwxfklZXLr3h40tKqkRZZ2pUE6B/w400-h276/Patri%252C+schwartzmanimage11-1566x1080.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi-hjscwidbXHzl0vAzzqnACaFL1mh8h91s5QbS8v9zboMlw0-aO51s0jxkLj9k_gkrnaVAH2iZKY9BPmM4w0uPJYYM0Gs3eS5MZRyt52beG1u4vTOukdwxfklZXLr3h40tKqkRZZ2pUE6B/s1566/Patri%252C+schwartzmanimage11-1566x1080.jpg)Patricia Barone preparada para cantor el tema acompañda por sus autores
+[![](/tangos-al-bardo/images/1459f5515dc2.jpg)](/tangos-al-bardo/images/c50b38c3547f.jpg)Patricia Barone preparada para cantor el tema acompañda por sus autores
 
 Pasados los años, aquel niño ya adulto, la evoca y le asegura que "*su barrio, no la olvida"* y que además él conserva la esperanza de que descubra su verdadera historia, ya que su "abuela la sigue buscando".Alejandro Szwarcman le acercó esta letra a Javier González y le insistió para que la musicalizara con premura, con el objeto de presentarla en el Concurso de Tangos Inéditos organizado por SADAIC, ese año.
 

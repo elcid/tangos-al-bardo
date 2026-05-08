@@ -30,7 +30,7 @@ A los pocos días, el Tigre del bandoneón se presentó en casa de los De Caro a
 
 Pero el chico ya tenía inoculado el virus tanguero y a los pocos días aceptó la oferta de Arolas, conformando un cuarteto con el Tigre, Rizzuti y Tuegols. Esto le valió la expulsión del hogar paterno, pese al llanto de su madre y poco después el cuarteto se transformaría en orquesta, partiendo hacia Montevideo para hacer galas y carnavales.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhDVibbS0f0THoo7tc4RlbCTtTitGLsj43e3QQja8I6PE9Iwm7SvRDzzOU91ID5xiz99pzPCPrSfYoR7cVIwRhJ8SERb14tHnNWdEPsyFUPdmdGzbMBTDWoNhT5OtZWcenDhjKC_t095XgBnNvRsddPi3mmEK-WaZLFtaTmO_nllfkasj8xEceYF5k_5A/w400-h290/Decarisimo308775201_1516958568750593_1256397080805300438_n.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhDVibbS0f0THoo7tc4RlbCTtTitGLsj43e3QQja8I6PE9Iwm7SvRDzzOU91ID5xiz99pzPCPrSfYoR7cVIwRhJ8SERb14tHnNWdEPsyFUPdmdGzbMBTDWoNhT5OtZWcenDhjKC_t095XgBnNvRsddPi3mmEK-WaZLFtaTmO_nllfkasj8xEceYF5k_5A/s720/Decarisimo308775201_1516958568750593_1256397080805300438_n.jpg)De Caro, su cantor Luis Díaz, el sexteto, y Anita Palmero, Ada Falcón y Libertad Lamarque
+[![](/tangos-al-bardo/images/2e6e2e505928.jpg)](/tangos-al-bardo/images/cc00bc6741c8.jpg)De Caro, su cantor Luis Díaz, el sexteto, y Anita Palmero, Ada Falcón y Libertad Lamarque
 
 Julio De Caro sería líder de su generación y creó, tal vez sin pensarlo, una escuela de intérpretes que perdura en el tiempo. Fue el umbral que separa el pasado del futuro, cuando el tango había quedado encallado en una zona de sombras. No en vano Piazzolla le dedicó su **Decarísimo**.Y hay varios tangos más dedicados a él. Pero la presencia de su hermano Francisco, pianista excepcional, influyó sobremanera en la elección de los músicos y el diseño orquestal.
 
@@ -38,7 +38,7 @@ Aunque su figura haya estado siempre a la sombra de su hermano, la conducción p
 
 Entre tanto creó pagínas hermosas y revolucionarias como **Fores negras, Loca bohemia **o **Sueño azul**. Ambos renegaron del burdo disfraz de gaucho con que vestían al tango en Europa y promovieron el riguroso smoking para la reclamada jerarquía de la música porteña. Así llegaron al viejo continente, ensanchando el horizonte espiritual del tango. Frecuentaron amistades como el Duque de Windsor, el barón Rotschild, Toscanini y otors famosos, tocando en grandes escenarios europeos.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg6JlQjNpr-dVU1BZKk5VIYI6Ebpx3U9-XbvbDhNjGD6NksDeUwKxVEx4e-FNAD3ZlrWIg_L4Nd8Q4d8EqMALq0EKj_5A8t1LeUVAGbxaD_-2DTmEUMtlMifeEgJi7n0Gn3Rr0q9tIPfo4YebPGIXU8Xjz6svnp7yfTpxHRBFaP4_apu0Jfo0Dfbpd_Ig/w400-h261/Julio%20de%20Caro%20Le%20Journal%2012%20junio%201931.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg6JlQjNpr-dVU1BZKk5VIYI6Ebpx3U9-XbvbDhNjGD6NksDeUwKxVEx4e-FNAD3ZlrWIg_L4Nd8Q4d8EqMALq0EKj_5A8t1LeUVAGbxaD_-2DTmEUMtlMifeEgJi7n0Gn3Rr0q9tIPfo4YebPGIXU8Xjz6svnp7yfTpxHRBFaP4_apu0Jfo0Dfbpd_Ig/s320/Julio%20de%20Caro%20Le%20Journal%2012%20junio%201931.jpg)Le Journal , 12 de julio de 1931
+[![](/tangos-al-bardo/images/dc7232f8bfdc.jpg)](/tangos-al-bardo/images/e89b5d9db959.jpg)Le Journal , 12 de julio de 1931
 
 El legendario violín-corneta de Julio se lo traían expresamente de Estados Unidos (Pepino Bonano se le había adelantado en su ejecución) y con el tiempo, su uso le acarrearía una deformación en las cuerdas vocales que lo perseguiría hasta el final. Lo comprobé la mañana que lo llevé a mi programa radial, en donde me regaló su libro autobiográfico, y le costaba mucho articular frases.
 
@@ -48,7 +48,7 @@ Cuando Petrucelli dejó el sexteto para casarse e irse a Mar del Plata, Julio fu
 
 De Caro consiguió convencer al joven y se lo llevó a su hermano Francisco para que lo preparara. Así nació la yunta de fueyes legendaria del tango: Maffia-Laurenz.. Los palcos del Chantecler se llenaban de fanáticos para ver a los dos bandononistas en acción, en aquel gran conjunto de los años veinte.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhfwki2f7K0BmzCfvLTAja0YiYrpb-0xFScKaoiNANC5tf0QpGEOTRuSYetmX72bbqkPq0yZbT9myXXzXUmBAcBG2ZBQDioexbpN7yKdVlmTvd1nHmBjQKusjBw8ow0i9-DmLjurneR75LCUxST0CvGu0oDTy4d-P3ROwf-4wgB59MYy-JeJcNKkSskAw/w300-h400/La%20orquesta%20de%20Julio%20de%20caro%20en%20el%20barco.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhfwki2f7K0BmzCfvLTAja0YiYrpb-0xFScKaoiNANC5tf0QpGEOTRuSYetmX72bbqkPq0yZbT9myXXzXUmBAcBG2ZBQDioexbpN7yKdVlmTvd1nHmBjQKusjBw8ow0i9-DmLjurneR75LCUxST0CvGu0oDTy4d-P3ROwf-4wgB59MYy-JeJcNKkSskAw/s960/La%20orquesta%20de%20Julio%20de%20caro%20en%20el%20barco.jpg)Los componentes de la orquesta en el barco rumbo a Europa
+[![](/tangos-al-bardo/images/9405639cd74f.jpg)](/tangos-al-bardo/images/0c4b90d02855.jpg)Los componentes de la orquesta en el barco rumbo a Europa
 
 Julio De Caro fue una simbiosis que albergó al músico, director y compositor. Compuso temas notables, que superan el paso de los años: **Tiny **(con Maffia), **Mala junta, Orgullo criollo** (ambos con Laurenz), **El monito, Boedo, **, **La rayuela, Tierra querida, Guardia, Copacabana, El arranque, Chiclana, Todo corazón** y otros. En 1937, a raíz de una actuación en el Cine-Teatro Ópera, se reencontró con su padre. Había ido con la madre a verlo.
 

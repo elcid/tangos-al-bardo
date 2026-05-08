@@ -10,7 +10,7 @@ Para dar comienzo a esta nota, me remito a las versiones documentales publicadas
 
 Lo documentó en varios capítulos semanales y ahí pudimos descubrir numerosos elementos biográficos de Juan Domingo Perón, con testimonios recogidos directa y minuciosamente por Martínez, con muchas horas de grabación, en entrevistas con diferentes personalidades que mantuvieron relación directa con el ex presidente.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhCQK5NNT7QPcY724zMAX6Dv1u4ytyu8Q3SaWFl4COUBN5KUoyvosuHLNKr38tJlDuay-O-ly-LbIWJlTSx67IuDSjaxv0AQ1yNlwboi1mwqAolsb9P2tjdaCyizS5jA7iAUaKMPa1cZFdg7NZF0YX7ddlx-LTNsEs4XzzZCJ084SXNqh18fGlIkOaTVA/w394-h400/libertad_y_peron.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhCQK5NNT7QPcY724zMAX6Dv1u4ytyu8Q3SaWFl4COUBN5KUoyvosuHLNKr38tJlDuay-O-ly-LbIWJlTSx67IuDSjaxv0AQ1yNlwboi1mwqAolsb9P2tjdaCyizS5jA7iAUaKMPa1cZFdg7NZF0YX7ddlx-LTNsEs4XzzZCJ084SXNqh18fGlIkOaTVA/s269/libertad_y_peron.jpg)Perón está con Libertad Lamarque, José Gobello y un guitarrista
+[![](/tangos-al-bardo/images/24f9cbf2b8f5.jpg)](/tangos-al-bardo/images/301b638ec182.jpg)Perón está con Libertad Lamarque, José Gobello y un guitarrista
 
 Como en este caso se trata del tema que tratamos en este espacio, reproduzco la parte en que Perón habla del tango y desarrolla esta conversación:
 
@@ -24,7 +24,7 @@ La censura siempre estuvo persiguiendo al tango, durante muchos años.Incluso Vi
 
 Fue durante la dictadura de Pedro Pablo Ramírez, junto con Monseñor Franceschi quienes también persiguieron con mano de hierro a los versos del tango que no tuvieran las palabras en correcto castellano. Perón, que fue Ministro de Trabajo y Previsión, durante ese gobierno militar de Edelmiro Farrel, sucesor de Ramírez., mantuvo una reunión con directivos de SADAIC, con algunos de los cuales mantenía amistad, que le pidieron una entrevista por medio de Blas Lomuto, para tratar el tema de la censura.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgpC0F5cI4lIsh10LFlGzPz1wr6g9xIOxYBXR1CwsVojpYvhUu4sFwuVAbDN81OuZXj_1hiESHyZ-18WaiGS_S7s6nlW5vUSogCsHie_1n2n1iPn5L0VgQLWBPtXkKDdQXXPlDsyLYV1WUeupYSEcHEisW4T6GB_oIKiV3_q_m5jXAEKMu3s6jQDDlNmQ/w400-h248/20150327105514_CMS-1332801639463-DISCEPOLO-Y-COMITIVA-DE-SADAIC-VISITANDO-A-PERON.JPG)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgpC0F5cI4lIsh10LFlGzPz1wr6g9xIOxYBXR1CwsVojpYvhUu4sFwuVAbDN81OuZXj_1hiESHyZ-18WaiGS_S7s6nlW5vUSogCsHie_1n2n1iPn5L0VgQLWBPtXkKDdQXXPlDsyLYV1WUeupYSEcHEisW4T6GB_oIKiV3_q_m5jXAEKMu3s6jQDDlNmQ/s620/20150327105514_CMS-1332801639463-DISCEPOLO-Y-COMITIVA-DE-SADAIC-VISITANDO-A-PERON.JPG) Discépolo, Avilés, Lomuto, Filiberto,Manzi, Canaro, Razzano y otros con Perón.
+[![](/tangos-al-bardo/images/543cda752b86.jpg)](/tangos-al-bardo/images/b9251e189e43.jpg) Discépolo, Avilés, Lomuto, Filiberto,Manzi, Canaro, Razzano y otros con Perón.
 
 Siendo Presidente de la Nación el 25 de marzo de 1949, Perón volvió a recibir a la gente de SADAIC y firmó el decreto devolviéndole al Lunfardo su carácter propular. En la imagen se ve a Filiberto, Canaro, José María Contursi, Manzi, Lomuto, Avilés, Mario Benard y otros personajes del tango, con el presidente argentino. En la reunión los recibió saludando a Alberto Vaccareza: "*¡Hola Don Alberto, me enteré que el otro día lo afanaron en el bondi.*..". Y junto a las carcajadas , los representantes de SADAIC entendieron que ya estaba cerrado el acuerdo...
 

@@ -35,7 +35,7 @@ te ha de hacer sufrir,,,
 Tal vez una noche
 llorarás por mí.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjzH4rJ2U6pXJDvSF-u45GebkLIvMYxPgZ0SZ_SZ0qXbuM1vFMcXMDiMPbKcdV9T_myq_DdL76E4lJKYCOEeNpmsKarUP7DonbYEvvSGyKG99Mz3SvTGb_OZyT5NF0GYH8Pgeu2jjG4-p34/s400/Montero%252C+Pugliese+y+Maciel+en+la+Adlon.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjzH4rJ2U6pXJDvSF-u45GebkLIvMYxPgZ0SZ_SZ0qXbuM1vFMcXMDiMPbKcdV9T_myq_DdL76E4lJKYCOEeNpmsKarUP7DonbYEvvSGyKG99Mz3SvTGb_OZyT5NF0GYH8Pgeu2jjG4-p34/s1600/Montero%252C+Pugliese+y+Maciel+en+la+Adlon.jpg) Montero, Pugliese y Maciel con amigos en la Confitería Adlon
+ [![](/tangos-al-bardo/images/790e82ed4fd4.jpg)](/tangos-al-bardo/images/888e4ebeb725.jpg) Montero, Pugliese y Maciel con amigos en la Confitería Adlon
 El mensaje encierra una dosis de ternura que el dolor del alejamiento de la persona amada, no logra borrar. La persona sabe que la soledad de sus insomnios se consumirán en el pensamiento del amor roto, aunque el tiempo todo lo cura. Los recuerdos idealizados por la nostalgia. El sol negro de la melancolía lo lleva a seguir describiendo esos lugares familiares bajo la luz de la extrañeza. Y piensa dolido en un futuro que no lo tendrá de protagonista en esta historia de amor.
 
 Otros horizontes ansían tus ojos

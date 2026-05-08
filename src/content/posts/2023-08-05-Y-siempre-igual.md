@@ -12,7 +12,7 @@ Venían los compromisos, los cambios de la soltería a la independencia de los p
 
 Por eso me gusta este tango. Por sus versos que esparcen una imagen evocadora y el paisaje musical que los acompaña. Luis Caruso es el poeta que revive aquellas percepciones iniciales, el fervor de lo vivido en conjunto y cómo aquellos momentos compartidos se fueron desvaneciendo en la nada. La ciudad nocturna y bullanguera contempla a los jóvenes yendo tan apurados que no tienen tiempo de ver su trayectoria.
 
-[![](https://blogger.googleusercontent.com/img/a/AVvXsEhPrVjyRk4vmEjcdbPZaSzXnBF2J3JbEeUChDbe08pqGC-7XhXuDfB9xsB6F0Bqf3ukXxhLn8w66VVMiwhHA8_ZLmWYoZFrFJJPT6IpmEY62VBMHOIPuY_PzYfZzzglC-gBjmxKn3046-HdyD8-_oO9aj6Gk7tdkJqlbWfLyJIsiwYmZ6RzYvcja5fvAJdy=w213-h320)](https://blogger.googleusercontent.com/img/a/AVvXsEhPrVjyRk4vmEjcdbPZaSzXnBF2J3JbEeUChDbe08pqGC-7XhXuDfB9xsB6F0Bqf3ukXxhLn8w66VVMiwhHA8_ZLmWYoZFrFJJPT6IpmEY62VBMHOIPuY_PzYfZzzglC-gBjmxKn3046-HdyD8-_oO9aj6Gk7tdkJqlbWfLyJIsiwYmZ6RzYvcja5fvAJdy)Luis Rafael Caruso
+[![](/tangos-al-bardo/images/5f9bf367fb3c.jpg)](https://blogger.googleusercontent.com/img/a/AVvXsEhPrVjyRk4vmEjcdbPZaSzXnBF2J3JbEeUChDbe08pqGC-7XhXuDfB9xsB6F0Bqf3ukXxhLn8w66VVMiwhHA8_ZLmWYoZFrFJJPT6IpmEY62VBMHOIPuY_PzYfZzzglC-gBjmxKn3046-HdyD8-_oO9aj6Gk7tdkJqlbWfLyJIsiwYmZ6RzYvcja5fvAJdy)Luis Rafael Caruso
 
 Y siempre igual, con sus luces mortecinas.Un cigarrillo y café para esperar
 Ruidos de dados, palabras con sordina

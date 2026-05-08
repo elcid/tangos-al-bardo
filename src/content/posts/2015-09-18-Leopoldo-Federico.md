@@ -22,7 +22,7 @@ Hace años Horacio Ferrer le hizo una nota muy linda que lo definía como músic
 
 -Y a la semana siguiente, por su intervención, toqué *Tango del ángel* y *Mala junta*, integrada mi orquesta con los músicos de las orquestas de Pichuco y Pontier... ¡Qué grande!
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjYBN0U8a0i0n-Fj25QU8KO6xCD_lruCZ2FQ8S52pkrB7S0pIKPjty5kfB2xsJ0U12xXcDQRYAXKWZCoIPi1DI8b-N1ews4Yix-Ra5NS2rlY_4Xc8nMLcE8Rqxts4jVzNxMhCvs0V3AjKw/s1600/Fede-Ferrer.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjYBN0U8a0i0n-Fj25QU8KO6xCD_lruCZ2FQ8S52pkrB7S0pIKPjty5kfB2xsJ0U12xXcDQRYAXKWZCoIPi1DI8b-N1ews4Yix-Ra5NS2rlY_4Xc8nMLcE8Rqxts4jVzNxMhCvs0V3AjKw/s1600/Fede-Ferrer.jpg) Horacio Ferrer y Leopoldo Federico
+ [![](/tangos-al-bardo/images/e3ac64cefcb4.jpg)](/tangos-al-bardo/images/e3ac64cefcb4.jpg) Horacio Ferrer y Leopoldo Federico
 
 -¿Te alcanzan las teclas del bandoneón?
 -Son las justas y perfectas. Por lo pronto no estoy de acuerdo con los que dicen que el que construyó el bandoneón tiró el puñado de botones al azar.
@@ -36,7 +36,7 @@ Hace años Horacio Ferrer le hizo una nota muy linda que lo definía como músic
 -En realidad, creo que puedo elegir sin mayores dudas, porque siendo director de semejante orquesta, de acuerdo a cada tango repartiría los solos. En unos casos, por ejemplo, lo elegiría a Gosis, en otros a Di Sarli, eso hablando de pianistas ¿comprendés?
 - Clarísimo.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjn0QSzhOKl20uP66ps63bhnoxvEP2r7NkObpSFcE0XEZ2mAxB_SuUcWG0OrsgxCeUx4NQlDPlHJBF2h5JnSaQJFZepKHFF0TIUbk4tLGOSd9vOOQAa7cCdrhcy4YvFrbzOLtIDcpayZXs/s400/img045.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjn0QSzhOKl20uP66ps63bhnoxvEP2r7NkObpSFcE0XEZ2mAxB_SuUcWG0OrsgxCeUx4NQlDPlHJBF2h5JnSaQJFZepKHFF0TIUbk4tLGOSd9vOOQAa7cCdrhcy4YvFrbzOLtIDcpayZXs/s1600/img045.jpg) El Octeto de Piazzolla: Stampone, Baralis, Federico, Bragato, Nicolini, Malvicino. sentados: Piazzolla y Francini
+ [![](/tangos-al-bardo/images/a68533607414.jpg)](/tangos-al-bardo/images/9016058402da.jpg) El Octeto de Piazzolla: Stampone, Baralis, Federico, Bragato, Nicolini, Malvicino. sentados: Piazzolla y Francini
 
 -Entonces, anotá. Bandoneones: (Aníbal Troilo (talento, calidad y técnica exquisita); Ástor Piazzolla (excepcional y con una calentura que contagia); Abelardo Alfonsín (que es la perfección); Antonio Príncipe (tan admirable seguidor de un primero es, que se equivoca cuando vos te equivocás); *Pajarito* García (flor de bandoneón); Osvaldo Rizzo "Pichuquito" (un músico que escucha cualquier cosa, una tos, un insulto, y sabe en qué tono está), y dos maestrazos: Antonio Ríos y Roberto Di Filippo. ¿Son muchos?
 

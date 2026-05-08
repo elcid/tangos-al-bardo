@@ -31,11 +31,11 @@ A mí me encantan estos análisis de la gente que sabe música y por eso lo trai
 
 - Es así, en rigor a la verdad gusta este tango, especialmente en Colombia, desconozco el misterio, pero si hubiera podido detectar esas cosas habría encaminado mejor todo el repertorio. Esto se terminó casi en los estudios de grabación por parte de Francisco Yoni, que hizo la letra y Alfredo De Angelis la música, con alguna sugerencia de Luisito Stazo, que era el primer fueye. Después, nuevamente en Colombia, lo tuve que repetir con Leopoldo Federico para esa gira que organizó Muni Rivero con su *Viejo Almacén*. La gente recordaba este tema y me lo solicitaba.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjgQiDfnPN2icfe2cY0Wskv6cXzF0xnPPR0AcUv9r1rduZIKMe1CVVoG5qayELknzhtQ3pxx0iZdCd1SGt2HcjUqntQVsNgBjHFF4_d1t8pqMlq5r3pRjKZRMgyGWcNiGAvuZG83yLjkn8/s320/mancinicalo.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjgQiDfnPN2icfe2cY0Wskv6cXzF0xnPPR0AcUv9r1rduZIKMe1CVVoG5qayELknzhtQ3pxx0iZdCd1SGt2HcjUqntQVsNgBjHFF4_d1t8pqMlq5r3pRjKZRMgyGWcNiGAvuZG83yLjkn8/s1600/mancinicalo.jpg) En la TV de Rio de Janeiro con Caló y Raúl Garcés
+ [![](/tangos-al-bardo/images/89253860aa17.jpg)](/tangos-al-bardo/images/1a35f0c69d0c.jpg) En la TV de Rio de Janeiro con Caló y Raúl Garcés
 
 Lo cierto es que Roberto Mancini fue un excelente cantor, al que vi ganar un concurso de vocalistas en el Parque Patricios siendo un pibe. Luego lo sacaron de otro concurso radial y se lo llevó Miguel Caló a su orquesta, viaja a Brasil con ellos y graba varios temas. Posteriormente lo incorpora Alfredo De Angelis a su conjunto, haciendo yunta con Juan Carlos Godoy. En Colombia, durante esa gira, se enamora de una bella colombiana y se casa, radicándose por un tiempo largo en ese país. A la vuelta actúa en televisión, con Armando Cupo, con Jorge Dragone, realiza varias giras y graba con todos ellos.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgbX2xpdG6n6FPHa1h4rTKYLMRh5kPSL8KkaHto7xfFGwjhtW-6xsSgQxU4m8sA2NHtqP56zCAt6vbaFH8tbjSd3lndA9VmsPe4SQ17NeE6bZkSuR2PSNmMJcSvv_qT8GhMAm0fBgkwZqs/s320/YO.JPG)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgbX2xpdG6n6FPHa1h4rTKYLMRh5kPSL8KkaHto7xfFGwjhtW-6xsSgQxU4m8sA2NHtqP56zCAt6vbaFH8tbjSd3lndA9VmsPe4SQ17NeE6bZkSuR2PSNmMJcSvv_qT8GhMAm0fBgkwZqs/s1600/YO.JPG) En casa de Morteo: Mancini, yo, Jorge Bocacci y Fabián Bertero
+ [![](/tangos-al-bardo/images/82c102be816f.jpg)](/tangos-al-bardo/images/0fd37bfa08ff.jpg) En casa de Morteo: Mancini, yo, Jorge Bocacci y Fabián Bertero
 
 Hoy nos acompaña precisamente con este tango que analizamos especialmente y del que realiza toda u gran creación: **Son cosas mías**.
 

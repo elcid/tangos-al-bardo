@@ -10,7 +10,7 @@ Una y otra vez me interesa volver con este poeta, Francisco Gorrindo, que dejó 
 
 ** Paciencia**, por ejemplo, es un tango de 1937, que lleva música de Juan D'Arienzo y la estocada musical del Rey del compás opaca un poco el laberinto emocional del poema. Aunque, claro, como milonguero, ponémelo una y otra vez por D'Arienzo-Carbel o D'Arienzo-Echagüe, que salgo disparado a la pista para incrustarme en esa maraña musical que te envuelve y lo disfrutás como loco.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg8nW1Q5Txr7x1gSMZo9y4Eq5Rzmc8MvrFC0tiQl27eOh1_jTzmxwSc3d0eXfSImAsLWsBS8aApaq9ew_khOJnlYsA6T-5Xm4T_8BzlfgZ3bqiRffYGEgxJRhzEhy1SNSG-SaNX5Mq8s2VyG9IH3opHGseblvQtD-QfZdetnw6GwFukXaIQBKyu0s93AA/s320/Gorindo1569718462539.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg8nW1Q5Txr7x1gSMZo9y4Eq5Rzmc8MvrFC0tiQl27eOh1_jTzmxwSc3d0eXfSImAsLWsBS8aApaq9ew_khOJnlYsA6T-5Xm4T_8BzlfgZ3bqiRffYGEgxJRhzEhy1SNSG-SaNX5Mq8s2VyG9IH3opHGseblvQtD-QfZdetnw6GwFukXaIQBKyu0s93AA/s528/Gorindo1569718462539.jpg)Francisco Gorrindo
+[![](/tangos-al-bardo/images/9c4b2db0ad8c.jpg)](/tangos-al-bardo/images/24dff5cb8a16.jpg)Francisco Gorrindo
 
 Pero vale la pena detenernos en esos versos que señalan los distintos caminos que emprende la pareja luego del reencuentro fugaz, que prometía mucho y se fue desvaneciendo entre los ecos del tiempo acontecido. Vemos como se inicia el viaje hacia la desesperanza y los sueños comunes averiados para siempre. En el reencuentro flotan los recuerdos de cuando y cómo hilvanaron su alianza....
 

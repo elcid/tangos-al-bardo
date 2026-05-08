@@ -9,7 +9,7 @@ Hace poco, en una de esas bibliotecas de casonas porteñas que son una especie d
 
 Hablar de tango es complejo simplemente porque ni siquiera hay unanimidad (ni cerca de ello), sobre qué es y mucho menos qué significa.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjrzrqrcS2WnvHJOFxQfRX3emciUSqpsEvKyi4L9G4edzAfgJn_DstVFYE1-Xy0azjKmOlw4qGPuUCWMYqb8pFoVn20tJ28GbLTvleFzg1UBzsltUcc9RFnvhNMvcNa8RqmHJmZgVgUafQNPe5P_RapQht4saxS86aWMXcw9Cus7bZu3HDi1pgauBg6kQ/w400-h280/presentando-al-pucc81blico.webp)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjrzrqrcS2WnvHJOFxQfRX3emciUSqpsEvKyi4L9G4edzAfgJn_DstVFYE1-Xy0azjKmOlw4qGPuUCWMYqb8pFoVn20tJ28GbLTvleFzg1UBzsltUcc9RFnvhNMvcNa8RqmHJmZgVgUafQNPe5P_RapQht4saxS86aWMXcw9Cus7bZu3HDi1pgauBg6kQ/s427/presentando-al-pucc81blico.webp)Leonel Ángel Mitre presentando su cinefilia tanguera
+[![](/tangos-al-bardo/images/2302c14fa5b0.webp)](/tangos-al-bardo/images/fd132f658da0.webp)Leonel Ángel Mitre presentando su cinefilia tanguera
 
 Esto quiere decir que para algunos el tango es un tipo de expresión musical, para otros una danza, para muchos una representación cultural de un país, para otros un espacio social de encuentro cosmopolita, un observador activo del devenir de los tiempos turbulentos o pacíficos de una cultura, un estilo de vida, un trabajo, un pasatiempo, un amor, un amigo, y muchas versiones harto analizadas que al final sólo dicen que intentar analizar no es más que tomar en una noche oscura el camino por el que se llega al callejón sin salida.
 

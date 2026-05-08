@@ -18,12 +18,12 @@ Horacio Salgán -de ancestros negros, como él mismo afirma-, debutó con su pri
 
 -*Soy, como se dice normalmente, un tipo afortunado. Pienso que gran parte de mi éxito se lo debo a mis colegas. Desde siempre, desde cuando la mayoría de las mesas de los los lugares en que actuaba, estaban ocupadas por músicos. Mi orquesta no tenía barra de seguidores, pero la presencia de músicos de tango, sí que era gratificante para mí y mis compañeros de la orquesta*.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgZGwfSvAl8-iM4odpr3XSNVEXyjHuPWVnnHrrJ763569YLsfIfE9c99oTbGP4iV_wBIa7J1AYNcYm24Srt9HGtk59PrKj-fphBCkvPUMScKM5LYbPyUZvRg__jpen5kYlb5MSwVnYWG5I3/s400/HORACIO_SALGAN_Y_SU_ORQ.JPG)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgZGwfSvAl8-iM4odpr3XSNVEXyjHuPWVnnHrrJ763569YLsfIfE9c99oTbGP4iV_wBIa7J1AYNcYm24Srt9HGtk59PrKj-fphBCkvPUMScKM5LYbPyUZvRg__jpen5kYlb5MSwVnYWG5I3/s1600/HORACIO_SALGAN_Y_SU_ORQ.JPG) Horacio Salgán, su orquesta y el cantor Ángel Díaz., junto a Leopoldo Federico
+ [![](/tangos-al-bardo/images/ddb5d6a2017c.jpg)](/tangos-al-bardo/images/53791a2af10f.jpg) Horacio Salgán, su orquesta y el cantor Ángel Díaz., junto a Leopoldo Federico
 Tuve la enorme suerte de verlo con su conjunto en aquella velada maravillosa de 1972 en el Teatro Colón donde actuó con su orquesta. Y también ocuparon el escenario las de Aníbal Troilo, Florindo Sassone, el Conjunto 9 de Ástor Piazzolla, Edmundo Rivero, Roberto Goyeneche, el Sexteto Tango. El espectáculo se desarrolló bajo la conducción y presentación de mi entrañable amigo y compañero: Antonio Carrizo, fallecido hace poco.
 
 En la presentación que les muestro al final, todo fue realizado con el asesoramiento del maestro que prefirió verlo desde su casa por televisión, por el miedo a la emoción que pudiera suscitarle esta mirada hacia atrás. Su hijo César lo reemplazó en el piano y los integrantes de la orquesta son citados al final del homenaje que produjo Gustavo Mozzi.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgdJa5fhdEKU2-FCKveyb3jCQvEzf0CC9NGnBHvcdhsP5W2JbmArFFAM7oFYbMPP39uciYR_9LisSsYq3ScN4OK0Hvs5pb6UTxqoee1PMT9H6v4Aw3wQlqQOIF49pagVdrvOi8hs8Mdk_Kf/s400/El_Quinteto_Real.JPG)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgdJa5fhdEKU2-FCKveyb3jCQvEzf0CC9NGnBHvcdhsP5W2JbmArFFAM7oFYbMPP39uciYR_9LisSsYq3ScN4OK0Hvs5pb6UTxqoee1PMT9H6v4Aw3wQlqQOIF49pagVdrvOi8hs8Mdk_Kf/s1600/El_Quinteto_Real.JPG) Quinteto Real: Salgán, Laurenz, Francini, De Lío y Kicho Díaz
+ [![](/tangos-al-bardo/images/5092fbd7612e.jpg)](/tangos-al-bardo/images/b35daecebf6c.jpg) Quinteto Real: Salgán, Laurenz, Francini, De Lío y Kicho Díaz
 
 Don Horacio Salgán cumplirá 100 años el próximo 15 de junio y nada mejor que recordar este homenaje a uno de los grandes creadores que ha tenido el tango en su historia.
 

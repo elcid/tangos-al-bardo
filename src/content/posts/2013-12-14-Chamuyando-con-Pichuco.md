@@ -9,7 +9,7 @@ tags: ["Alfredo Le Pera", "Aníbal Troilo", "Orlando Goñi"]
 Me tocó compartir algunas mesas con Aníbal Troilo. Una veces en grupo y otras solo. Y tener unas cuantas chamuyetas que me acompañan de por vida. Puede servir para pintar a un personaje. Me firmó una hermosa fotografía que le hizo Annemarie Heirinch en su estudio, con una dedicatoria entrañable, que tengo sobre mi escritorio. Un vez comenté en la rueda que tenía el libro de los Bates, con reportajes a gente de la guardia vieja y no lo podía creer. Me pidió si se lo podía prestar porque era un libro que estaba perdido. Me lo regaló un coleccionista cuando intervine en un sonado concurso de televisión contestando sobre la historia del tango. Se lo presté y nunca más lo volví a ver. Típico en Pichuco. Pero me lo compensó con su atención.
 Y esos ratos que pasé con él, merecieron la pena porque estando en España volví a conseguir otro ejemplar de dicho libro.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjEFz9LVu3NOiLUhS7IgMzSoX1cJR-2xy-5LjtPnkMJ0SGcZ6aYxsvWovv47fmyPRW7iTZTZaMnSXzgjT6ARcyOSGa75Xbyu3glIyspdSWy3XbKgytcRFh1VIiH0fm2_bbllURn7KJRWeE/s400/Teatro-Casino-donde-se-presentaban-audiciones-de-radio-El-Mundo-JFS-An%C3%ADbal-troilo-y-Nelly-Omar-950x711.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjEFz9LVu3NOiLUhS7IgMzSoX1cJR-2xy-5LjtPnkMJ0SGcZ6aYxsvWovv47fmyPRW7iTZTZaMnSXzgjT6ARcyOSGa75Xbyu3glIyspdSWy3XbKgytcRFh1VIiH0fm2_bbllURn7KJRWeE/s1600/Teatro-Casino-donde-se-presentaban-audiciones-de-radio-El-Mundo-JFS-An%C3%ADbal-troilo-y-Nelly-Omar-950x711.jpg) Troilo en el Teatro Casino, haciendo *Ronda de ases*. A su der. centeya, Barquina, Floreal, Font Saravia.
+ [![](/tangos-al-bardo/images/19b67739a177.jpg)](/tangos-al-bardo/images/c46bd5d1135a.jpg) Troilo en el Teatro Casino, haciendo *Ronda de ases*. A su der. centeya, Barquina, Floreal, Font Saravia.
 Acá van algunos momentos de esas charletas.
 
 **-¿Cuáles eran tus ídolos como futbolistas?**
@@ -19,14 +19,14 @@ Acá van algunos momentos de esas charletas.
 **-Sobre todo en la noche....**
 -Sí, Moreno era la noche. Ganaba en todos lados. En la cancha y en la noche. Había tirado guantes y le gustaba cada tanto recordarlo... Era guapo de verdad. Y contagiaba, cómo contagiaba...
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh4gTNmEmVtMEzA6JOLH8BM4LZcyyImghRcnlEwQOBV7p76q9F-8Dpi53GKbGhvCYjlCLbSNwIrkZU6Sw5XbmiGDOrihyphenhyphen6PUIGwHiw1z2WpAk76tMNi8aIUn4IDakVvm0xsbnp332RbqxI/s320/Troilo,+Labruna+y+Loustau.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh4gTNmEmVtMEzA6JOLH8BM4LZcyyImghRcnlEwQOBV7p76q9F-8Dpi53GKbGhvCYjlCLbSNwIrkZU6Sw5XbmiGDOrihyphenhyphen6PUIGwHiw1z2WpAk76tMNi8aIUn4IDakVvm0xsbnp332RbqxI/s1600/Troilo,+Labruna+y+Loustau.jpg) Pichuco entre Labruna y Loustau, ala izquierda de *La máquina*.
+ [![](/tangos-al-bardo/images/ad85698a8b15.jpg)](/tangos-al-bardo/images/558402b6b6a4.jpg) Pichuco entre Labruna y Loustau, ala izquierda de *La máquina*.
 Estábamos en la terraza de *Re fa si*, en Mar del Plata que regenteaba mi amigo Leonardo Izzo. Había llegado temprano y se sentó conmigo.
 **-Aníbal, yo soy fana de Orlando Goñí. Para mí fue el más grande tocando el piano, en el tango.**
 -(piensa)...Sí era un genio, pero un loco. Nunca podías saber cuál te tocaba esa noche. El loco o el genio. O el genio loco. Ahora, cuando se ponía y estaba con las luces empujaba, cómo empujaba.
 - **Es que esas grabaciones, del 38 y los 40, me ponen a mil revoluciones en la pista.**
 - Íbamos un poco rápidos. Y él tenía ese swing, qué se yo. No tenía pinta de pianista. No usaba los pedales... tocaba con las gambas abiertas, pero de repente nos iluminaba, sí, nos iluminaba. Un loco.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhQ_Jpzkt8koeeXt-u4JRED6yr-Z0-846Pv1KvLQMmbtOcnkdtyTJyH6FZ0Y-hdT2boQDbyRGIYK4o7EnPflLSzFoBv-Amh9w2n31nA8oVM_CTk8sLH-v1ydupFxTsUCzL7JadhZsSuCHc/s1600/Go%C3%B1i+y+Fiore.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhQ_Jpzkt8koeeXt-u4JRED6yr-Z0-846Pv1KvLQMmbtOcnkdtyTJyH6FZ0Y-hdT2boQDbyRGIYK4o7EnPflLSzFoBv-Amh9w2n31nA8oVM_CTk8sLH-v1ydupFxTsUCzL7JadhZsSuCHc/s1600/Go%C3%B1i+y+Fiore.jpg) Fiorentino y Orlando Goñi
+ [![](/tangos-al-bardo/images/758645a4b1e9.jpg)](/tangos-al-bardo/images/758645a4b1e9.jpg) Fiorentino y Orlando Goñi
 
 **-No llegué al Tibidabo, contame algo de esas noches**.
 -(se iluminan sus ojos). Era la noche. Toda la noche de Buenos Aires. Todo el tango. Y teníamos esa locura, éramos jovenes, una polenta bárbara y veías a la gente del tango que estaba ahí y te agrandabas. Claro, era como que te daban cuerda...

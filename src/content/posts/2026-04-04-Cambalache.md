@@ -10,7 +10,7 @@ Fue otra pegada discepoleana muy grosa que impactó fuertemente en el estamento 
 
 La función en la cual se daba a conocer una nueva Revista Musical, con el estreno del tango discepoleano se presentó muy complicada, porque Discépolo le había vendido en exclusividad el tema al productor Ángel Mentasti para su película dirigida por Mario Soffici, con la estrella Libertad Lamarque: "*El alma del bandoneón*".
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjjKKqSr2HB7jj64qn8wRmupJi2IqvTfRG7FOK62v071Pl1pW-UDLLMcTMYKbVAb7PvJD2EV38hpy46GP9UoOPiY66lN-d2bHMWNAsyJ94mLp4vtS8_cv36gdnfDbWH4_IYQI5o8GxYIsuZ6qbIplU5_SkH4dne2aJ0yppkCC5kuXbDYkQ2fKYpAUtLfUb0/s320/Amadori.webp)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjjKKqSr2HB7jj64qn8wRmupJi2IqvTfRG7FOK62v071Pl1pW-UDLLMcTMYKbVAb7PvJD2EV38hpy46GP9UoOPiY66lN-d2bHMWNAsyJ94mLp4vtS8_cv36gdnfDbWH4_IYQI5o8GxYIsuZ6qbIplU5_SkH4dne2aJ0yppkCC5kuXbDYkQ2fKYpAUtLfUb0/s600/Amadori.webp) Luis César Amadori
+[![](/tangos-al-bardo/images/00b9e002785d.webp)](/tangos-al-bardo/images/dfd7eb89bfc0.webp) Luis César Amadori
 
 Antes de levantarse el telón, Mentasti apareció con un abogado para impedir el estreno del tango. Luis César Amadori, dueño del Teatro, para distraerlo y confiando en el éxito del tango, llevó al enojado productor a la Confitería Richmond, de la calle Esmeralda, que estaba justo enfrente del Maipo, y le habló largamente sobre el tema de Cine y Teatro. Y le insistía en que no competían entre ambos escenarios.
 

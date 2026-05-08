@@ -10,7 +10,7 @@ Héctor Marcó arrancó tempranamente como poeta, compositor, actor, cantor, ten
 
 Tendría fugazmente orquesta propia, cantó en orquestas típica y de jazz y comenzó tempranamente a componer temas de distintos géneros. Incluso música para el fondo de una película. Su confianza y capacidades, le permitieron rápidamente entrar en contacto con gente importante como Carlos Di Sarli, por ejemplo, a quien se lo presentaría Cayetano Puglisi en el café de Maipú y Tucumán, y sería quien le propone componer juntos.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgtBEhXm0Hq_QWIqgBTTpcL0NTXWh0oau4sTgd22Uxcb6OvacUhgyDxe3n3ioqfG_-TLpSKlyjGPjtrQR3uAJxi8mPodRjvKU-FOpbi__KJ6fzTCMyiCNs8usSnSEn-gpWKVV1H9PKNFIqwa1w65PiggAOy2PQt_ryR_iMgqDrebczYdfcrQkhrD2rOuA/s320/Marco.PNG)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgtBEhXm0Hq_QWIqgBTTpcL0NTXWh0oau4sTgd22Uxcb6OvacUhgyDxe3n3ioqfG_-TLpSKlyjGPjtrQR3uAJxi8mPodRjvKU-FOpbi__KJ6fzTCMyiCNs8usSnSEn-gpWKVV1H9PKNFIqwa1w65PiggAOy2PQt_ryR_iMgqDrebczYdfcrQkhrD2rOuA/s492/Marco.PNG)Héctor Marcó
+[![](/tangos-al-bardo/images/7da153a6d55d.png)](/tangos-al-bardo/images/fe907e89311d.png)Héctor Marcó
 
 Y ahí es cuando pasa a ser más notorio aún el reconocimiento de su impronta creadora. El diluvio de hallazgos que hurgan en la sentimentalidad del tango. Su primer creación con el maestro de Bahía Blanca será el tango "**Corazón**", al que Di Sarli le pone música y lo lleva al disco con Roberto Rufino, en su primer registro con la orquesta. A todo esto, Marcó ya había dejado muestras relevantes de su talento en temas como *Alma mía, Callejón, El pollero, Que nunca me falte* y otros de bastante recorrido.
 

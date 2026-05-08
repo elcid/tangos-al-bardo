@@ -25,7 +25,7 @@ Por ese mismo año, en un estaño ocuro de Colegiales, yo había escuchado a un 
 *Mama de mi corazón*
 *¡soy un borracho perdido! *
 
-*  [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhG6p2iEk8hzut4OPnOhFLXqS6MnYb3ehCenEcTPW_MmwrtRokQ3ERmxyoY3ELrckWBjmcBckl8kp0Ir6eZj-OaSma_hcXqYeZafOhSpt-_89VN3yUJWEQVlvoDfaUYfxT4OMNb54hk66Qr/s320/gardel+cortos+1930+con+discepolo.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhG6p2iEk8hzut4OPnOhFLXqS6MnYb3ehCenEcTPW_MmwrtRokQ3ERmxyoY3ELrckWBjmcBckl8kp0Ir6eZj-OaSma_hcXqYeZafOhSpt-_89VN3yUJWEQVlvoDfaUYfxT4OMNb54hk66Qr/s1600/gardel+cortos+1930+con+discepolo.jpg) Enrique Santos Discépolo y Carlos Gardel en los cortos de Morera  *
+*  [![](/tangos-al-bardo/images/8d9b7b3416fa.jpg)](/tangos-al-bardo/images/cf3acf55d51a.jpg) Enrique Santos Discépolo y Carlos Gardel en los cortos de Morera  *
 Quiero decir que Discepolín, como Gardel, eran para mí gente de otra galaxia, además de ser hombres también de otra generación. Al inolvidable flaco lo conocí mucho más tarde y hasta tuve el orgullo de estrenar tangos de él, pero estaba muy lejos del Rivero de veinte años. Volaba ya muy alto ese hombre que en 1931 se preguntaba *¿Qué sapa señor?* desde esta angustia:
 
 *Y en medio del caos*

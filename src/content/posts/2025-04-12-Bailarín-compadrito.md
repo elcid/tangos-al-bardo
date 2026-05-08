@@ -16,7 +16,7 @@ Entre los primeros temas que dio a conocer estaba el que lo consagraría, y en e
 
 Gardel y Bucino frecuentaban mucho el Hipódromo e incluso el galán-cantor le entregaba el dinero para que sacara los boletos de los caballos que apostaba. "*Me tenía de mandadero...*", contaba luego Miguel. Pero tenía una deuda moral muy grande con el gran cantor porque la grabación que hizo éste de **"Bailarín compadrito**", le sirvió de palanca de arranque para el futuro compositor.
 
-![Tangos al bardo: Miguel Bucino](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiAHcRBDaYe9QAX5Uvvjipa7WYnM2SB4Jsvg2SpJQQZYYpYW22IRMUByvauEQpL-TYlvrKdc8XdSayk9fqjiwAEAdL_FSi5HjELAG0e0-zCfeW1Mrk8Fam-AzV_zGo-zTnXxZz2HTqYa7gj/w272-h400/Bailar%C3%ADn+compadrito.jpg)
+![Tangos al bardo: Miguel Bucino](/tangos-al-bardo/images/bb7f77a532fd.jpg)
 
 Ese mismo año -1929- Francisco Canaro, cantando Charlo, también llevó al disco "**Bailarín compadrito**" y le dio otro importante empujón. Incluso lo grabó 14 días antes que Gardel. Miguel Bucino tenía 24 años de edad y ya mostraba cartas ganadoras como poeta-compositor de temas de éxito. Fue realmente un impacto y un cheque en blanco para el futuro creador de tangos-milongas y valsecitos que harían historia.
 

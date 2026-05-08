@@ -14,7 +14,7 @@ Fue en este caso Ben Molar (Moisés Smolarchik Brenner), amigo de Julio De Caro,
 
 Después de mucho pelearla con las autoridades municipales consiguió que sacaran el Decreto Nº 5830/ 77 -doce años más tarde-, por el cual la Ciudad de Buenos Aires consagraba ese día. No quedó conforme con ello y fue más allá, a convencer al gobierno nacional, incluso con "amenazas" de realizar un evento extraordinario en el Luna Park y dejarlos a ellos afuera. Y así nació el Decreto Nº 3781/77,mediante el cual el Gobierno de la Nación Argentina declaraba el 11 de Diciembre de cada año, como: **El Día Nacional del Tango**.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhsvloC8PbfAl9YWPmXyjMLtxTBE1lOlUZ_XtC0mVO2DKr61Jt3vF-9UWROyAc-_0A8HoZKx40s16z0tJv_MDmHFf4I6FhvV-wcTPoeSUuuMJLTv1yPVD0a3jFSmUSGxDpXTdVQkSGAg5c/s320/escanear0018.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhsvloC8PbfAl9YWPmXyjMLtxTBE1lOlUZ_XtC0mVO2DKr61Jt3vF-9UWROyAc-_0A8HoZKx40s16z0tJv_MDmHFf4I6FhvV-wcTPoeSUuuMJLTv1yPVD0a3jFSmUSGxDpXTdVQkSGAg5c/s1600/escanear0018.jpg) Di Sarli, Troilo, De Caro, D'Arienzo y Rufino. Grandes del Tango
+ [![](/tangos-al-bardo/images/d9e2957b7953.jpg)](/tangos-al-bardo/images/2866c3f002fe.jpg) Di Sarli, Troilo, De Caro, D'Arienzo y Rufino. Grandes del Tango
 
 Una noche, en el desaparecido Restaurante *Fechoría* de la Avenida Córdoba, donde concurrían las estrellas populares argentinas y extranjeras, estuve charlando largo rato con Ben Molar, que cumplía años y lo estaba festejando con su gente y amigos. Y entre otras cosas hablamos de lo que le costó sacar éso adelante. Yo ya me había venido a España y luego mantuvimos contacto epistolar.
 

@@ -6,7 +6,7 @@ labels: ""
 tags: ["Agustín Magaldi", "Juan D'Arienzo", "Héctor Mauré"]
 ---
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhGLEr8NufvzCP7vJVrOlpKpQQEXjDeSGsI-7L2QiAjJIQZ0bmZ9TKa5yY9_MAFS9lp1apyso4IkFFDwWyLwVQgFd5mW9Urp7MtdB1aEA2FFmQJWG9Y7yxB6gJR67t1K6cGLAme1rgILGXo/s1600/gamberolas.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhGLEr8NufvzCP7vJVrOlpKpQQEXjDeSGsI-7L2QiAjJIQZ0bmZ9TKa5yY9_MAFS9lp1apyso4IkFFDwWyLwVQgFd5mW9Urp7MtdB1aEA2FFmQJWG9Y7yxB6gJR67t1K6cGLAme1rgILGXo/s1600/gamberolas.jpg) * A mí me copa el tango, muchachada,*
+[![](/tangos-al-bardo/images/f961c960ef91.jpg)](/tangos-al-bardo/images/f961c960ef91.jpg) * A mí me copa el tango, muchachada,*
 * lo siento tan profundo y tan varón,*
 * no hay que ponerle tanta filigrama*
 * como los ases de la televisión.*

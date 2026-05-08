@@ -15,12 +15,12 @@ Varios de sus temas los transformó con el tiempo. *Nueve puntos* pasó a ser un
 
 Ese tango instrumental, *París*, que grabó con su orquesta el 23 de mayo de 1927, no tuvo mayor repercusión y caería rápidamente en el olvido, aunque el propio Canaro intentara reflotarlo una y otra vez sin resultados favorables. Motivo por el cual decidió eliminarlo de sus actuaciones.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjh2MDHnAgOfHPIJ8g8ICX03i7ucjD85Jq6kV5zsmi8KestlMDDk5ZgW1U3jWd8ZPgU9i78hp2me1uhAX-L3bu9184fH1AqaKMOoJ30DFbRrJPM5aYqTAjNM0Ohz2N5dNdROgyFsln8nyg/s1600/escanear0005.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjh2MDHnAgOfHPIJ8g8ICX03i7ucjD85Jq6kV5zsmi8KestlMDDk5ZgW1U3jWd8ZPgU9i78hp2me1uhAX-L3bu9184fH1AqaKMOoJ30DFbRrJPM5aYqTAjNM0Ohz2N5dNdROgyFsln8nyg/s1600/escanear0005.jpg) Canaro y su madre Rafaela
+ [![](/tangos-al-bardo/images/538447fdb82d.jpg)](/tangos-al-bardo/images/538447fdb82d.jpg) Canaro y su madre Rafaela
 Por esa época estaba pensando en crear un tango o vals para dedicarlo a su sufrida madre, que viviendo en extrema pobreza supo criar y cuidar a los diez hijos que fue teniendo en Uruguay y Argentina. Lo cierto es que Pirincho supo reconocérselo, les compró una casa amplia a sus progenitores e incluso pudo enviar a su madre a Italia para visitar a toda la familia que había quedado allí. .
 
 Ella se llamaba Rafaella Gatto, y había llegado a Uruguay con 8 años de edad. Era natural de Ceraso, un pueblito de Salerno en la provincia de Campania. Incluso Pirincho llegó hasta allí en 1926 para conocer el pueblo y a la *nonna* materna, que aún vivía y con quien se fotografió y compartió dulces momentos.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh8FIxgdwYs38o6qSzaOV__gQ-Aznehg5D4Zqa_2eu1jxvf7JMyLCl9Rf4fggg6wlejTq1TM6oiyy416SJ-aj5mAtxi8AbzvGmzNwmNMmnEDMiYY0sOq6LTawUXatV4IHaek5F1s9NhUjY/s1600/escanear0004.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh8FIxgdwYs38o6qSzaOV__gQ-Aznehg5D4Zqa_2eu1jxvf7JMyLCl9Rf4fggg6wlejTq1TM6oiyy416SJ-aj5mAtxi8AbzvGmzNwmNMmnEDMiYY0sOq6LTawUXatV4IHaek5F1s9NhUjY/s1600/escanear0004.jpg) Pirincho en Ceraso con su abuela
+ [![](/tangos-al-bardo/images/a3c178bbc26a.jpg)](/tangos-al-bardo/images/a3c178bbc26a.jpg) Pirincho en Ceraso con su abuela
 
 Canaro se sentía en deuda eterna con su *mamma* y quería dedicarle ese tema y tiró algunas frases musicales pero no terminaba de arrancar y le comentó el asunto a su pianista, Luis Riccardi. Éste le dijo que su tango *París*, quizás podía servir como punto de arranque porque tenía una parte de la melodía que era ideal para un valsecito.
 

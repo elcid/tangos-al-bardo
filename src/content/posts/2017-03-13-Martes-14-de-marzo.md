@@ -7,7 +7,7 @@ labels: ""
 
 El día comienza muy fuerte, con la presencia de Fabían Bertero y Miguel Pereiro en Madrid, camino del Festival de Granada, en la sala Toccata en A.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgvIhvFen2oO1oLbRgMbVOgof2dG4hdywPDi713n0C5HXR2uawRFZ0hOpZpCBrUOSjztVFQ8Dhs3pFVJGCt5FTMvl05wl74dGSF_dUeDMlpqLMOmLvkg4rYu-fR8yLYRMhfjul8NtJKdAiq/s400/toccataena-1-web.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgvIhvFen2oO1oLbRgMbVOgof2dG4hdywPDi713n0C5HXR2uawRFZ0hOpZpCBrUOSjztVFQ8Dhs3pFVJGCt5FTMvl05wl74dGSF_dUeDMlpqLMOmLvkg4rYu-fR8yLYRMhfjul8NtJKdAiq/s1600/toccataena-1-web.jpg) Sala Toccata en A
+ [![](/tangos-al-bardo/images/b657c12dca95.jpg)](/tangos-al-bardo/images/c3fafede4cc7.jpg) Sala Toccata en A
 
 Habrá una charla sobre el disco que van a presentar, que sostendré con estas dos notables figuras del tango. A continuación el dúo ejecutará en violín y piano, alguno de estos temas y cerraremos con un ligero lunch y bebidas que nos terminarán de alegrar el mediodía.
 

@@ -23,7 +23,7 @@ sin querer, llorarás...
 Me verás otra vez junto a tí
 y recién te dirás
 que hice bien al partir.
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjCoWTeexgAOge9AYHvZoS_l-O62tMlDn0A8Is_dLWPfyc4ilyrxAU4khfX-6vJWVna-knt-D35jmqYjymas7VcHclve47i94Bg3ipCyk_bbl2L_6uuO_qgfd-4eNjrNAMjA2l4f_8i-TI/s1600/Llorar%C3%A1s+llorar%C3%A1s.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjCoWTeexgAOge9AYHvZoS_l-O62tMlDn0A8Is_dLWPfyc4ilyrxAU4khfX-6vJWVna-knt-D35jmqYjymas7VcHclve47i94Bg3ipCyk_bbl2L_6uuO_qgfd-4eNjrNAMjA2l4f_8i-TI/s1600/Llorar%C3%A1s+llorar%C3%A1s.jpg)Y al renovar tu emoción
+[![](/tangos-al-bardo/images/595f881b1db4.jpg)](/tangos-al-bardo/images/595f881b1db4.jpg)Y al renovar tu emoción
 sentirás el dolor de mi adiós.
 
 Lo escucharás en los pianos

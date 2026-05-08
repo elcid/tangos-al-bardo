@@ -6,7 +6,7 @@ labels: ""
 tags: ["Osvaldo Pugliese", "Francisco Lomuto", "Juan D'Arienzo"]
 ---
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiid3KnWjQUeYEdo6ZyejRAT0VreDMOlOXOHY5ivTYPPOk3N3wGv9_wRFokDweTBjO0GJ5OIHk_QHgUnZHwYZlkHu3ivEjeAz9dy12Yd-MrjB-lVNo6MZZsvxuSaNY31QF7Z-HoleAGUooF/s320/vi-festival-de-tango-de-pereira-semifinal.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiid3KnWjQUeYEdo6ZyejRAT0VreDMOlOXOHY5ivTYPPOk3N3wGv9_wRFokDweTBjO0GJ5OIHk_QHgUnZHwYZlkHu3ivEjeAz9dy12Yd-MrjB-lVNo6MZZsvxuSaNY31QF7Z-HoleAGUooF/s1600/vi-festival-de-tango-de-pereira-semifinal.jpg) *Atención, se va a bailar*
+[![](/tangos-al-bardo/images/1d0e7b038667.jpg)](/tangos-al-bardo/images/772bb9dd9ae4.jpg) *Atención, se va a bailar*
 * ¡áura!*
 * y todos a bailar*
 * parejas con cachet.*

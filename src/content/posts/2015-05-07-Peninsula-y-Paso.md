@@ -8,7 +8,7 @@ tags: ["Enrique Rodríguez", "Juan D'Arienzo"]
 
 Conviene abrir el abanico de nuestras miradas y campanear cómo se las gastan bailando tango en la zona de Asia. Muchos milongueros podrían llevarse una sorpresa. Es cierto que ya no resulta curioso bailar en Buenos Aires con bailarinas y milongueros de los países de dicha región del globo, pero en este caso me gustaría que nos detengamos y disfrutemos viendo a estos chicos que la saben lunga a la hora de mover los pies al compás de una orquesta de tango argentina.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh9o3tlXrqo9eXz-JqEZwJPsWdlnHjqprQQGXE0V7FZhdsU0zhchr9bCYK9M42iMA-WrN7BgAiBRh_Dg2WxCiVPS7inxiQMKPIhC8XKw2pIQosVBlTGDisa6tFVaTGssrRobm7jH6Rfj2U/s1600/Paso+y+Peninsula.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh9o3tlXrqo9eXz-JqEZwJPsWdlnHjqprQQGXE0V7FZhdsU0zhchr9bCYK9M42iMA-WrN7BgAiBRh_Dg2WxCiVPS7inxiQMKPIhC8XKw2pIQosVBlTGDisa6tFVaTGssrRobm7jH6Rfj2U/s1600/Paso+y+Peninsula.jpg) Peninsula y Paso bailando un tango (Fotografía Alejandro Pagni)
+ [![](/tangos-al-bardo/images/10532291c952.jpg)](/tangos-al-bardo/images/10532291c952.jpg) Peninsula y Paso bailando un tango (Fotografía Alejandro Pagni)
 
 Ella se llama Peninsula Cho Myoung Hee y es de Corea del Sur y . Lo más notable es cómo se mueve en el rol de hombre, bailando con Jinsuk Muchacha, el tango **Paciencia**, por Juan D'Arienzo, cantando Enrique Carbel, en el octavo aniversario de una Tanguería en Seúl, capital de Corea del Sur.
 

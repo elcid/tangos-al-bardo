@@ -5,7 +5,7 @@ original_url: https://tangosalbardo.blogspot.com/2021/11/tonada-de-tango.html
 labels: ""
 ---
 
-[![](https://blogger.googleusercontent.com/img/a/AVvXsEiLm3eCOxZVZiNaMy9LHWwIKIgfgwaEvZUB3UueWsD15f1BIQQUq0PVVZHhudnhbA2Ki8hmz6eThDMgXM5NPh5kDZgTt3x8pb0-jkK9b9azt7n5iGLrLZjuUWyewHpIydwHlzRUVYJ-D15WYmu3WYnWMf9qAJxd9pu62G2RUDT4O__U3JTjASHo4pCrDA=w241-h400)](https://blogger.googleusercontent.com/img/a/AVvXsEiLm3eCOxZVZiNaMy9LHWwIKIgfgwaEvZUB3UueWsD15f1BIQQUq0PVVZHhudnhbA2Ki8hmz6eThDMgXM5NPh5kDZgTt3x8pb0-jkK9b9azt7n5iGLrLZjuUWyewHpIydwHlzRUVYJ-D15WYmu3WYnWMf9qAJxd9pu62G2RUDT4O__U3JTjASHo4pCrDA=s415)José Portogalo
+[![](/tangos-al-bardo/images/61dad16d9913.jpg)](https://blogger.googleusercontent.com/img/a/AVvXsEiLm3eCOxZVZiNaMy9LHWwIKIgfgwaEvZUB3UueWsD15f1BIQQUq0PVVZHhudnhbA2Ki8hmz6eThDMgXM5NPh5kDZgTt3x8pb0-jkK9b9azt7n5iGLrLZjuUWyewHpIydwHlzRUVYJ-D15WYmu3WYnWMf9qAJxd9pu62G2RUDT4O__U3JTjASHo4pCrDA=s415)José Portogalo
 
 Nació de una "pobre cosa"
 

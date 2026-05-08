@@ -12,4 +12,4 @@ El camino fue largo. Desde aquellos inicios adolescentes en el Café La Chancha,
 
 Detrás habían quedado sus intervenciones en la orquestas del *Francés* Pollet, de Paquita Bernardo, Roberto Firpo, Pedro Maffia, Pedro Laurenz, Emilio Vardaro, el *Chon* Pereyra, su famoso Sexteto con el mismo Vardaro, sus trabajos con Alfredo Gobbi y Aníbal Troilo que también buscaban su camino, Miguel Caló, y los acompañamientos a diversos cantantes y cancionistas, hasta la ansiada meta final.
 
-        [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiDljGgJwSCMdbNHKF2ZUPkqIxRKoT5g7YRsIKtDTQA5clYRNHXFpA-EgyqI6-uEXPF7YT36uYzgxAdgASmfES9XhVcLELQTlW_7P-X_xJXVrPgU9cubX2PHtGzpqwsI9DKEWpTJ0CtbfQ/s1600/BEBA_P1.png)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiDljGgJwSCMdbNHKF2ZUPkqIxRKoT5g7YRsIKtDTQA5clYRNHXFpA-EgyqI6-uEXPF7YT36uYzgxAdgASmfES9XhVcLELQTlW_7P-X_xJXVrPgU9cubX2PHtGzpqwsI9DKEWpTJ0CtbfQ/s1600/BEBA_P1.png) El maestro director entre el *Flaco* Morán y el *Turco* Chanel
+        [![](/tangos-al-bardo/images/6b746f7b8368.png)](/tangos-al-bardo/images/6b746f7b8368.png) El maestro director entre el *Flaco* Morán y el *Turco* Chanel

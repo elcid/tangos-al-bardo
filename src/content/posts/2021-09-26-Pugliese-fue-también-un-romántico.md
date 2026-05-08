@@ -18,7 +18,7 @@ Pero éstas no son su verdadero objetivo. A mi juicio, el verdadero es su rítmi
 
 Otro aporte, a mi juicio, a través de sus temas, de sus temas con letra, es que varios y determinados están consagrados a lograr una fotografía de la época con una natural pretensión de ser una proyección hacia el mañana, hacia el futuro, como un testigo. O sea que ha intentado (y no digo resuelto la problemática, pero sí intentado) el camino de lo social a través del tango de nuestra condición social.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj6Sj_RHMcdx0xB74RCtuXfIFsJ1rLdntixoNv9HG2rfCXCKs1FTFUjOYCnGrUEMTTPHUmjIlbyxieGhnBUqe_ziq_TirKmIr2N0K6zPWch6FWKtuGCMJImZXU26AyPl58f8sdkvHjfBDO-/w400-h168/Manipu.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj6Sj_RHMcdx0xB74RCtuXfIFsJ1rLdntixoNv9HG2rfCXCKs1FTFUjOYCnGrUEMTTPHUmjIlbyxieGhnBUqe_ziq_TirKmIr2N0K6zPWch6FWKtuGCMJImZXU26AyPl58f8sdkvHjfBDO-/s1168/Manipu.jpg)Postal de la época en que Manzi reemplazaba a Pugliese en su orquesta
+[![](/tangos-al-bardo/images/f771aa8a5778.jpg)](/tangos-al-bardo/images/95024fc4f9af.jpg)Postal de la época en que Manzi reemplazaba a Pugliese en su orquesta
 
 Incluso creo, políticamente hablando, que dentro de esas letras hace notar las falencias de nuestro tiempo. Eso yo lo considero muy bueno, en cuanto a lo artístico, porque el artista, para mi opinión, no debe buscar sólo el aplauso, o el éxito, o hacer del arte una cosa para élites, sino que debe tratar de hacer un aporte cultural, de ayudar a abrir los ojos, tanto para la gente de su tiempo como para la del que vendrá.
 

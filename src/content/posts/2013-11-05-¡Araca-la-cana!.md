@@ -19,7 +19,7 @@ El sencillo argumento de la película se basa en los tres fervores (berretines) 
 
 En la película, Sandrini se encuentra con un músico en un café, quien le pasa la melodía a un pentagrama y un poeta famélico allí presente, le escribe unos versos para el mismo. El protagonista que encarna Sandrini quiere estrenarlo en ese mismo café, en el palco donde se anuncia la orquesta "Foccile-Marafiotti". Que son en realidad José María Rizutti en el piano, Vicente Tagliacozzo en el violín y un jovencito Aníbal Troilo en bandoneón. Justo aparece en escena un cantor (Luis Díaz) y canta por vez primera el tango de marras: *¡Araca la cana!*
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjOFq59P7A_h5Am6ztmDhIP7KHu4uZyxiP0LrURac9gW84Y5iW_HrRMII84gEqucJhSOBKF6VrUpGG55YbrxdVU4_xgKto3uOSmjwE2uG3KGqt5z0mpkEn2u5vCpry1NCCfAqXDheTTM9A/s320/Luis-Sandrini-nacional_ZONIMA20120427_0014_12.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjOFq59P7A_h5Am6ztmDhIP7KHu4uZyxiP0LrURac9gW84Y5iW_HrRMII84gEqucJhSOBKF6VrUpGG55YbrxdVU4_xgKto3uOSmjwE2uG3KGqt5z0mpkEn2u5vCpry1NCCfAqXDheTTM9A/s1600/Luis-Sandrini-nacional_ZONIMA20120427_0014_12.jpg) Luis Sandrini en la película
+ [![](/tangos-al-bardo/images/a23117125ec8.jpg)](/tangos-al-bardo/images/58ab662d2f54.jpg) Luis Sandrini en la película
 Los autores del guión son Malfatti y de las Llanderas, los mismos de la inolvidable *Así es la vida*, que representamos con una compañía que fundé en Madrid, por media España. Los actores son Luis Arata, Sandrini, Benita Puértolas, Ana May, Héctor Quintanilla, Florindo Ferrario, Miguel Ángel Lauri (delantero de Estudiantes de La Plata), Osvaldo Fresedo, el citado Luis Díaz y varios más.
 
 

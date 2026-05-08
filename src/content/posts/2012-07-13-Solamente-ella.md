@@ -29,7 +29,7 @@ Un día de 1944 llegan a Radio El Mundo y en la conserjería había una carta pa
 Lucio le puso música esa misma noche y al día siguiente se lo pasó a Quintana. Con este hermoso tango: *Solamente ella*, debutó el cantor de Santa Isabel, en la orquesta de Lucio Demare y lo grabarían de inmediato.
 
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg7IDDDvcPQR93tk1aUsvjkKtuXv8Ys8zNmoMzWSaF0D3cxomvWX46hDaZc4jnEhiOopyhMV3CtFnYoIXG_tckx7Lwz_9gW6suTu3rXziGZ6Xhp6rb2q3CPZRZNVlKe6JHlvX_2n-nYecH8/s320/Nelly-Omar-24.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg7IDDDvcPQR93tk1aUsvjkKtuXv8Ys8zNmoMzWSaF0D3cxomvWX46hDaZc4jnEhiOopyhMV3CtFnYoIXG_tckx7Lwz_9gW6suTu3rXziGZ6Xhp6rb2q3CPZRZNVlKe6JHlvX_2n-nYecH8/s1600/Nelly-Omar-24.jpg)
+[![](/tangos-al-bardo/images/1852ef7dff50.jpg)](/tangos-al-bardo/images/35dcbe5af43a.jpg)
  Seguramente Manzi, en la lejanía, pensaba hermosamente en Nelly.
 
 ** Solamente ella**

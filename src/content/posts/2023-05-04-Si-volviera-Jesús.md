@@ -14,7 +14,7 @@ La voz narrativa es omnisciente y en la historia de lo pequeño, su voz permite 
 
 El vate del porteño barrio de San Cristóbal, que fue periodista, trabajó en varios medios, fundó una revista infantil y otra deportiva además de **La canción moderna **que se convertiría más tarde en **Radiolandia**, nació en 1903 y falleció en 1938, a punto de cumplir sus jóvenes 35 años. Pero su obra, incluso por eso, es muy importante. Porque le alcanzó para concebir temas como éste al que el bandoneonista Joaquín Mora le pondría música.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEha4xPzFG6vwpmVyE6lgdox_quJk6Oe7qRfhcq1i_je47giertatRqSoz4FJ_drcAHKYT-V4STWwXwQUkXgBUVQ27shlRkOE-Gr_8ILvVZqdy72j1LscSJ0-KcefFq2d9x7z4xpp2C5MyexU0pv1JOoBmo0gyUEE8xMyTiHjG0BA605AdEk0YteB4CPGQ/s320/Dante-A-Linyera-La-Maga-23-09-92.webp)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEha4xPzFG6vwpmVyE6lgdox_quJk6Oe7qRfhcq1i_je47giertatRqSoz4FJ_drcAHKYT-V4STWwXwQUkXgBUVQ27shlRkOE-Gr_8ILvVZqdy72j1LscSJ0-KcefFq2d9x7z4xpp2C5MyexU0pv1JOoBmo0gyUEE8xMyTiHjG0BA605AdEk0YteB4CPGQ/s400/Dante-A-Linyera-La-Maga-23-09-92.webp)Dante A. Linyera
+[![](/tangos-al-bardo/images/21d361d7c97e.webp)](/tangos-al-bardo/images/9197ac94ae01.webp)Dante A. Linyera
 
 ** Si volviera Jesús** es la mirada de un luchador sobre la realidad de un mundo envuelto en guerras. De una época donde las desigualdades, la opacidad y turbiedad de la vida diaria, la pobreza de una gran parte de la sociedad, el maltrato social, formaban gran parte de la existencia. Por eso su pensamiento le permite ver y retratar algo más que meras figuras literarias, en el tema que recordamos.
 Veinte siglos hace, pálido Jesús,

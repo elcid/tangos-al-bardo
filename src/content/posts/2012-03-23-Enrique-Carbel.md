@@ -24,7 +24,7 @@ La página de hoy nos trae a un cantor lamentablemente fallecido cuando aún no 
 ](http://www.blogger.com/goog_149151617)
 [Paciencia. Juan D'Arienzo](http://www.mediafire.com/?ea0db6s0obz73d2)
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEht-pnFwaIs0yu7i-Gfu125F1qt-6Cot5T79ephdaxNiI8R5Muy4jre6lIbVNW04D3WlzupIq7455VlBESGnrwCw6dx0JUwbjlJ09fSzRmoFs0zte9UfRfllg5-tJTC8wnSwS8tIrJ80LwA/s1600/image003.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEht-pnFwaIs0yu7i-Gfu125F1qt-6Cot5T79ephdaxNiI8R5Muy4jre6lIbVNW04D3WlzupIq7455VlBESGnrwCw6dx0JUwbjlJ09fSzRmoFs0zte9UfRfllg5-tJTC8wnSwS8tIrJ80LwA/s1600/image003.jpg)
+ [![](/tangos-al-bardo/images/251660c72f7b.jpg)](/tangos-al-bardo/images/251660c72f7b.jpg)
 
 
 

@@ -8,7 +8,7 @@ tags: ["Enrique Rodríguez", "Osvaldo Pugliese", "Francisco Canaro", "Osvaldo Fr
 
 Sí, hoy hablamos en términos milongueros y te voy a decir qué tema me gusta bailar de cada orquesta. O al menos de la mayoría que suenan en la milonga.Tomá nota.:
 
-![Qué necesito para poder ir a las milongas?](https://escuelatangoba.com/wp-content/uploads/Dancing-Argentine-Tango-at-milongas.jpg)
+![Qué necesito para poder ir a las milongas?](/tangos-al-bardo/images/2af4256f81cd.jpg)
 
 D'Agostino Vargas: **Tres esquinas**
 

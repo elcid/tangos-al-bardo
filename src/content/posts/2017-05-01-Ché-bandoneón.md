@@ -17,7 +17,7 @@ En mayo de 1951 fallecería Homero Manzi, que había cargado duramente con el ma
 *El duende de tu son, che, bandoneón*
  *se apiada del dolor de los demás,*   *y al estrujar tu fueye dormilón*   *se arrima al corazón que sufre más.*   *Esthercita y Mimí, como Ninón*  *dejando sus destinos de percal,*   *vistieron al final, mortaja de rayón*   *al eco funeral de tu canción.*
  Para esa época, Homero ya estaba siendo intervenido de la enfermedad que lo consumiría, y es lógico que se note en los versos su pesadumbre. El tango es un vehículo especial para trasladar vivencias y dolores, nostalgias y fracasos, y** Che Bandoneón**, expresa su estado de ánimo, aunque no dejó de trabajar hasta el final con 44 años, apenas.
-   [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjzjZS7Wa1TdO6FSBKrF0J0TVuXt6DIiRx89_Kk24-4-uqqOzCioifQQlZf6ptu42BYXSlCe2F33PR-MLinEV6-AavCBNXckfPRhT_7UxmCS7bO1xpPpdMOpZY15Kj7I7hDwzkQrQdj7erd/s1600/homero_manzi_03_300P.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjzjZS7Wa1TdO6FSBKrF0J0TVuXt6DIiRx89_Kk24-4-uqqOzCioifQQlZf6ptu42BYXSlCe2F33PR-MLinEV6-AavCBNXckfPRhT_7UxmCS7bO1xpPpdMOpZY15Kj7I7hDwzkQrQdj7erd/s1600/homero_manzi_03_300P.jpg) Homero Manzi
+   [![](/tangos-al-bardo/images/83ef86907065.jpg)](/tangos-al-bardo/images/83ef86907065.jpg) Homero Manzi
  Cuando hizo *Barrio de tango*, también con Pichuco, escribiría al respecto:
   -Los temas de mis canciones son siempre recuerdos personales. Me resulta difícil escribir fantasiosamente. No tengo ese don. Había un recuerdo, un aspecto de mi vida, un paisaje que hasta hoy no había podido abordar. Lo termino de hacer en *Barrio de tango*... (...) Hoy a través de la evocación, puedo reconstruir sentimentalmente aquel barrio que se dormía al costado del terraplén para cantarlo con voz de tango y pulso de nostalgia.
  Y se explaya en la segunda parte de **Che bandoneón**, recordando el fracaso del amor.
@@ -40,7 +40,7 @@ En mayo de 1951 fallecería Homero Manzi, que había cargado duramente con el ma
     *Tu canto es el amor que no se dio*  *y el cielo que soñamos una vez, *  * *   *y el fraternal amigo que se hundió*  * ** *  *cinchando en la tormenta de un querer.*  * *   *Y esas ganas tremendas de llorar *  * ** ** *  *que a veces nos inundan sin razón,*  * *  *y el trago de licor, que obliga a recordar *
 *si el alma está en "orsay" che, bandoneón.*  * *
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiryhHjQIzR8bokTKLUt3SmtVW6JSobyzwpFXkRB8FJEZRghRApV-W_WDUR17cdiNhW9uoCKGjrbGwF5eSMFksrTQ3mBu_AmmmN6TcP3VcIIUcb7pqf1N97sujZGaY6bCoW8xv-3B7CM9mA/s400/Marino%252C+Troilo+y+Grela.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiryhHjQIzR8bokTKLUt3SmtVW6JSobyzwpFXkRB8FJEZRghRApV-W_WDUR17cdiNhW9uoCKGjrbGwF5eSMFksrTQ3mBu_AmmmN6TcP3VcIIUcb7pqf1N97sujZGaY6bCoW8xv-3B7CM9mA/s1600/Marino%252C+Troilo+y+Grela.jpg) Roberto Grela, Alberto Marino y Aníbal Troilo
+ [![](/tangos-al-bardo/images/5f075d7605d9.jpg)](/tangos-al-bardo/images/71356cbe8a53.jpg) Roberto Grela, Alberto Marino y Aníbal Troilo
 Para recordarlo, vale la pena escuchar la versión de Oscar Alonso, con la orquesta acompañante de Héctor María Artola, en muy buena interpretación. Y la inédita de Alberto Marino, acompañado en solo de bandoneón por Aníbal Troilo, que nos ilumina en este día.
 
 

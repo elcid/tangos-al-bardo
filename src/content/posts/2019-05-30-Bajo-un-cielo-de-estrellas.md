@@ -23,7 +23,7 @@ hasta el aire parece decir:
 y sugo esperando que vuelvas a mí!"
 
 ¿Quién no ha pasado por una situación así? El regreso al pasado, la alquimia de aquel romance iniciático con su temperatura emocional, las rememoraciones semicaóticas, esa casa cuya puerta está fijada en la memoria, la reverberante chatarrería sentimental... y toda la liturgia del recuerdo desteñido ante la vista actual de aquellas calles, del viejo café conde se reunía la barra de amigos, las anécdotas, vendaval de ilusiones y las frases que se fueron quedando grabadas para siempre....
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiq5I5oH-EO2w3QNBXQgsEuUJUQ2GnHBHfDFSejGWEVsNi707cRj59eNqjYPnvkaBLvj4CuyOD56vD4h4Xik3V5M-0yBl41qKhgovuMVyyHbF0Ao_Ocukv4CwXo9MEKhPIC2aEvvRzbqE-t/s320/jose-maria-contursi-1.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiq5I5oH-EO2w3QNBXQgsEuUJUQ2GnHBHfDFSejGWEVsNi707cRj59eNqjYPnvkaBLvj4CuyOD56vD4h4Xik3V5M-0yBl41qKhgovuMVyyHbF0Ao_Ocukv4CwXo9MEKhPIC2aEvvRzbqE-t/s1600/jose-maria-contursi-1.jpg) José María Contursi
+ [![](/tangos-al-bardo/images/8c0735d94f2e.jpg)](/tangos-al-bardo/images/6ff63c75e153.jpg) José María Contursi
 En esta noche vuelvo a ser
 aquel muchacho soñador
 que supo amarte

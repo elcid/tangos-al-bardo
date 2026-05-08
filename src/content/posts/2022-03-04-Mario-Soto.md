@@ -19,7 +19,7 @@ Pero deschavate...¿te acordás a quién pertenecen? Hmmmm... su autor, un gomí
 -Desde que **Pasional **es un éxito, dejé de llamarme Mario Soto: El tema me ayudó mucho, pero también me borró personalmente y además frenó otros tangos que, para mi gusto, eran superiores. A **Pasional** no me lo puedo sacar de encima.
 
 ** **
-[![](https://blogger.googleusercontent.com/img/a/AVvXsEgSwCgp5_gucTU8pOhZw7v9dgdC4M-JLQV0AA3VQd_1Sj0foPNn9WVzDeRoScONKUpNmVKyfiVbWw8aPC8L7l4yPkGgSf4ct32wS-ppxXP-B_ON_FCcMWtS2AbIX3WSnzeeo0eShJoGCFfEXLdl8qOHDKXxwhdEPnz-ThWWShttfiT-pZUmkpZd_OVGIg=w400-h266)](https://blogger.googleusercontent.com/img/a/AVvXsEgSwCgp5_gucTU8pOhZw7v9dgdC4M-JLQV0AA3VQd_1Sj0foPNn9WVzDeRoScONKUpNmVKyfiVbWw8aPC8L7l4yPkGgSf4ct32wS-ppxXP-B_ON_FCcMWtS2AbIX3WSnzeeo0eShJoGCFfEXLdl8qOHDKXxwhdEPnz-ThWWShttfiT-pZUmkpZd_OVGIg=s960)Mario Soto cuando eran presentador de Pugliese, entre éste y Morán.**
+[![](/tangos-al-bardo/images/0f5df07d4f14.jpg)](https://blogger.googleusercontent.com/img/a/AVvXsEgSwCgp5_gucTU8pOhZw7v9dgdC4M-JLQV0AA3VQd_1Sj0foPNn9WVzDeRoScONKUpNmVKyfiVbWw8aPC8L7l4yPkGgSf4ct32wS-ppxXP-B_ON_FCcMWtS2AbIX3WSnzeeo0eShJoGCFfEXLdl8qOHDKXxwhdEPnz-ThWWShttfiT-pZUmkpZd_OVGIg=s960)Mario Soto cuando eran presentador de Pugliese, entre éste y Morán.**
 **
 
 **Esa loca aventura **

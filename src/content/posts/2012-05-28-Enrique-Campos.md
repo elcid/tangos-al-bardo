@@ -16,7 +16,7 @@ El mismo Gobbi quiso traerlo a Buenos Aires y le pasó el dato de sus condicione
 
 Probó rápidamente a Troncone y no lo dejó escapar. Y le pidió que cambiara su nombre, porque ya estaban Floreal Ruiz y Ricardo Ruiz. Abrió al azar la guía de teléfono y apareció el apellido Campos. *"Ése será tu nombre desde ahora"*, le dijo.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiKiA09CsD5FpiBoYxTFm6ZoC34Wr9T2N5jNKcSjRY5BSyYv1vIymC33Qplzm7IZpQPlYTFF9Fa1tmD_xVPuTXuWD_FEEq_8umY9_krhoMHTJl9zNXo-jQRySb7J6OYUAqStXLiLbV_b8Ir/s1600/Tanturi-Campos.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiKiA09CsD5FpiBoYxTFm6ZoC34Wr9T2N5jNKcSjRY5BSyYv1vIymC33Qplzm7IZpQPlYTFF9Fa1tmD_xVPuTXuWD_FEEq_8umY9_krhoMHTJl9zNXo-jQRySb7J6OYUAqStXLiLbV_b8Ir/s1600/Tanturi-Campos.jpg)Se casaría en Buenos Aires y su esposa regentearía una florería, curiosamente en la calle Luis María Campos, que siempre atravesábamos camino al hipódromo de Palermo.
+[![](/tangos-al-bardo/images/fc7f2125582d.jpg)](/tangos-al-bardo/images/fc7f2125582d.jpg)Se casaría en Buenos Aires y su esposa regentearía una florería, curiosamente en la calle Luis María Campos, que siempre atravesábamos camino al hipódromo de Palermo.
 
 Lo seguí cuando estuvo con Roberto Caló y, especialmente, cuando actuaba en la *Richmond *de Suipacha con la dupla Campos-Calabró, el conocido bandoneonista que se encargaba de la parte musical. Nunca supe porqué pero, cuando me veía, me dedicaba el tango de Juan Fulginiti: *Llorando la carta*. Y lo anunciaba expresamente. Claro, yo era jovencito y eso me engorgullecía.
 

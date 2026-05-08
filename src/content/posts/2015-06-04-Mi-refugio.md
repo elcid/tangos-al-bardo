@@ -23,7 +23,7 @@ Numa Córdoba decía en estos versos, algo aplicable al supuesto final de la vid
 
 Pero en realidad Cobián siguió con sus hábitos de gourmet, noctámbulo y correrías, emparejadas con su enorme capacidad para crear melodías imperecederas que están retenidas en nuestros oídos para simpre. Uno piensa en *Nostalgias *de inmediato, pero la lista es larga y difícil de empardar: *Niebla del Riachuelo, Rubí, A pan y agua, Shusheta, Los mareados, Salomé, La casita de mis viejos, Pico de oro, El cantor de Buenos Aires, Piropos, Almita herida, Carnavales de mi vida, El motivo, Dolor milonguero, Es preciso que te vayas, Mujer, Snobismo*, é anche piú...
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEilZQwxCelffSrxrNK7Z4S8qssh6y5CKarLGmhls0fOl9L140T05BBskdOk_iQ3j88HTrbkiwNbgUD6yCs42pQIfo2kGLu__D7DTGrzUt8hIXTOtcq6F-A7DoxSY9OWtMeFUbWSfDDYNuU/s320/Juan+Carlos+Cobian+en+1943.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEilZQwxCelffSrxrNK7Z4S8qssh6y5CKarLGmhls0fOl9L140T05BBskdOk_iQ3j88HTrbkiwNbgUD6yCs42pQIfo2kGLu__D7DTGrzUt8hIXTOtcq6F-A7DoxSY9OWtMeFUbWSfDDYNuU/s1600/Juan+Carlos+Cobian+en+1943.jpg) Juan Carlos Cobián en 1943
+ [![](/tangos-al-bardo/images/3b7feed80611.jpg)](/tangos-al-bardo/images/71f1e8ef9fab.jpg) Juan Carlos Cobián en 1943
 
 Y como hoy arranqué con *Mi Refugio* voy a terminar con este tango. Por eso lo traigo cantado por Carlos Gardel y a continuación la versión de Carlos Di Sarli de 1941, rapidito y milonguero. Y como regalo de este día feriado, va una grabación radial súper especial.
 

@@ -17,4 +17,4 @@ Le dedicamos este espacio a un galán-cantor, de voz pequeña e incurable vibrat
  Les dejo dos temas. El primero, cantando Viván con Maglio, el tango de Di Sarli y Carrera Sotelo: *Milonguero viejo* (que Di Sarli dedicó a su ídolo: Osvaldo Fresedo). Y Alberto Castillo con Tanturi: *Cómo se pianta la vida*.   [
 ](http://www.blogger.com/goog_117037847)  [Milonguero viejo.Carlos Viván.mp3](http://www.mediafire.com/?qotxg6b7akhb1vr)
  [Como se pianta la vida.Alberto Castillo.mp3 ](http://www.mediafire.com/?4w91sxdvugus34r)
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh1U2WPbtKqO1vNn4nShqi1colIeszcN6aKSD6CERqktJEbDH6O2sEYkStD3SSEh5T8KLaiOOsSI2oZCNiD0wPGTpCFkgmsbtvT_IPW43Iq_j3gh5EefhqN9Fe5KZWIQP6z65ye3do5DNc6/s1600/Viv%C3%A1n+I.bmp)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh1U2WPbtKqO1vNn4nShqi1colIeszcN6aKSD6CERqktJEbDH6O2sEYkStD3SSEh5T8KLaiOOsSI2oZCNiD0wPGTpCFkgmsbtvT_IPW43Iq_j3gh5EefhqN9Fe5KZWIQP6z65ye3do5DNc6/s1600/Viv%C3%A1n+I.bmp)
+ [![](/tangos-al-bardo/images/d462a68b7310.bmp)](/tangos-al-bardo/images/d462a68b7310.bmp)

@@ -6,7 +6,7 @@ labels: ""
 tags: ["Carlos Di Sarli", "Juan D'Arienzo", "Mario Pomar"]
 ---
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh83qLiklkwIpwVws-vTU-nVhUirEDBUHiP8r5rcA1JfG7SzWTOfs6q1qyK7OzcG2JMN8QXq0Rrqx-rCaJtOwGum06KOOjstjgiicHsHqQhkjbqca9IsNraX-ZFy91mcU3Th_pXQd96Jv4wJNBQg4HnSoXrbfb6JpWxDQ6OQBfSlPpu1dUT4QQluFLlTQ/w200-h186/Japaree9a5b3c36a17cd5069d7ea968ca37f20--tango-argentino-argentine-tango.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh83qLiklkwIpwVws-vTU-nVhUirEDBUHiP8r5rcA1JfG7SzWTOfs6q1qyK7OzcG2JMN8QXq0Rrqx-rCaJtOwGum06KOOjstjgiicHsHqQhkjbqca9IsNraX-ZFy91mcU3Th_pXQd96Jv4wJNBQg4HnSoXrbfb6JpWxDQ6OQBfSlPpu1dUT4QQluFLlTQ/s236/Japaree9a5b3c36a17cd5069d7ea968ca37f20--tango-argentino-argentine-tango.jpg)
+[![](/tangos-al-bardo/images/dbde6669e514.jpg)](/tangos-al-bardo/images/1f753a68e53b.jpg)
 
 Con la cadencia de un tangose van armando mis pasosEl torso erguido y el brazoenvolviendo su figura..
 Le marco un giro a su talley ella elegante respondecon una vuelta adelanteque me apresuro a esquivar.

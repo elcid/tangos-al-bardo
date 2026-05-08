@@ -10,13 +10,13 @@ Hoy, 11 de diciembre es el **Día Nacional del Tango** en Argentina, y por exten
 
 Lo han dicho grandes figuras del género, y lo sostengo yo, que Eduardo Arolas y Agustín Bardi, fueron los pilares básicos en que se asentó la estructura del tango futuro. Sus páginas son tan o más modernas que las de las últimas décadas y le permiten a arregladores, orquestadores y directores no sólo incorporarlas a los repertorios de hoy día, sino que lucen frescas, diáfanas, maravillosamente asentadas en los conjuntos que las ejecutan.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhWTvKMwSLKAs9n3PWzVCO9yibX7p7nlTwfigmgs6s00UM4LUqeVn0Sndmm1y46DJ-_tbqn3bFquFsr-LROkPxmp-Ob6aCZbociEJDdBx-He0kk7FhzXj_srSJ2G4g8KGJPLOnjMFdYCGBo/s320/Eduardo%252BArolas%252BMillon_EduardoArolas.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhWTvKMwSLKAs9n3PWzVCO9yibX7p7nlTwfigmgs6s00UM4LUqeVn0Sndmm1y46DJ-_tbqn3bFquFsr-LROkPxmp-Ob6aCZbociEJDdBx-He0kk7FhzXj_srSJ2G4g8KGJPLOnjMFdYCGBo/s1600/Eduardo%252BArolas%252BMillon_EduardoArolas.jpg) Eduardo Arolas
+ [![](/tangos-al-bardo/images/50e25a29f984.jpg)](/tangos-al-bardo/images/c9a91f252fc7.jpg) Eduardo Arolas
 
 Curiosamente Arolas, impresionante compositor, era un músico empírico en sus comienzos. Y Bardi maravilloso creador, apenas tocó el violín y luego el piano en los palcos boquenses, algunos reductos pequeños y poco más. Siempre tuvo que madrugar para trabajar en cosas ajenas al tango y así ganarse el puchero. Resulta tremendo constatar como estos genios, con esa vibración hecha polen de elementos porteños y camperos, nos legaron una obra invalorable, no enturbiada por el olvido.
 
 Cualquier prenda le viene de perillas a los temas de Arolas o Bardi. Todos los arreglos le quedan a medida. Y refiriéndome a éste último, vale la pena remarcar que su obra es parejamente antológica. Son tantos los temas suyos que siguen bailándose en las milongas o incrustadas en los atriles de nuevos músicos, que cuesta creer que haya tenido que vivir de otros trabajos menores, cuando hoy día cualquier compositor, con un par de impactos ya genera beneficios abundantes.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgVh1omb9Z0hvI2gTNZ3ROKPuW2Kn99SQR-0rDX90NKgGUfQJXPFfdFhEZAmUv90GiPpL7TnjogQCptdUx_RWjfu6CUeSEIAy8ljUP1CdNQw1UkB2zux1qTJa7HcdtYCqr4hVTgYUiFrzhu/s1600/Bardi.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgVh1omb9Z0hvI2gTNZ3ROKPuW2Kn99SQR-0rDX90NKgGUfQJXPFfdFhEZAmUv90GiPpL7TnjogQCptdUx_RWjfu6CUeSEIAy8ljUP1CdNQw1UkB2zux1qTJa7HcdtYCqr4hVTgYUiFrzhu/s1600/Bardi.jpg) Agustín Bardi
+ [![](/tangos-al-bardo/images/e77b85922964.jpg)](/tangos-al-bardo/images/e77b85922964.jpg) Agustín Bardi
 
 El historiador y tangólogo, Luis Adolfo Sierra escribía sobre Bardi:
 

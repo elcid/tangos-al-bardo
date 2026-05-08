@@ -8,7 +8,7 @@ tags: ["Alfredo De Angelis", "Horacio Salgán", "Floreal Ruiz"]
 
 Un tango grabado por la orquesta de Alfredo De Angelis, cantando Floreal Ruiz, en 1944, pero que sigue destilando el espíritu placentero del recuerdo en las pistas de baile. Aunque la orquesta no sea de las más predilectas para milonguear, este tema tiene un gancho que nos impulsa. Y Floreal con la orquesta de De Angelis ya mostraba su potencial interpretativo.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjotXag63HIbam8ODheKGHmcC_REyWU978GuDc3JnF4wsobA8XNO3V5fl-rvMWlfE0Kq7ptcIAQFHnjcbgiD5DlQ6JDDfIrMhwDHZI22IDxRB8rGSy0ZpTE_W7xovyFJZoEksc7rw_C4VE4kDk7_EoJuZk-YQfowxGLNi4D8iYk8vW4LpHbvyl6PfkVG_CI/s320/Carmelo-Volpe-0bc3fc69.webp)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjotXag63HIbam8ODheKGHmcC_REyWU978GuDc3JnF4wsobA8XNO3V5fl-rvMWlfE0Kq7ptcIAQFHnjcbgiD5DlQ6JDDfIrMhwDHZI22IDxRB8rGSy0ZpTE_W7xovyFJZoEksc7rw_C4VE4kDk7_EoJuZk-YQfowxGLNi4D8iYk8vW4LpHbvyl6PfkVG_CI/s1500/Carmelo-Volpe-0bc3fc69.webp) Carmelo Volpe
+[![](/tangos-al-bardo/images/46d36d6ce67f.webp)](/tangos-al-bardo/images/141bfba52a6a.webp) Carmelo Volpe
 
 Carmelo Volpe (5/7/1909-18/3/1967) fue un poeta, escritor y dramaturgo que no destacó precisamente como letrista de tango, pero con este tema logró un impacto. En 1940 fue premiado por Radio Belgrano por su obra “*El intruso*” que fue representada en el Teatro Moderno de la Capital por la compañía de Iris Marga bajo la dirección de Alberto Ballerini. Conoció a Alfredo De Angelis que le fue presentado por Néstor Rodi y ahí surgió la alianza para componer este tango.
 

@@ -6,7 +6,7 @@ labels: ""
 tags: ["Francisco Canaro", "Alberto Echagüe", "Juan D'Arienzo", "Aníbal Troilo", "Miguel Zotto"]
 ---
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi9f6IOUF8wJ8YtKXNbWjwupvFzJfE9_I-WEUz59dALEflQiMyROenG_9KsqSby65ItSjC6KVvT60P6lHyaAHBpIZAtuP5XKwf40ggNx4-BhBODiEKxEIZsBdOzATFZGpzxO_CsjTwQ_e1z/s200/canaro.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi9f6IOUF8wJ8YtKXNbWjwupvFzJfE9_I-WEUz59dALEflQiMyROenG_9KsqSby65ItSjC6KVvT60P6lHyaAHBpIZAtuP5XKwf40ggNx4-BhBODiEKxEIZsBdOzATFZGpzxO_CsjTwQ_e1z/s1600/canaro.jpg)
+[![](/tangos-al-bardo/images/6a843e77fe49.jpg)](/tangos-al-bardo/images/5a6e36e942a8.jpg)
 *Sos de cuna humilde*
 * **y has paseado el universo,*
  * sin más protocolo, *  * que tu música y tus versos... *

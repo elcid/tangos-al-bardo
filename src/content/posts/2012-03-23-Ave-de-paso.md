@@ -18,4 +18,4 @@ Contaba Enrique Cadícamo que en 1937, el gran cantor Charlo (Carlos José Pére
  Charlo le puso una hermosa música que compuso en su acordeón y no sólo la cantó de forma brillante sino que la grabó y la utilizó de ahí en adelante como preludio de todas sus actuaciones.
  Vale la pena escucharlo, como colofón de la anécdota.
  [Ave de paso.Charlo.mp3 ](http://www.mediafire.com/?dkysvb5hgex72lc)
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh64uKEQi4rPsM6XM5OuDl8WiUeK0BcbV46Fw1LkO-4KbwWhyphenhyphenJW6Iz_hieWt3sF36HgXgwyOaMFYsWwAoK_EJjJ-Q_kL_V4tPK1G0KMevf4nNs3AfhvhfkkBJLmMG3edmt0_4P7ha17SFy-/s320/Charlo+en+1924.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh64uKEQi4rPsM6XM5OuDl8WiUeK0BcbV46Fw1LkO-4KbwWhyphenhyphenJW6Iz_hieWt3sF36HgXgwyOaMFYsWwAoK_EJjJ-Q_kL_V4tPK1G0KMevf4nNs3AfhvhfkkBJLmMG3edmt0_4P7ha17SFy-/s1600/Charlo+en+1924.jpg) Charlo en 1924
+ [![](/tangos-al-bardo/images/9ee3e92888ea.jpg)](/tangos-al-bardo/images/8872577ab61a.jpg) Charlo en 1924

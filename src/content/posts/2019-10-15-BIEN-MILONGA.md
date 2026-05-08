@@ -6,7 +6,7 @@ labels: ""
 tags: ["Osvaldo Pugliese", "Juan D'Arienzo", "Osvaldo Zotto"]
 ---
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhVwU2vAkMsz_cCZvg-WXH6EDGncv_TTNdmhT-GJsdcipUMFTpZQZDZlGBCWo8BQpSVF_oi-KLHCedxF6B6w6084Zh1QoQbK2B7A0RtyLJ1mlGNyZfgLmRf7J0b7kkafbIQpVuPjjR35Wll/s200/Tango_Boca.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhVwU2vAkMsz_cCZvg-WXH6EDGncv_TTNdmhT-GJsdcipUMFTpZQZDZlGBCWo8BQpSVF_oi-KLHCedxF6B6w6084Zh1QoQbK2B7A0RtyLJ1mlGNyZfgLmRf7J0b7kkafbIQpVuPjjR35Wll/s1600/Tango_Boca.jpg) ¿Salimos a bailar, sueño querido?
+[![](/tangos-al-bardo/images/21efe9300531.jpg)](/tangos-al-bardo/images/a5c09bdafee5.jpg) ¿Salimos a bailar, sueño querido?
 que tengo tantas cosas que decir,
 no importa que te envuelva el torbellino
 del baile, cielo mío, y sufras más así.

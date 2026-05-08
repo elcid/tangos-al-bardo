@@ -6,7 +6,7 @@ labels: ""
 tags: ["Florindo Sassone", "Homero Expósito", "Juan D'Arienzo", "Héctor Mauré"]
 ---
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg57e1UgFR4Nlohym-qFvkEEM5HwNjE783qt7DlBxHid4NaKp2o3De8HTc5EqauyGpdmK0Lqyn4fZ42wOlpoU_P4v1jiPo5qLNVePwBpzQMlvZB_7SEPaH8hOfRbvpOvAVx8tipacojZ6et/s200/PareLaviruta_milonga_tango_buenosaires.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg57e1UgFR4Nlohym-qFvkEEM5HwNjE783qt7DlBxHid4NaKp2o3De8HTc5EqauyGpdmK0Lqyn4fZ42wOlpoU_P4v1jiPo5qLNVePwBpzQMlvZB_7SEPaH8hOfRbvpOvAVx8tipacojZ6et/s1600/PareLaviruta_milonga_tango_buenosaires.jpg) Me gusta compadrear
+[![](/tangos-al-bardo/images/b8c95aa90e18.jpg)](/tangos-al-bardo/images/33d478429448.jpg) Me gusta compadrear
 soy reo pa'bailar
 Escuchen mi compás
 ¿No ven que soy gotán?

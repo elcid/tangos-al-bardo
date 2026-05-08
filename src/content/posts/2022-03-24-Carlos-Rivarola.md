@@ -24,7 +24,7 @@ El cine también les abre sus puertas y Carlos es bailarín y coreógrafo en **T
 
 Los espera Japón donde Carlos y María estarán bastante tiempo​, desde que en 1996, viajaron allí para dirigir **Los Grandes del Tango Argentino,** un espectáculo en el que estaban Copes-María Nieves, Nélida y Nelson, Mayoral y Elsa María, Carlos e Inés Bórquez y la orquesta Color Tango. Allí fundarían varias academias y clubes de tango en diversas ciudades niponas y volverían una y otra vez reclamados por los aficionados japoneses.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiiPeHZExT9BkzuQTMITurxaZo-8-n18kZNF4tywFRuTsobAoSqp6KnBYCV0Ga9nW2TUFZ_6L8GlMQUiblYSVM8DH__3pKd9ak_WMYgwwAXUXy3OcoOCgLE0trvDF1dpnM6tlc2_d7tuckZYA8950yA2wvN7fzShUdnkvcA6Z6DOTgqfe8uP3eFbI9SxA/w400-h206/TANGO78138903c846cdbac6150e4377a786d2.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiiPeHZExT9BkzuQTMITurxaZo-8-n18kZNF4tywFRuTsobAoSqp6KnBYCV0Ga9nW2TUFZ_6L8GlMQUiblYSVM8DH__3pKd9ak_WMYgwwAXUXy3OcoOCgLE0trvDF1dpnM6tlc2_d7tuckZYA8950yA2wvN7fzShUdnkvcA6Z6DOTgqfe8uP3eFbI9SxA/s960/TANGO78138903c846cdbac6150e4377a786d2.jpg)Las parejas de bailarines del espectáculo Tango Argentino
+[![](/tangos-al-bardo/images/b49ba0cdd4c9.jpg)](/tangos-al-bardo/images/9e0a963bb1b9.jpg)Las parejas de bailarines del espectáculo Tango Argentino
 
 Carlos sería primer bailarín, junto a Eleonora Cassano en la compañía *Tangokinesis*, dirigido por Ana María Stekelman, en 1998. Entre los muchos objetivos logrados con María y otros bailarines, hay que recordar la creación *Asociación de Maestros, Bailarines y Coreógrafos de Tango Argentino*, en cuya organización Carlos ha sido Presidente, buscando defender los intereses profesionales de los bailarines de tango.
 

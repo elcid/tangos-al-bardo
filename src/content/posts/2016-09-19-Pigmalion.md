@@ -15,7 +15,7 @@ En 1944 se va del conjunto de Pichuco con Fiorentino y dirigirá la orquesta que
 
 Y ese día había llegado. Estuvieron conversando, quedaron en verse y Homero le trae unos versos que Piazzolla entrevió de inmediato como ideales para hacerse un hueco en ese terreno. Ese tango se llamaba **Pigmalion**, como la famosa obra teatral de Bernard Shaw, basada en el mito del escultor enamorado de la estatua de Galatea, que él mismo había hecho. En el tango, Expósito vuelve a remover las cenizas del amor trunco, aquellas trenzas (que me anudan al portón), pasión juvenil que le dejaron tamaña cicatriz y lo hace de manera distinta, renovadora del lenguaje tanguero.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgVmyCCuS_pnH4q5GlUZKI000JXfV_XQrytM09jTFeLJQCKDlyVqC3hQEtbeHM_nUmvpW5vmZcAGs_XUCfhT5_J7FuAr6oBVL1cDy3qLY2epmIZg8OvaRtKnApvMwOtv-bohbMQAQlyXFKY/s1600/Pigmalion.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgVmyCCuS_pnH4q5GlUZKI000JXfV_XQrytM09jTFeLJQCKDlyVqC3hQEtbeHM_nUmvpW5vmZcAGs_XUCfhT5_J7FuAr6oBVL1cDy3qLY2epmIZg8OvaRtKnApvMwOtv-bohbMQAQlyXFKY/s1600/Pigmalion.jpg)Te forjé con mis sueños en flor,
+[![](/tangos-al-bardo/images/4674ec2c6674.jpg)](/tangos-al-bardo/images/4674ec2c6674.jpg)Te forjé con mis sueños en flor,
 tal vez me equivoqué
 pero eso es el amor...
 No debía creerte y te creía
@@ -29,7 +29,7 @@ y equivocado como yo.
 
 A Piazzolla, los versos le *dolieron*. Algo sabía de la historia que Expósito desgranaba en sus tangos (como en *La misma pena*, que volvería a unirlos en la composición), pero le parecieron distintos a los habituales y los vistió con música para estrenarlo con su orquesta y la voz del cantor Héctor Insúa, que se encontró con un tema nada fácil.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi7qjDlNGsFsmDGMCws7ccBq76dJOZx4bnCSKOjQa8t7EDd19i_7ej_4qCdjd8R_12ccn3M11wdSHbPoWb7mxiClUcbdDFmooMq-bWpfYRvKj1C237yBK_qzvR7ONCHHbRTa_Rys8OnsiH3/s200/home.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi7qjDlNGsFsmDGMCws7ccBq76dJOZx4bnCSKOjQa8t7EDd19i_7ej_4qCdjd8R_12ccn3M11wdSHbPoWb7mxiClUcbdDFmooMq-bWpfYRvKj1C237yBK_qzvR7ONCHHbRTa_Rys8OnsiH3/s1600/home.jpg) Homero Expósito  Vieja historia repetida
+ [![](/tangos-al-bardo/images/e5f26399c8af.jpg)](/tangos-al-bardo/images/ae2baf7b7615.jpg) Homero Expósito  Vieja historia repetida
 de los sueños juveniles...
 ¿En qué momento te dió vida
 la cajita de buriles

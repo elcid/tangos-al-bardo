@@ -18,7 +18,7 @@ Sin embargo, con cuanta facilidad y sonrisa mediante, entienden el concepto cuan
 *"...El vendedor le bate que le va a arreglar cualquier fato en caso de balurdo...*
 
 * *
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj4TzudZjnUT19yXyn_ZGn-d4cIH8Jxbz5MJKLghsK5bpYcrrIGMO3fH1c9D_yGIXEbVvzSmtsCiCkIzUlOPS49Y9IqBN9zed7NdmTHwjxAJB323WFEVFfv9SrDj6vi6Bn_92BJaW0IjFs/s1600/ETCHEGARAY+NATALIO+04.JPG)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj4TzudZjnUT19yXyn_ZGn-d4cIH8Jxbz5MJKLghsK5bpYcrrIGMO3fH1c9D_yGIXEbVvzSmtsCiCkIzUlOPS49Y9IqBN9zed7NdmTHwjxAJB323WFEVFfv9SrDj6vi6Bn_92BJaW0IjFs/s1600/ETCHEGARAY+NATALIO+04.JPG) El escribano Natalio Etchegaray
+ [![](/tangos-al-bardo/images/f94fd499b92c.jpg)](/tangos-al-bardo/images/f94fd499b92c.jpg) El escribano Natalio Etchegaray
 Y a continuación se saca de la manga este fragmento de escritura en lunfardo:
 
 **"Venta: De la Púa, Iván, a Yacaré, Celedonio.**
@@ -35,7 +35,7 @@ Yo, el escriba, apunto que embrocados los pelpas (...) tanto el prontuario del b
 Título: Al trompa le tocó el bulín hace tiempo cuando se abrieron con su jermu y separaron los tantos.
 Leo esta escritura a los puntos contratantes, quienes apiolado de la misma, zampan el gancho, ante emi doy efe".
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiExDMfIh_C5OM11KQdPtlhLEIuweTyBBh23ljAYfyFfqFSy9u_kvi7XPQ2sA_Ot4ZXRFm_CiZ7kh7-3HpHQww1TadVO21YR7J7y8gDiQKqwhwcEiZwK2mchJ6zHk55l_DfyIpveo4t9Pc/s1600/escanear0002.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiExDMfIh_C5OM11KQdPtlhLEIuweTyBBh23ljAYfyFfqFSy9u_kvi7XPQ2sA_Ot4ZXRFm_CiZ7kh7-3HpHQww1TadVO21YR7J7y8gDiQKqwhwcEiZwK2mchJ6zHk55l_DfyIpveo4t9Pc/s1600/escanear0002.jpg) Osvaldo Pugliese, Juan Carlos Pugliese y Natalñio Etchegaray
+ [![](/tangos-al-bardo/images/65302af0a72c.jpg)](/tangos-al-bardo/images/65302af0a72c.jpg) Osvaldo Pugliese, Juan Carlos Pugliese y Natalñio Etchegaray
 
 Como he dicho, fue muy amigo de Osvaldo Pugliese y éste en retribución de su amistad le dedicó su tango: **Protocoleando**, que grabó con su orquesta el 15 de noviembre de 1985.
 

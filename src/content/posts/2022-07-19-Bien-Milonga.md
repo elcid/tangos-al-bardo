@@ -6,7 +6,7 @@ labels: ""
 tags: ["Francisco Canaro", "Carlos Di Sarli"]
 ---
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiBtcQebN_RM1rNNbXC7cHI-QRNf6H-JG79E9HBE3M50wF-mpoJfik9huoN5Yuf-25JsHTF9oHpDOF3CJx3FIJBbtQEyhwnvQ9qsmGXPJuPTL3yHY7k0AoFCZ2gSBNpjuahuMiCWAHQjofbYa8dslWKFSDyVk1PbWUl5yjNU3zNaL1VMp55jZUH2wPUKQ/w200-h133/Japare.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiBtcQebN_RM1rNNbXC7cHI-QRNf6H-JG79E9HBE3M50wF-mpoJfik9huoN5Yuf-25JsHTF9oHpDOF3CJx3FIJBbtQEyhwnvQ9qsmGXPJuPTL3yHY7k0AoFCZ2gSBNpjuahuMiCWAHQjofbYa8dslWKFSDyVk1PbWUl5yjNU3zNaL1VMp55jZUH2wPUKQ/s669/Japare.jpg)
+[![](/tangos-al-bardo/images/a0f983bb870e.jpg)](/tangos-al-bardo/images/33f92befc0d3.jpg)
 
 Pero al fin bajarás la voz
 
@@ -24,7 +24,7 @@ Es el compás del tango, el de una milonga o el del valsecito, el que nos une en
 
 Como va a suceder por ejemplo, en BIEN MILONGA esta noche de Martes 19 de Julio, desde las 21 a las 0 horas en la coqueta pista de la CASA de ARAGON, donde los esperamos como todos los Martes del año.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgXWL_u7L0lyurppUY3b7YtZVBgCn4wS4S_TjGzZl62Tuyczbn_OQueJpSP5SHonbS_d5mVkewyUUeKtIuzSKnGDXN3DFRlKFsqZzZ8KgwFvgdoXGy4nYTUSKcD_ZlUlvtL-VmJWXa8SrGOT1rby0pH-LdtNVOF0pAtH37WKEFKpisLn3eXu359AS_UpQ/w428-h640/BM22_23.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgXWL_u7L0lyurppUY3b7YtZVBgCn4wS4S_TjGzZl62Tuyczbn_OQueJpSP5SHonbS_d5mVkewyUUeKtIuzSKnGDXN3DFRlKFsqZzZ8KgwFvgdoXGy4nYTUSKcD_ZlUlvtL-VmJWXa8SrGOT1rby0pH-LdtNVOF0pAtH37WKEFKpisLn3eXu359AS_UpQ/s788/BM22_23.jpg)
+[![](/tangos-al-bardo/images/86d2fce660ce.jpg)](/tangos-al-bardo/images/07ee7220d711.jpg)
 Para ir calentando motores, como de costumbre, nos paseamos por distintas pistas tangueras del mundo, donde vemos a diferentes parejas en sus exhibiciones bailables.
 Anclamos, por ejemplo, en *La milonga porteña*, de Napoli, Italia, donde Carlos Espinosa y Agustina Piaggio bailan el tango** Milonguero viejo**, por la orquesta de Carlos Di Sarli.
 

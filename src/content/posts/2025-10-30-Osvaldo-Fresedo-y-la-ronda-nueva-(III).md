@@ -22,7 +22,7 @@ Preguntamos al maestro Fresedo si en este conjunto los bandoneones hacían dos v
 -“Mire, hacíamos lo que venga, porque Loduca lo que quería era ganarse unos pesos”.
 Fueron grabados en 1917 siete discos en los que se anuncia haber sido realizados con dos bandoneones, pero hay tres discos más del mismo año que también podrían serlo:
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg-NZwNubPidlwVtnkwU86cIfgMz2VuWOt6gqTcEFqD7FzFbUzrQT38v68jy7Cqg9F6J3KSj6hUXwccZxH-IGiAFnXlxX2MUM264ixnwxMERcWfNZmV1j4-66autxiYqwtBSC0Y2xjUl2032zO5gA35KZWaHy-h4lW47FR_BVgnieTBplaBDDNkkrdH4FpQ/s320/LODUCA%20%2020230920171743_vicente-loduca.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg-NZwNubPidlwVtnkwU86cIfgMz2VuWOt6gqTcEFqD7FzFbUzrQT38v68jy7Cqg9F6J3KSj6hUXwccZxH-IGiAFnXlxX2MUM264ixnwxMERcWfNZmV1j4-66autxiYqwtBSC0Y2xjUl2032zO5gA35KZWaHy-h4lW47FR_BVgnieTBplaBDDNkkrdH4FpQ/s336/LODUCA%20%2020230920171743_vicente-loduca.jpg)Vicente Loduca
+[![](/tangos-al-bardo/images/e4732e2df26c.jpg)](/tangos-al-bardo/images/568602888d6b.jpg)Vicente Loduca
 
 En la presente discografía de Vicente Loduca –Ya publicada al referirnos a la trayectoria de este bandoneonista en el tomo I de esta serie- hemos querido salvar la omisión de la placa 65905 y la consiguiente alteración de los números correlativos en los discos siguientes.
 Como vemos en ella, a partir del fonograma 69717 del año 1917 recién aparece la aclaratoria: “Dos bandoneones Loduca-Fresedo”; como señala nuestro querido y sapiente investigador don Horacio Loriente –gracias a quien brindamos esta discografía- es posible que también lo sean los demás de 1917, lo que concuerda con lo expresado por Fresedo, quien aseguraba haber comenzado a grabar con Loduca en 1917.

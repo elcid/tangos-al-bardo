@@ -21,7 +21,7 @@ Acompañaría con su orquesta a numerosos cantores: Hugo Gutiérrez, Raúl Iriar
 **
 **[San Pedro y San Pablo.mp3](http://www.mediafire.com/?26rwz9dijs28f4v)**
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgnRYSRYf_m7zUDMQgcCuNG7Za_duhoscvwIafvM6mmflHpvDqAqXmbpwB5r9kki5aNVDIQl1GT2L3PNrck8EwPTV2wqSsF2aCZGskpnHJx88QFn-adLoPQjL1LVf5Djk_taIVr52PlElrm/s1600/Ismael+Spitalnik.bmp)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgnRYSRYf_m7zUDMQgcCuNG7Za_duhoscvwIafvM6mmflHpvDqAqXmbpwB5r9kki5aNVDIQl1GT2L3PNrck8EwPTV2wqSsF2aCZGskpnHJx88QFn-adLoPQjL1LVf5Djk_taIVr52PlElrm/s1600/Ismael+Spitalnik.bmp)** **[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiwNCvgbpJN63sKL_E9QI8-xR3ORseCgberYt2xc7kp7S58a7nTYmpXZKq1SjAdsi81RxiLdzbCM4gOb9OO8FkPiTquBqoYjo5vB1mffPU2pFCs8WSpZn_CLtAj3L2hoGhZJhbolgzcjWgv/s1600/Un+simple+vals.bmp)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiwNCvgbpJN63sKL_E9QI8-xR3ORseCgberYt2xc7kp7S58a7nTYmpXZKq1SjAdsi81RxiLdzbCM4gOb9OO8FkPiTquBqoYjo5vB1mffPU2pFCs8WSpZn_CLtAj3L2hoGhZJhbolgzcjWgv/s1600/Un+simple+vals.bmp)
+[![](/tangos-al-bardo/images/583d5aa89452.bmp)](/tangos-al-bardo/images/583d5aa89452.bmp)** **[![](/tangos-al-bardo/images/5b36729703b6.bmp)](/tangos-al-bardo/images/5b36729703b6.bmp)
 **
 **
 **

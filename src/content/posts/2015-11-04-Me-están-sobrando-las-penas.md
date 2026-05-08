@@ -10,7 +10,7 @@ Anoche, en un momento dado de la milonga, puse este tema de Carlos Bahr, Argenti
 
 Pero, a la vez de escucharlo y bailarlo, me vino a la memoria el recuerdo un tanto diluído por los quiebros y requiebros del tiempo transcurrido, aunque alcanzo entre la neblina de los años, a visionar un café y una charlita con Manolo Sucher y Carlos Bahr en el Café de la esquina de radio El Mundo. Sucher se levantó a saludar a dos personas y seguimos conversando con Bahr.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhyB7_GlVpbOBQUV0mfhcR6o5_pkxQogBzwl71YgG4Vccpk86exw_w1Lme-cedVyzmiHgFj-kQ6nXl3aRy7-SOuymI0XviUj7wWgAB12OS6zgvf6g2bvECgco9B4juSsUxjvxNC3BCcKk4/s320/img053.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhyB7_GlVpbOBQUV0mfhcR6o5_pkxQogBzwl71YgG4Vccpk86exw_w1Lme-cedVyzmiHgFj-kQ6nXl3aRy7-SOuymI0XviUj7wWgAB12OS6zgvf6g2bvECgco9B4juSsUxjvxNC3BCcKk4/s1600/img053.jpg) Carlos Bahr
+ [![](/tangos-al-bardo/images/07cd5c6e357b.jpg)](/tangos-al-bardo/images/9966ca4def2a.jpg) Carlos Bahr
 
 
 Siempre admiré la obra de este autor de tantas páginas imperecederas, por la calidad de las mismas y los socios musicales que lo acompañaron en cada caso, en la música de dichas obras. Durante un par de décadas, su pluma fértil alumbró infinidad de páginas que hicieron nido en el corazón de los tangueros. La calidad y cantidad de las mismas, pocos autores pueden igualarla. Sin embargo suele pasar de puntillas por la historia grande del tango, por esas cosas inexplicables que con tanta frecuencia ocurren.

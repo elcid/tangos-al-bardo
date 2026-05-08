@@ -10,7 +10,7 @@ La estación que sucede al verano y antecede al invierno, es seguramente, la má
 
 Pero también son días para encontrar algo que nos renueve las emociones y prestemos más atención a muchas cosas que nos pasan, que nos rodean, como la naturaleza y la música, que son inspiradoras y fecundas. Desde mi ventanita florida veo los árboles y el verde del parque vecino, mientras escucho música y escribo. Todo eso me sirve para recrear ese archivo incrustado, aquellos paisajes del alma, que decía Unamuno, sumergiéndome en reverberaciones melancólicas, quizás.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiKD9jB5V5nOEoSv6DBijmpUm_5XAzUzWm151lfdOca1GTLOUrjlIhAytLi4BUNEffhMzlJb1zpUwIegiJFtxCRJREU_HHxXfRM7PzZeWSdinUf9We3EZoAAX_2WLzscGHk9KR61mRFT9w/s400/img047.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiKD9jB5V5nOEoSv6DBijmpUm_5XAzUzWm151lfdOca1GTLOUrjlIhAytLi4BUNEffhMzlJb1zpUwIegiJFtxCRJREU_HHxXfRM7PzZeWSdinUf9We3EZoAAX_2WLzscGHk9KR61mRFT9w/s1600/img047.jpg) Enrique Mario Francini y Aníbal Troilo
+ [![](/tangos-al-bardo/images/334646818a84.jpg)](/tangos-al-bardo/images/b7d3f61453e1.jpg) Enrique Mario Francini y Aníbal Troilo
 
 Como las imágenes efímeras que titilan en la pantalla del ordenata, mi cabeza y mi cuore viajan con esta música que escucho en la manaña luminosa, Sin nubes en el horizonte. Y me estoy acordando de Enrique Mario Francini y sus viajes emocionales con el violín. Un músico maravilloso y sencillo como hombre de pueblo, al que vi tantas veces, incluso pasando un momento dramático cuando subió al palco que esperaba aquel regreso tan esperado de Juan Domingo Perón en el tinglado preparado cerca del aeropuerto de Ezeiza, junto a otros integrantes de la orquesta del Teatro Colón..
 
@@ -18,11 +18,11 @@ De repente comenzó un tiroteo brutal y los músicos debieron tirarse de bruces 
 
 Se organizó un Festival en homenaje a Pichuco -fallecido tres años antes, el domingo 27 de agosto de 1978, al que acudía Zita, la compañera de Troilo. El gordo Francini -para muchos el mejor violinista de la historia del tango-, estaba algo mal de salud pero decidió acudir y *Chupita* Stamponi que hacía dúo con su amigo de toda la vida, pidió tocar en primer término para que Enrique pudiera irse a descansar.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiUEjtMXYRtLJ8ZJ3rjX5ehdNMg3XKEVICpE4XOOXeb8poQPx8Z8vatkL_d_jI2D0aS6KuHMOLlyhG1sakAhVvPMt6aGv2UiC0WTNtZD9qR0QATP0oWsblCdKEpkOL4urBNAQMy-GqF_bo/s320/Francini+y+Stamponi.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiUEjtMXYRtLJ8ZJ3rjX5ehdNMg3XKEVICpE4XOOXeb8poQPx8Z8vatkL_d_jI2D0aS6KuHMOLlyhG1sakAhVvPMt6aGv2UiC0WTNtZD9qR0QATP0oWsblCdKEpkOL4urBNAQMy-GqF_bo/s1600/Francini+y+Stamponi.jpg) Enrique Mario Francini y Héctor *Chupita* Stamponi
+ [![](/tangos-al-bardo/images/272c48d6cf89.jpg)](/tangos-al-bardo/images/5b6074d24fe4.jpg) Enrique Mario Francini y Héctor *Chupita* Stamponi
 
 Los presentó Ana María Micheli, arrancaron con *La casita de mis viejos *y siguieron con *Mi noche triste*. Estaban tocando *Nostalgias* entre grandes aplausos, cuando de repente Francini cae al suelo como impactado por un rayo. Lo atendieron de inmediato los doctores Matera y Márquez, mientras él agonizante preguntaba por su violín, pero ahí se quedó para siempre el querido *Gordo* Francini.
 
-  [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg429BszlMTzTnYUwO26bgDwLwljjHursP2N-AhuBXrlDWLZREKjkPdTan2jNntU4wNx1_M7pmoQ1pEwZkYlGuNCqXhJFkZyo0VBs4l4wS3abvJUufZ7IC1zxIdl1s6ZHEILlqCN-2IdMs/s400/img046.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg429BszlMTzTnYUwO26bgDwLwljjHursP2N-AhuBXrlDWLZREKjkPdTan2jNntU4wNx1_M7pmoQ1pEwZkYlGuNCqXhJFkZyo0VBs4l4wS3abvJUufZ7IC1zxIdl1s6ZHEILlqCN-2IdMs/s1600/img046.jpg) Enrique Francini, Alfredo Gobbi y Hugo Baralis, tocan en la orquesta de Troilo
+  [![](/tangos-al-bardo/images/3f76c0eb75cd.jpg)](/tangos-al-bardo/images/472222fba3e1.jpg) Enrique Francini, Alfredo Gobbi y Hugo Baralis, tocan en la orquesta de Troilo
 Yo tenía un recuerdo suyo mucho más amable y gracioso, que sucedió en ese mismo mítico local. Era una velada que ya se acababa, quedaban los últimos amigos, saturados de noche, compinches de Pichuco, tangueros de alma. Afuera, en la calle estaba destemplado, frío, ventoso, y entonces Troilo le dijo a Francini:
 
 -S*ubí y tocate un par de temas con toda tu polenta, para cerrar...*

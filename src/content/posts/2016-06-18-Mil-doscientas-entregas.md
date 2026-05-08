@@ -10,7 +10,7 @@ Efectivamente, con esta entrega de hoy, culmino las 1200 páginas de **Tangos al
 
 Mis *papers* son mucho más modestos, pero llevan implícitos una carga de trabajo por la afección a algo relacionado con la cultura y el arte, como es el tango. Y me produce mucho orgullo poder llegar a tangueros y milongueros del ancho mundo que siguen esta página que hoy llega a su número 1200, que se dice pronto. Sin tener la grandiosidad de los *Panamá papers* -porca miseria- nos sirven para seguir el hilo y las vicisitudes de todos aquellos que siguen haciendo grande el tango con su obra.
 
- ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjoqQTB61nv1mjAUMR_0ooo5Rlur_402zIG6CJH-GHBhspQO9psuKCN_-LdO5g5p_-2sqPk9tq0ebIDbPVAHQH5cw2T-P6uIMIjHnzGeVYb_VzyaeSXuHQJ01Ba0PgLa4wmhxkb7SJoxjVy/s400/Par.jpg)
+ ![](/tangos-al-bardo/images/9187fcfbf549.jpg)
 
 Y como esta noche tenemos **BIEN MILONGA** en Madrid, y como representación de los que se lucen en el encerado o en un escenario, mostrando la grandeza del tango bailado; para festejar el acontecimiento voy a traer a tres parejas que subliman el arte milonguero y pasean sus estilos y dibujos por aquí, por allá y por acullá. *Chán chán.*.
 

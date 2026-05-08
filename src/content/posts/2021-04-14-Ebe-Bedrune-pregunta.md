@@ -6,9 +6,9 @@ labels: ""
 tags: ["Roberto Firpo"]
 ---
 
-[](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEisUIL4ujV-ud-51tsu7MNBJSHJrdr3KBYS1J6prC3KFoTCSV-RXnfG9vBgNPSnGmfCIVmI6HAHOEAysh6QjQyx1r5wE0yzxZdICuXewNEN1vxgg74FHWvbk9tvcZ2kswJmlzTDFrMf22bc/s300/FirpoA-1048784-1431728776-4048.jpeg) ...**y Roberto Firpo contesta.**
+[](/tangos-al-bardo/images/9054db6b2c5b.jpeg) ...**y Roberto Firpo contesta.**
 [
-](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEipa9b74JnWvrhAGr15Ve5KrU1hhlyY37wM8zAf0VaXIri7qHWgQ98AHnFVBpMtWqfaMCbtpDzRqenu2UpyoErN8-XT1jh84xPo8oVn-WakFiyV8qj2yyF_lRcEyOOTMH0-mzQciEQ8BM11/s142/Z425+copia.jpg)
+](/tangos-al-bardo/images/0d7696723d94.jpg)
 
 Roberto Firpo. Bastaría *Alma de bohemio* para definirlo.
 

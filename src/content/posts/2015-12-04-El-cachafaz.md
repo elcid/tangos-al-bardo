@@ -11,7 +11,7 @@ Dejó, tras sus pasos de bailarín de tango, un halo de leyenda que ningún otro
 A esta última tuve la suerte de conocerla porque murió con 100 años cumplidos, en 2005. Se llamaba Carmen Micaela Riso de Cancellieri y para que su padre no se enterara que bailaba tango, adoptó el apllido de su abuela materna; Calderón. Curiosamente, su madre era la maestra secreta.
 -*Cuando bailás, no mirés al suelo, levantá siempre la cabeza* -le decía-, y le corregía la postura.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgXM8JO9JXwCmlnCmW2rt0fFxExIowQE1weFjufJDU5AQMg7PwxXrpDHyqndzG9BVAIG-Nhzas1q0PdV7-rhw6lZ8cxBCm-8AbYs73j-a00A98Z_O3Duszsu3wTXoixEzPIIB8KdPqEPNZQ/s320/El-Cachafaz.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgXM8JO9JXwCmlnCmW2rt0fFxExIowQE1weFjufJDU5AQMg7PwxXrpDHyqndzG9BVAIG-Nhzas1q0PdV7-rhw6lZ8cxBCm-8AbYs73j-a00A98Z_O3Duszsu3wTXoixEzPIIB8KdPqEPNZQ/s1600/El-Cachafaz.jpg) El Cachafaz y Carmencita Calderón
+ [![](/tangos-al-bardo/images/f5fe55d4c414.jpg)](/tangos-al-bardo/images/9dde91e5a156.jpg) El Cachafaz y Carmencita Calderón
 
 Con el Cacha, que le llevaba 16 años de diferencia, y no la tuteaba, bailó en la película **Tango**, de 1933, y estuvo 10 años acompañándolo en sus filigranas, sin ensayar jamás una coreografía, sino improvisando sobre la música, hasta la muerte súbita del mítico Cachafaz. Trabajando en El Rancho Grande, de Mar del Plata, durante un descanso, caería fulminado de un infarto. Para ella:
 *"No hubo ni habrá otro bailarín como él. Porque nadie inventó tanto ni fue tan elegante". *

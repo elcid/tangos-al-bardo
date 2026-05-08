@@ -8,7 +8,7 @@ tags: ["Alfredo De Angelis", "Juan Carlos Copes", "Eduardo Del Piano", "Joaquín
 
 Esta foto reúne a los tangueros que se reunieron en el Hipódromo de Palermo, para asistir a la inauguración de un busto de Carlos Gardel, en ese circo hípico. Ocurrió el 24 de junio de 1985, recordando el cincuentenario de la desaparición del gran cantor.
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjQ14goVI9Jx-FdzSxxEbGPZtZqL0NpZlFxuQ7uJiWS39WFQhVfUQrbpDCS6KJ87cmQxMx6QG3_l-_vpzHMUXD29c2xdk2aU2h_GbXlp-JUlS2w_cLhpIf75xQfHrrCR8pYIDRkFXTMjE4CMkLJoLBnag2uivSWMMPM8ZY3K4wmyznF6iLg3xGXPGZwwL9a/w400-h241/Busto%20de%20Gardel%20en%20el%20HP%20de%20Palermo%20001.bmp)
+![](/tangos-al-bardo/images/5668857a423f.bmp)
 
 Lo organizó la Asociación Gardeliana que presidía el Juez Penal en San Isidro, Víctor Sasson, reconocido fan de ese género musical y quien encargó al escultor y elogiado artista plástico Ernesto Bourse Herrera, la realización del mismo.
 

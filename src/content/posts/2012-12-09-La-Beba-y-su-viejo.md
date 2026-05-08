@@ -10,7 +10,7 @@ Me cuenta Beba Pugliese que debutó con su hija María Carla y Axel Mastronardi,
 
 A continuación Beba con su orquesta actuó en el Museo de la Memoria donde funcionó la tenebrosa ESMA donde torturaron e hicieron desaparecer a tantos miles de jóvenes que lucharon por sus ideas y contra los represores de la década infame de los setenta.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgoF3OvIQaLHGRo0-n5uhmQKUjCo-N4uhdnukW6vZDF7E2ASD_H3KEC7hovjF5TriXSGX6q-chgBQ0g3HExEA0KrHwV0upSmqbPJVDFallxUNRrH8cg8q6YyFyQUMTBn19Qf-gcPcMR5dWO/s320/Beba+y+su+hija.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgoF3OvIQaLHGRo0-n5uhmQKUjCo-N4uhdnukW6vZDF7E2ASD_H3KEC7hovjF5TriXSGX6q-chgBQ0g3HExEA0KrHwV0upSmqbPJVDFallxUNRrH8cg8q6YyFyQUMTBn19Qf-gcPcMR5dWO/s1600/Beba+y+su+hija.jpg) Beba y su hija María Carla  Con Beba mantengo una relación constante y es como estar un poco junto al querido Don Osvaldo por los recuerdos que fluyen a cada momento, como si Beba no tuviese historias propias, que las tiene y muchas.
+ [![](/tangos-al-bardo/images/b53bec61f2d8.jpg)](/tangos-al-bardo/images/3a0d072714df.jpg) Beba y su hija María Carla  Con Beba mantengo una relación constante y es como estar un poco junto al querido Don Osvaldo por los recuerdos que fluyen a cada momento, como si Beba no tuviese historias propias, que las tiene y muchas.
 
 Sin embargo y gracias a mi amigo Carlos, del barrio de Flores, tengo la grabación de un reportaje radial que le hicieron a Lucela Delma (nombre real de Beba), donde narra las vicisitudes que pasó su padre con distintos gobiernos, las veces que estuvo en la cárcel y todo lo que narró en este libro que tuvo la gentileza de remitirme en su día.
 

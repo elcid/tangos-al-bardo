@@ -26,7 +26,7 @@ El periodismo impuso un paréntesis grande en mi vida. Viajé por toda América,
 
 En ese renacer del Tango, hubo algunas parejas de bailarines que fueron vitales para la recuperación milonguera: Copes-María Nieves, Zotto-Milena, Virulazo-Elvira, los Dinzel, Osvaldo Zotto-Lorena, Nélida-Nelson y otros.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjLM36r4IL_Hu1Z-ed10qwG21yLPHMTPk2sOXLKNO285Zym_fU67Y6DlHKfy0yy91gqEtWbY-9USSA_9WqeAdPgSXScTNeyozO-x_Oz-6SgLpgVYQwBedIXVjCfcs2Ev-ALv7s0zK3O_WA/s1600/Javier+&+Geraline.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjLM36r4IL_Hu1Z-ed10qwG21yLPHMTPk2sOXLKNO285Zym_fU67Y6DlHKfy0yy91gqEtWbY-9USSA_9WqeAdPgSXScTNeyozO-x_Oz-6SgLpgVYQwBedIXVjCfcs2Ev-ALv7s0zK3O_WA/s1600/Javier+&+Geraline.jpg) Javier y Geraldine
+ [![](/tangos-al-bardo/images/da3407d858f1.jpg)](/tangos-al-bardo/images/da3407d858f1.jpg) Javier y Geraldine
 
 Y siempre traigo a la palestra a esa parejita joven que terminó disolviéndose tempranamente, como lamentablemente suele acontecer, y que le dieron un gran salto de calidad y renovación al tango y viajaron por infinidad de países, en alas de su gran calidad. Una dupla que funcionaba mágicamente, porque habían sido milongueros, antes de dedicarse al baile profesional, al cual llegaron naturalmente por decantación. Me refiero a Javier Rodríguez y Geraldine Rojas.
 

@@ -10,7 +10,7 @@ De jovencitos nos gustaba mucho lo de discutir sobre cual era la mejor interpret
 
 Hoy casualmente estaba escuchando un tango del año 1928, que tiene diferentes versiones y me gustan mucho. Me refiero a ***Pobre mascarita***, de Calógero Salvador Granata y el pianista uruguayo Orlando Romeo Romanelli. Agustín Magaldi fue el primero en grabarlo acompañado por sus guitarristas, el 16 de febrero de 1928, convirtiéndolo en gran éxito.
 
- ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjgrZI8qY2hoe0HkfW0NixU1RcGgBiZrar9mwPBKlxY4DQSPqbN66Ww6o6ow5Ic8XsuYcCTjv1nyvXrwgORGiGoNMkqfnxJ1dp9gGqMOEaSnuSGzJhMdoBu3-JI6e7vgOITBFAxJ817SXg/s1600/Magaldi.jpeg) Agustín Magaldi con sus guitarristas
+ ![](/tangos-al-bardo/images/95bae15fc008.jpeg) Agustín Magaldi con sus guitarristas
 Como acotación al margen, vale la pena señalar que Calógero Salvatore Granata, nacido en Italia, era hermano del destacado trompetista argentino Roy Granata. Los padres de ambos, italianos, se radicarían en Buenos Aires, donde tendrían a Roy y otro hijo más.
 
 Yo suelo pasar la versión muy milonguera que realizó Juan D'Arienzo con su orquesta y el cantor rosarino Juan Carlos Lamas, y que grabaron el 29 de diciembre de 1942. La pista se pone al completo con esa terminal nerviosa que le imprime *el rey del compás* a sus músicos y que realmente contagia hasta escuchándolo en casa, cuando lo milongueo en solitario.

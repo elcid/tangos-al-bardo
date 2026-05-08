@@ -21,7 +21,7 @@ En Madrid actuaría luego en locales prestigiosos, antes de comenzar una gira po
 
 De regreso en Buenos Aires tiene bastante trabajo y por su orquesta desfilan figuras de la talla de Alfredo Gobbi, Orlando Goñi o Jaime Gosis.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjWfraAFpNS-rj16sZGTHYBvw2vyl3dtjElrrOfHRGiRfwXPWWkawXzkkk7cOU9Ak3swVj-E_R-jQDFfdS-g1xXhtWPlJPQxUkaBHn93D9eu5WmzOX-nB1Zb_1uQkcf8sjRJh5quJBOfn-n/s1600/Mano_brava_b.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjWfraAFpNS-rj16sZGTHYBvw2vyl3dtjElrrOfHRGiRfwXPWWkawXzkkk7cOU9Ak3swVj-E_R-jQDFfdS-g1xXhtWPlJPQxUkaBHn93D9eu5WmzOX-nB1Zb_1uQkcf8sjRJh5quJBOfn-n/s1600/Mano_brava_b.jpg)Entrados en la década del cuarenta con el fervor tanguero en la cúspide, Amadeo Mandarino es su vocalista y compone un éxito perdurable como la milonga *Mano Brava*, con letra de Enrique Cadícamo, que Troilo grabará con la voz de Fiorentino, el 4 de marzo de 1941.
+[![](/tangos-al-bardo/images/456f344a771d.jpg)](/tangos-al-bardo/images/456f344a771d.jpg)Entrados en la década del cuarenta con el fervor tanguero en la cúspide, Amadeo Mandarino es su vocalista y compone un éxito perdurable como la milonga *Mano Brava*, con letra de Enrique Cadícamo, que Troilo grabará con la voz de Fiorentino, el 4 de marzo de 1941.
 También escribe otros temas meritorios: *Cancionero *o* Al cerrar los ojos.*
 
 La muerte lo sorprendió temprano, en 1954. Contaba 50 años.

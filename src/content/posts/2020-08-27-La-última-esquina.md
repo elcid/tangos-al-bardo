@@ -8,7 +8,7 @@ tags: ["Edmundo Rivero", "Alfredo Gobbi", "Néstor Fabián"]
 
 No me puedo resistir a traer estos hermosos y nostálgicos versos que se transformarían luego en valsecito. Ese entrañable poeta que fue Juanca Tavera (Juan Carlos Moscón), que llevaba sangre italiana en sus venas y que manejó instrumentos musicales desde su adolescencia, como el acordeón, entró tarde en el tango porque antes escribió distintas canciones. Tenía 37 años cuando se lanzó con su primer tango: **Sueño de hollín**. Éste le dio impulso para escribir a continuación otros tres: **Pastillas de dormir, Mordiendo el puño** y **Dos ilusos**.
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjQ1th_UgFTbG3YLjhuCtWnmFwcI65fenR9x3k_6u1bv9V7ET7RnLbSabyi1QgE4BhCqeoNbIX6iCI7ZPUzjz3249HtNOVMmscL1v8Mb-rjGap_BagmrNbK3yKcuHK11VgmkjzO8PAuOwYx/s0/juanca-tavera-D_NQ_NP_350215-MLA25194193678_112016-Q.jpg)
+![](/tangos-al-bardo/images/7336210d8e64.jpg)
 
 De su amistad con Néstor Fabián, que cantó algunos de sus tangos, nace una relación que será vital en su futuro tanguero. Éste le presenta a Osvaldo Tarantino el gran pianista, compositor, arreglador, director, a quien conocí y traté cuando estaba en la orquesta de Alfredo Gobbi. Con esta sociedad nace una etapa importante donde el poeta mostrará toda su gran capacidad para detallar situaciones, escenas, paisajes, con un estilo distinto, donde afloran sus propios recuerdos, la sencillez de una noche de barrio, los aromas familiares, la pena macerada, la noche del café...
 

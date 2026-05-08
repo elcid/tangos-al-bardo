@@ -10,7 +10,7 @@ No se trata de una de esas milongas que nos arrastran a la pista con su polenta 
 
 En anteriores páginas he comentado la especie de amistad que tuve con Camilloni, a quien tantas noches encontraba en el café que estaba frente a radio El Mundo. Teníamos un amigo común que fabricaba artículos de talabartería y el poeta se dedicaba precisamente a vender ese tipo de productos, y, entre ellos, los de mi amigo, que fue quien me lo presentó.
 
-[![](https://blogger.googleusercontent.com/img/a/AVvXsEgKGUWNmpXWzX28_kE-hY0vKzg2yPgwVt9DJb3oTOT2s8K8ThqsGjhgnZvkKv4d2ptH8w729tLkmYbIz69M5CyB7xuVMjymmDLGCtIdm2uAQsmHhkN92TQBZcAYqUffdR5pQfU-DqD3qPVIOYMwnCq2JCvU0vQdqNSKTFwu7xdlrAa4KvdBQ6gZitU_VQ=w400-h210)](https://blogger.googleusercontent.com/img/a/AVvXsEgKGUWNmpXWzX28_kE-hY0vKzg2yPgwVt9DJb3oTOT2s8K8ThqsGjhgnZvkKv4d2ptH8w729tLkmYbIz69M5CyB7xuVMjymmDLGCtIdm2uAQsmHhkN92TQBZcAYqUffdR5pQfU-DqD3qPVIOYMwnCq2JCvU0vQdqNSKTFwu7xdlrAa4KvdBQ6gZitU_VQ=s570)Julio Camilloni
+[![](/tangos-al-bardo/images/f8528c9e8dfd.jpg)](https://blogger.googleusercontent.com/img/a/AVvXsEgKGUWNmpXWzX28_kE-hY0vKzg2yPgwVt9DJb3oTOT2s8K8ThqsGjhgnZvkKv4d2ptH8w729tLkmYbIz69M5CyB7xuVMjymmDLGCtIdm2uAQsmHhkN92TQBZcAYqUffdR5pQfU-DqD3qPVIOYMwnCq2JCvU0vQdqNSKTFwu7xdlrAa4KvdBQ6gZitU_VQ=s570)Julio Camilloni
 
 A partir de allí, muchas veces me invitó a su mesa a compartir un café o una bebida, mientras aguardaba que salieran los músicos de Gobbi, de la radio. Y yo que era un muchachito, lo fui conociendo cada vez más y me agradaba muchísimo su cordialidad y su humildad, aunque en aquellos momentos sus hermosas páginas le iban creando a diario más popularidad.
 

@@ -14,7 +14,7 @@ Su viuda, Amanda de Castillo le entregó a Horacio Ferrer este soneto inédito d
 
 Bastarían rescatar de su inmensa producción los temas que realizó con aníbal Troilo, para colocarlo en el pedestal de los más grandes: *María, A Homero, Fujiyama, El último farol, La cantina, La retrechera, La patraña, Milonga de La Parda, La última curda, Milonga del mayoral, Y a mi qué, Milonga que manda truco, Patio mío *o* Vuelve la serenata. *
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjfD5AVrL_GaWk-Bachn1r3J-C-muIuj3sWvq8ygx3zXrvH2omUzD455b_HV_AEMeKf4rpBBR6TQtw-R4aGtoOG8ZDeHPIuz7gX-NPdhhuipnzb18XvvB_r3f9NfAgkvXeLn7ZujxAXjLlA/s1600/Catulo_y_Troilo+foto+p%25C3%25B3stuma+de+la+revista+Gente%252C+en+octubre+de+1975.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjfD5AVrL_GaWk-Bachn1r3J-C-muIuj3sWvq8ygx3zXrvH2omUzD455b_HV_AEMeKf4rpBBR6TQtw-R4aGtoOG8ZDeHPIuz7gX-NPdhhuipnzb18XvvB_r3f9NfAgkvXeLn7ZujxAXjLlA/s1600/Catulo_y_Troilo+foto+p%25C3%25B3stuma+de+la+revista+Gente%252C+en+octubre+de+1975.jpg) Troilo y Cátulo en la revista Gente días antes de la muerte del poeta en 1975
+ [![](/tangos-al-bardo/images/1e2a258c3d0a.jpg)](/tangos-al-bardo/images/1e2a258c3d0a.jpg) Troilo y Cátulo en la revista Gente días antes de la muerte del poeta en 1975
 
  En 1953 produjeron entre ambos ese hermoso sainete lírico:* El patio de la morocha, *con la dirección musical de Aníbal Troilo* *y el mismo Pichuco en el papel principal, representando a Eduardo Arolas. La orquesta de Pichuco tocaba en el foso y éste incluyó instrumentinos y percusión sobre arreglos de Piazzolla. La protagonista femenina debía ser Virginia Luque, pero ésta no llegó a un acuerdo con la producción y la reemplazó Aída Luz, gran actriz que volvía a su primigenio rol de cantante*. *Intevinieron entre otros el cuarteto Troilo-Grela, los cantores Agustín Irusta, Raúl Berón y Jorge Casal y allí Aída estrenó el tango ***Patio mío*** y la habanera ***La retrechera***. Como colofón a esta acuarelita nos acompañan precisamente esas interpretaciones de Aída Luz con Troilo, en un tango que es toda una pintura de arrabal, y la habanera, una curiosidad en la producción de estos dos genios.
 
@@ -25,5 +25,5 @@ Bastarían rescatar de su inmensa producción los temas que realizó con aníbal
 [](http://www.blogger.com/goog_406258946)
 [La retrechera-Aníbal Troilo-Aída Luz](http://www.mediafire.com/?zps7i92prz2rkdd)
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi98Wu95UN0PKLpixYW3feDXsPoqsmDtpacd_Oq8u259gRREEBvjcauBzfrAYML5i0W8F_7YdrzzyrZOoPgIx0A98USua_qx3S1XxfLOGBIpNooF3IhZYA8yOTZluDYWaF0J3FqhH17l-JH/s1600/A%25C3%25ADda+Luz.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi98Wu95UN0PKLpixYW3feDXsPoqsmDtpacd_Oq8u259gRREEBvjcauBzfrAYML5i0W8F_7YdrzzyrZOoPgIx0A98USua_qx3S1XxfLOGBIpNooF3IhZYA8yOTZluDYWaF0J3FqhH17l-JH/s1600/A%25C3%25ADda+Luz.jpg) Aída Luz
+ [![](/tangos-al-bardo/images/fe65606095fa.jpg)](/tangos-al-bardo/images/fe65606095fa.jpg) Aída Luz
 **

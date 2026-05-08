@@ -27,7 +27,7 @@ Y así establecía el paralelo entre el tango y el fútbol: "*El fuelle me atra�
 
 De entre la parva de* *recuerdos que me trae Pichuco*, *me centro en aquel momento que decide buscar un cantor para acompañar a su único vocalista que era Fiorentino. Era el año 1942, cuando varios amigos le insistieron con la posibilidad de incluir a Roberto Rufino, que había marcado unos momentos fabulosos con Carlos Di Sarli y de cuya orquesta se había separado momentáneamente.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjyWimzelbWDIov_FvNrYdvtN2BjWqcQB3UuDdJh59Q9caZeLoOBobLEfQfTrzDRI2R_d94cmHKzc87vgQ8X_w4S4R3A4cPkzHlBu9U7YDGfFi1pwlZdP_ejeuQdn8do4ZhgnVISYae-j8/s1600/TROILO+-+MARINO.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjyWimzelbWDIov_FvNrYdvtN2BjWqcQB3UuDdJh59Q9caZeLoOBobLEfQfTrzDRI2R_d94cmHKzc87vgQ8X_w4S4R3A4cPkzHlBu9U7YDGfFi1pwlZdP_ejeuQdn8do4ZhgnVISYae-j8/s1600/TROILO+-+MARINO.jpg) Abíbal Troilo y Alberto Marino
+ [![](/tangos-al-bardo/images/a42240055386.jpg)](/tangos-al-bardo/images/a42240055386.jpg) Abíbal Troilo y Alberto Marino
 Estaba entonces cantando con la orquesta típica de Emilio Orlando y allí fue con su representante, Elvio Vitale, a escucharlo y hablar con él. Y justo cantaba esa noche otro cantor de 22 años, sin pedigrí que a Troilo le llamó mucho la atención, era el *tanito* Alberto Marino (Vicente Alberto Marinaro). Luego de escuchar atentamente a ambos con su oreja infalible, le dijo a su acompañante.
 
 -*Vitale, arregle con el morochito* (que era Marino)

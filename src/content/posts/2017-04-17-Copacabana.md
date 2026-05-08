@@ -10,7 +10,7 @@ Este paraíso terrenal ubicado en la maravillosa Río de Janeiro, atesora en mi 
 
 Con el conjunto viajó también Miguel Bucino, como bailarín acompañante. En una cálida charla que tuvimos en mi programa "*Dialogando con swing*" en radio Argentina, Bucino me contaba que dio clases de tango a muchas personas de la alta sociedad que concurrían al Copacabana Palace para escuchar a la orquesta de De Caro, y que había sido un éxito total la actuación del conjunto argentino. Incluso me hacía gestos frotándose las yemas de los dedos, señalando el dinero que había ganado.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh4WZVlB6beDr6cZD9u5I9k8W13F5EIbJJhEc-lPGBnhwYXfEz44W9pSq-BT1gKP2V23XGixTIEXZ29XQ4O4q8aLG2uoxE4cN5_IKQmlHReh9_UKIUJa_4Tn8zYnBJNO7LBgzYGjtpmme62/s320/decaro01.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh4WZVlB6beDr6cZD9u5I9k8W13F5EIbJJhEc-lPGBnhwYXfEz44W9pSq-BT1gKP2V23XGixTIEXZ29XQ4O4q8aLG2uoxE4cN5_IKQmlHReh9_UKIUJa_4Tn8zYnBJNO7LBgzYGjtpmme62/s1600/decaro01.jpg) Julio De Caro
+ [![](/tangos-al-bardo/images/02e8655c2dd4.jpg)](/tangos-al-bardo/images/49f1e8bf46c4.jpg) Julio De Caro
 
 Sin embargo, y pese a todos los afectos que cosecharía en Río, a su hermosa y abacanada estancia en las instalaciones del imponente albergue, como la actuación en dicho lugar estaba establecida por contrato desde marzo a agosto de 1927, con el paso de los días, semanas y meses, al director de la orquesta lo comenzó a atenazar la nostalgia por su cercano país. Y las cartas de la madre realizaban un efecto punitorio para su morriña porteña.
 
@@ -25,7 +25,7 @@ Y entonces, Julio De Caro -que también pasó por ese micrófono y me regaló su
 
 -Respiré hondo... tan hondo como pude, impregnándome por dentro y fuera de aquel ambiente paradisíaco, obra de genio benéfico, para con su soplo mágico, disipar penumbras, donde me debatía... Nunca más propenso a la composición que esa noche, cuyo encuadre tan ajustadamente se prestaba. Primavera... luna llena... cielo diáfano... como si poco fuese, acarameladas parejas en el Boulevard Marítimo y, hasta mi balcón, llegando el atortolado susurro... ¿qué mayor inspiración?
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiKaaHPHpYqHLSqLyxZayVIq5Qf51Uhc5OYDTUqS7yr1DaL3HFY5Ap3TNrb52jPDIYzLXi5vuziDSzv2BVTxn2wSnozPEyQlEzDGexaJ0WEVNoATXlBkVpW4atuGiebzuK51Y5gAQvWl6_f/s400/COPA.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiKaaHPHpYqHLSqLyxZayVIq5Qf51Uhc5OYDTUqS7yr1DaL3HFY5Ap3TNrb52jPDIYzLXi5vuziDSzv2BVTxn2wSnozPEyQlEzDGexaJ0WEVNoATXlBkVpW4atuGiebzuK51Y5gAQvWl6_f/s1600/COPA.jpg) Copacabana Palace
+ [![](/tangos-al-bardo/images/1f3df18dddfb.jpg)](/tangos-al-bardo/images/64bf7968d0ec.jpg) Copacabana Palace
 
 -En mi éxtasis, dieron las tres de la madrugada. Fue entonces cuando volví a sentir esa sensación, previa a algún acontecimiento. Algo o alguien guió mi mano hasta el cuadernillo de papel de música, escribiendo un título: *Nido de amor*, para luego continuar su cometido el fluido creador... Al día siguiente lo orquesté con mi hermano Francisco, agregándole Laurenz un solo de bandoneón (verdadera filigrana), y que estrenaríamos por la noche.
 

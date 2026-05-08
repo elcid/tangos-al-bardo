@@ -16,7 +16,7 @@ La cosa funcionó comercialmente, y al margen de las figuras que grababan para e
 
 
 Así, aparte de la Orquesta Típica Víctor, que dirigió originalmente Adolfo Carabelli, también crearon la del mismo Carabelli, la Típica Porteña, Los Provincianos (dirigida por Ciriaco Ortiz), La Orquesta Argentina Víctor, la Orquesta Víctor Internacional, la Radio Víctor, el Cuarteto Víctor (Ciriaco Ortiz, Francisco Pracánico, Cayetano Puglisi y Antonio Rossi) y el Trío Victor ( Oscar Alemán-Gastón Bueno Lobo y Elvino Vardaro). Los músicos se injertaban en una u otra orquesta.
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgyX2fj7_tOtTm9Y0lJH5WHRViZ81Jx_qK9GYWTugj_v9puBuw9P9qafdXc6HCtnMBKLmUxTPz_BvNdAOdCF0LwOPJGgeu46iqrqyAHhAiTvrpa-EKUR6pw1oOpidEv-xTXs-oTWzcdEms/s320/escanear0008.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgyX2fj7_tOtTm9Y0lJH5WHRViZ81Jx_qK9GYWTugj_v9puBuw9P9qafdXc6HCtnMBKLmUxTPz_BvNdAOdCF0LwOPJGgeu46iqrqyAHhAiTvrpa-EKUR6pw1oOpidEv-xTXs-oTWzcdEms/s1600/escanear0008.jpg) Mario Maurano
+ [![](/tangos-al-bardo/images/7f8f4592ae84.jpg)](/tangos-al-bardo/images/6d4b3d7b78be.jpg) Mario Maurano
 
 
 La Orquesta Radio Víctor no lanzó muchos discos al mercado. La dirigía el excelente pianista y arreglador Mario Maurano, y de entre ese racimo de temas que grabaron, me quedó con este lindo tango del maestro Rafael Rossi (Rossa), que, como compositor dejó una lista impresionante de éxitos que perduran en la memoria colectiva.

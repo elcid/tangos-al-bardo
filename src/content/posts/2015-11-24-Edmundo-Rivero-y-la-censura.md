@@ -26,7 +26,7 @@ Como si *rechiflado* o *bacana* fuesen una ofensa al pudor y, "pobre vida paria"
 
 La censura no permitió que mi repertorio de aquellos años con Troilo tuviera más letras *reas*, pero hay que recordar que la mayor parte de las orquestas tampoco solían hacerlas, quizás con excepción de D'Arienzo. Yo me iba a desquitar bastante pronto. El primer disco que grabé como solista, ya en el 50, fue *Audacia*, justamente de Cele, letra que había estado prohibidísima y en la cual el autor reflexionaba acerca de otras palabras aceptadas, como "partenaire"
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgUIydft3M48G4bR5OjX9w5YqeTRU8O-OBTGYZ96D3zbmuxjI9DXGLPaznprXJLdXAm6tYMKV8Ak5Gu0PYSqDBSp4GWqudvCA-EFMVPROWYaY1UNkFB4jcka_C1imtzKtRK-m1MbeI5UWyd/s320/anibal-troilo-edmundo-rivero.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgUIydft3M48G4bR5OjX9w5YqeTRU8O-OBTGYZ96D3zbmuxjI9DXGLPaznprXJLdXAm6tYMKV8Ak5Gu0PYSqDBSp4GWqudvCA-EFMVPROWYaY1UNkFB4jcka_C1imtzKtRK-m1MbeI5UWyd/s1600/anibal-troilo-edmundo-rivero.jpg)*Yo no *manyo* francamente*
+[![](/tangos-al-bardo/images/d2ce5f164d62.jpg)](/tangos-al-bardo/images/458ac8e88597.jpg)*Yo no *manyo* francamente*
 *lo que es una "partenaire"*
 *aunque *batan* que soy bruto*
 *y atrasado, qué querés.*
@@ -39,7 +39,7 @@ Ya en los tiempo de Troilo, Perón había empezado a dar vía libre al lunfardo,
 
 Perón, además, era bastante ducho en lunfardo. Su tango preferido, el que siempre pedía cuando yo cantaba, no era al fin de cuentas muy académico. Lo emocionaba casi hasta las lágrimas (y alguna ver fue sin casi) *Cuando me entrés a fallar*, esa historia del *jovato* y de la *piba*.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhhuvyMF235Qw97IYse2sZu1Y30owLgSkEbfmzWqHECBcf9pmpGoT65jkIBamrRZ6rgujCY55CfKj8wE6o-uWOImXBpdm4poZYvLfFSjzZzqFoF84Dem579mJZvXCtboYwia4DQ_CTEcwvp/s400/Rivero+-+guitarrista+de+las+hermanas+Omar.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhhuvyMF235Qw97IYse2sZu1Y30owLgSkEbfmzWqHECBcf9pmpGoT65jkIBamrRZ6rgujCY55CfKj8wE6o-uWOImXBpdm4poZYvLfFSjzZzqFoF84Dem579mJZvXCtboYwia4DQ_CTEcwvp/s1600/Rivero+-+guitarrista+de+las+hermanas+Omar.jpg) Edmundo Rivero (centro), cuando acompañaba en guitarra a las hermanas Omar
+ [![](/tangos-al-bardo/images/48b8379d8dee.jpg)](/tangos-al-bardo/images/22450026e30f.jpg) Edmundo Rivero (centro), cuando acompañaba en guitarra a las hermanas Omar
 También últimamente he tenido varias piezas con difusión prohibida por el COMFER, pero esa ya es otra historia, creo que también antigua.
 
 Y yo, para recordar a este gran cantor que tuvo el tango, el lunfardo y la copla criolla, lo traigo en un viejo documento de televisión, donde narra cómo ensayaron y se largaron con Pichuco en *La última curda*. Y canta este tango inmortal acompañado por Leopoldo Federico en el fueye. Atenti.

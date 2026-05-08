@@ -14,7 +14,7 @@ El platense Mom, fue cuentista, poeta, crítico de cine, guionista y director, y
 
 El *monte criollo* es un juego de barajas sencillo, muy popular entres los años treinta al cincuenta. Originario de España le agregaron el adjetivo de *criollo*, por tratarse de una variante del mismo. Y lógicamente en el filme se juega con trampas. El final es dramático por naturaleza y está muy logrado por su director.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhtYFiuA9MwJAjIT5nj60vfTw5f-S15bnmImTV-sVgeCN1OYpsc18kwHft10LLv5XcQnQzK-37fi4k7NXJGRUqPeOSU2CGMgSm-Lf0PFQOEahJ1OXYYSXGJxCak6wq8FuhzwIFQnF7yZsM/s1600/-MonteCriollo-+Azucena+Maizani.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhtYFiuA9MwJAjIT5nj60vfTw5f-S15bnmImTV-sVgeCN1OYpsc18kwHft10LLv5XcQnQzK-37fi4k7NXJGRUqPeOSU2CGMgSm-Lf0PFQOEahJ1OXYYSXGJxCak6wq8FuhzwIFQnF7yZsM/s1600/-MonteCriollo-+Azucena+Maizani.jpg) Azucena Maizani cantando el tango Monte criollo.
+ [![](/tangos-al-bardo/images/b310bd2ba869.jpg)](/tangos-al-bardo/images/b310bd2ba869.jpg) Azucena Maizani cantando el tango Monte criollo.
 
 El Director de la película le pidió a la dupla Piana-Manzi un tema que sirviera de *leit motiv* a la misma y se titulara precisamente *Monte criollo*. A Mom no le gustó la música de Piana y le solicitó que le pusiera otra distinta. El maestro se negó y entonces los versos de Manzi se los pasó a Francisco Pracánico, cuya orquesta estaba integrada a la película. Y fue éste quien le puso una música muy ajustada al poema de Homero Manzi que no tiene desperdicio -era jugador-, y resume el argumento del filme.
 
@@ -25,7 +25,7 @@ El Director de la película le pidió a la dupla Piana-Manzi un tema que sirvier
  Perdí los primeros convites  parando en carpetas de suerte y verdad.  Y luego buscando desquite,  cien contras seguidas me dió tu maldad.  Me ofrece la espada su filo.  Rencores del basto te quieren vengar...  Hoy juego mi trampa tranquilo  y entre oros y copas te habré de olvidar
  En la película lo canta Azucena Maizani acompañada por la orquesta de Pracánico.Y también está incluído el tango **Muchacho de cafetín**, que también realizaron para el filme Pracánico y Manzi. Pero en este caso lo canta Florindo Ferrario.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjtGNPbzBtXCfuudtAoveTq5yJ8qNXDWmMhutRSQ0flaK13JkJn7Yk7M9mzYQHyBb_7_JcClNOwYFPzGPBkqi9lWg5XAgWacIiH_UUbPDMmB7zqaIARhLCQRbob_Ru-XHeLB5b7yachhV4/s1600/Orquesta.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjtGNPbzBtXCfuudtAoveTq5yJ8qNXDWmMhutRSQ0flaK13JkJn7Yk7M9mzYQHyBb_7_JcClNOwYFPzGPBkqi9lWg5XAgWacIiH_UUbPDMmB7zqaIARhLCQRbob_Ru-XHeLB5b7yachhV4/s1600/Orquesta.jpg) La orquesta de Francisco Pracánico en el filme, con 6 bandoneones. Debajo Magaldi y Noda.
+ [![](/tangos-al-bardo/images/05a7de208a9a.jpg)](/tangos-al-bardo/images/05a7de208a9a.jpg) La orquesta de Francisco Pracánico en el filme, con 6 bandoneones. Debajo Magaldi y Noda.
 
 El dúo Magaldi-Noda interviene en la película, cantando el tema *Mi sanjuanina*, acompañados por guitarras.Vale la pena verlos, aunque las imágenes estén muy desteñidas.
 

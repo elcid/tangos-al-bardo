@@ -28,7 +28,7 @@ Pugliese siempre respetó a Piazzolla porque vió como siguió estudiando, busca
 Y Ástor, allá por 1972, me decía que le gustaba mucho lo que había hecho Pugliese con su tango *Marrón y azul* y especialmente con *Verano porteño* ("una belleza", diría).
 
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhqJrLgAJ44EaeKFbvvdehFHTgAZBAYMjF6HuGG9EOonVI60AjBLiJwmBYmYv7ZGx79B_EiV0UA9rWScHb2fhysCnSTag3LVknTc-_3kz8TdhhbGiAV3gdpY29rrpg8oZBCuhEi94tEPQA/s1600/Verano_porteno.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhqJrLgAJ44EaeKFbvvdehFHTgAZBAYMjF6HuGG9EOonVI60AjBLiJwmBYmYv7ZGx79B_EiV0UA9rWScHb2fhysCnSTag3LVknTc-_3kz8TdhhbGiAV3gdpY29rrpg8oZBCuhEi94tEPQA/s1600/Verano_porteno.jpg)
+[![](/tangos-al-bardo/images/ef37f4b6e105.jpg)](/tangos-al-bardo/images/ef37f4b6e105.jpg)
 
 Y yo creo que vale la pena volver a escucharlos una vez más. **Marrón y azul **lo grabó Don Osvaldo con su orquesta el 26 de diciembre de 1956. Y diez años más tarde, en 1966, dejó en el disco esta hermosa versión de **Verano porteño**. Atenti.
 

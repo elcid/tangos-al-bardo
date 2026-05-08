@@ -22,7 +22,7 @@ Con su orquesta logró que los grandes del tango lo siguieran en sus noches de a
 
 Se hace solista, toca en dúo con Ciriaco Ortiz, en trío, y funda el Quinteto Real. *"Lo tomamos más bien como un divertimento y los arreglos eran míos*", decía. Junto a Laurenz, Francini, Ferro y el guitarrista Ubaldo de Lío, con quien estuvo unido más de cuarenta años, aunque -y también en ésto es único- no se tutearan nunca.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiXJM7WmUrGG8ccxjp-VdXuuR8uVhXvPjb9Jbc-Zt95SqItUxQ__oLp2rVXnKCP1E4NJYiJw8hjRwUWLKEb694oVl6CdZQNYRBxOVsrPbOTCktQ6pA7kFGaxsmVQLPQ4fveOSBljzs7c4ZEd-EQ6VTLpuQyv5G6SA7Ga1gHbMJyTnNW2fg1XCjx0gV51UrS/w400-h256/El_Quinteto_Real.JPG)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiXJM7WmUrGG8ccxjp-VdXuuR8uVhXvPjb9Jbc-Zt95SqItUxQ__oLp2rVXnKCP1E4NJYiJw8hjRwUWLKEb694oVl6CdZQNYRBxOVsrPbOTCktQ6pA7kFGaxsmVQLPQ4fveOSBljzs7c4ZEd-EQ6VTLpuQyv5G6SA7Ga1gHbMJyTnNW2fg1XCjx0gV51UrS/s2130/El_Quinteto_Real.JPG)Horacio Salgán, Pedro Laurenz, Enrique Francini, Ubaldo de Lío y Quicho Díaz
+[![](/tangos-al-bardo/images/c146ba12e38d.jpg)](/tangos-al-bardo/images/aba9866e1993.jpg)Horacio Salgán, Pedro Laurenz, Enrique Francini, Ubaldo de Lío y Quicho Díaz
 
 El Quinteto Real, con el padrinazgo de Aníbal Troilo y la presentación de Antonio Carrizo, debutó en 1960 en radio El Mundo. Y los llamaron de todas partes, viajaron a Japón en varias ocasiones, grabaron con éxito y esos registros han cobrado valor histórico.
 

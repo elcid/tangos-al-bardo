@@ -14,7 +14,7 @@ Aunque no tenga un lugar destacado en la memoria colectiva tanguera, Spitalnik f
 
 Hijo de humildes inmigrantes lituanos; la que sería su madre, llegó a la Argentina para juntar algún dinero y posibilitar el posterior viaje de su novio. Con él se casaría en Buenos Aires, cuando cumplieron las Bodas de oro y luego de tener ocho hijos argentinos. Ismael se dedicó a la música con afán, y Jacobo Fischer le daría clases de armonía, que le servirían para destacar como un gran innovador en la superación de las orquestas que vino con el fermento de los años cuarenta.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiDQohjGRlvw_w5rQ_YgbR-buO3t5LODEqZDniuvxy1YIZ0YUzAkyYNs6OZq_uSa9sc0ersUb_zpv3aiHJ_LNTjp2FvWUOJ6cLLrKcEZAqK4j-FSkzB25ianDXdb-FfvpfX4BR8qP19kAc/s1600/Spi.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiDQohjGRlvw_w5rQ_YgbR-buO3t5LODEqZDniuvxy1YIZ0YUzAkyYNs6OZq_uSa9sc0ersUb_zpv3aiHJ_LNTjp2FvWUOJ6cLLrKcEZAqK4j-FSkzB25ianDXdb-FfvpfX4BR8qP19kAc/s1600/Spi.jpg) Lavallén, Demarco, Pugliese, Ruggiero y Spitalnik
+ [![](/tangos-al-bardo/images/0a7ef520a803.jpg)](/tangos-al-bardo/images/0a7ef520a803.jpg) Lavallén, Demarco, Pugliese, Ruggiero y Spitalnik
 
 Pasó por la filas de la orquesta de Juan Carlos Howard y Mario Landi, que actuaban en el cabaret Sans Souci y entró a la puerta grande del tango, cuando ingresa como segundo bandoneón en la orquesta de Ángel D'Agostino en 1940. Allí comienza a perfilar su futuro de gran arreglador. Lo increíble es que, paralelamente a su trabajo de músico se diploma de químico industrial.
 
@@ -26,7 +26,7 @@ Un año más tarde lo convoca Horacio Salgán para su formación y ya ocupa el a
 
 Esta experiencia junto a Fiore, de quien fue gran amigo, le sirve para volcarse en el acompañamiento de cantores como Raúl Iriarte, Aldo Calderón o Hugo del Carril. A la vez se tomó un largo descanso para dedicarse a componer y arreglar. Lo hizo para las orquestas de José Basso, Francini-Pontier, Aníbal Troilo, Osvaldo Pugliese y otras.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEizBNHQT1sn1VkZBb2i-aLvjVp06jc5RbC3UNGmY9eNb79bMyqd8q-Cz86DnYwz4gMVuiwyzXmBUV-oetHLnUFfyV-5ruowyGsXaAclKOkf2pTNq9CsReU4b6G3C1YLy9XeDJPX1aEddUo/s1600/escanear0004.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEizBNHQT1sn1VkZBb2i-aLvjVp06jc5RbC3UNGmY9eNb79bMyqd8q-Cz86DnYwz4gMVuiwyzXmBUV-oetHLnUFfyV-5ruowyGsXaAclKOkf2pTNq9CsReU4b6G3C1YLy9XeDJPX1aEddUo/s1600/escanear0004.jpg) En 1946, dirigiendo la orquesta que acompaña a Fiorentino
+ [![](/tangos-al-bardo/images/4852e5963184.jpg)](/tangos-al-bardo/images/4852e5963184.jpg) En 1946, dirigiendo la orquesta que acompaña a Fiorentino
 
 Bastaría escuchar algunos arreglos que hizo para la orquesta de Pichuco, para calibrar su enorme categoría: *La viajera perdida, Orlando Goñi, Ojos negros* o *Cafetín de Buenos Aires*. También trabajaba en orquestaciones standard para la Editorial Julio Korn con las que pudo contribuir al desarrollo de las nuevas ideas musicales que iban mostrando las orquestas.
 
@@ -34,7 +34,7 @@ Después de varios años alejado de los escenarios, Osvaldo Pugliese lo llamó p
 
 Aunque volvería con su Septimino y más viajes exitosos por todo Japón con el mismo, tiempo después. Spitalnik no deja una gran obra como compositor, pero sus títulos avalan su valía en ese apartado: Además de los citados: *Fraternal, Gente amiga, Anónimo, San Pedro y San Pablo* (con letra de Julio Huasi), *Bandoneón melancólico, Bordoneos, El troesma* (dedicado a Pugliese), *Duendes en la noche, Historias, Juan Pueblo, Presencia tanguera, Nostalgia bardiana, Un simple vals, Juan Tango, Vivir con todo y algo más* (con Amanda Velazco) o *Vacío* (con Mario Soto), entre otros.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgjLNBdZoitFy8hyphenhyphenXUWsc7u63gmoP34j1SAHcPNUvpfhZBjybYBWHqU8Bb2sMA9Zd1T0oJ8TsGVXlbwN4tUOmE3tcOdlDex8lIQBFAIrRmwU-I-erKQEaQubL-8tKWZcRjNQ6qdn5qGpEs/s1600/Septi.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgjLNBdZoitFy8hyphenhyphenXUWsc7u63gmoP34j1SAHcPNUvpfhZBjybYBWHqU8Bb2sMA9Zd1T0oJ8TsGVXlbwN4tUOmE3tcOdlDex8lIQBFAIrRmwU-I-erKQEaQubL-8tKWZcRjNQ6qdn5qGpEs/s1600/Septi.jpg) Spitalnik al final, con su septimino
+ [![](/tangos-al-bardo/images/a933d13bc8d6.jpg)](/tangos-al-bardo/images/a933d13bc8d6.jpg) Spitalnik al final, con su septimino
 
 Quiero recordar a este excelente músico, que se retiró tempranamente, y lo hago con dos joyitas suyas:** Fraternal**, título que alude a su sentido progresista y sentido de la amistad. Lo grabó entre otros Alfredo Gobbi con su orquesta el 26 de agosto de 1954. Y dedicado a los músicos de la orquesta de Pugliese: **Gente amiga**, que éste dejaría en el disco con su orquesta el 2 de enero de 1958.
 

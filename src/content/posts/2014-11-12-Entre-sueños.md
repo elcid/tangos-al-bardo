@@ -30,7 +30,7 @@ Qué me importa ya su olvido,
 si en tus manos me has traído
 lo mejor de tu amistad.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjSr1ZEmO2T55PzD_tdjkBuRhL9PBqYEFtmYtECFENcqxVC6GKzpYxncCSyYiRenlOzh_5R2-hq5BCQU4qd0Z6q1MxZ3iC_yx__IcudPdxecLjbpBiWh-yz4K1qn7GM5yhZvyNPwR9FDDk/s1600/garciajimenez.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjSr1ZEmO2T55PzD_tdjkBuRhL9PBqYEFtmYtECFENcqxVC6GKzpYxncCSyYiRenlOzh_5R2-hq5BCQU4qd0Z6q1MxZ3iC_yx__IcudPdxecLjbpBiWh-yz4K1qn7GM5yhZvyNPwR9FDDk/s1600/garciajimenez.jpg) Francisco García Jiménez
+[![](/tangos-al-bardo/images/c6049389077f.jpg)](/tangos-al-bardo/images/c6049389077f.jpg) Francisco García Jiménez
 Francisco García Jiménez fue uno de los grandes poetas que tuvo el tango, aunque quizás sus méritos no sean reconocidos debidamente. Fue de los renovadores, de los primeros que le quitó al tango ese tono de arrabal amargo,de la traición amorosa y para mí junto a Le Pera y José González Castillo se inscribe, a través de sus letras -porque era hombre de letras-, en la elevación de la poesía de tango, que inmediatamente tendría continuación en otros nombres brillantes de mucho peso.
 
 ¡Pobre de mí!..
@@ -46,7 +46,7 @@ es más atroz.
 y si de mí te acordarás
 mientras me muero sin tu adiós!
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh1SVmEPXISNZopwFQR-pHvLQ0RwzpL9tSUEz3chGjcHUaKhMqkAZ5LZ_HjR74MISZ4EpVxLOpzUOBbTvSvT2WRavV2F1WnMHMsoKwUSKiry2rRohq-KJTXknzEMNHEzBM7CmRsMF3LtC0/s1600/POLITO.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh1SVmEPXISNZopwFQR-pHvLQ0RwzpL9tSUEz3chGjcHUaKhMqkAZ5LZ_HjR74MISZ4EpVxLOpzUOBbTvSvT2WRavV2F1WnMHMsoKwUSKiry2rRohq-KJTXknzEMNHEzBM7CmRsMF3LtC0/s1600/POLITO.jpg) Juan Polito
+ [![](/tangos-al-bardo/images/62b8c84096c4.jpg)](/tangos-al-bardo/images/62b8c84096c4.jpg) Juan Polito
 
 Este tango, aunque no esté en la mente de toda la gente, ha sido grabado además por Carlos Dante acon la orquesta de Rafael Canaro. Carmen Duval, con la orquesta de Argentino Galván, hizo una gran recreación del tema, y la he mostrado en estas páginas. Francisco Rotundo, Ricardo Tanturi, Aníbal Troilo, Juan D´'Arienzo lo registraron en forma instrumental. También Ástor Piazzolla con su orquesta en 1967. Julio Sosa secundado por la orquesta de Leopoldo Federico. Raúl Berón con la orquesta de Miguel Caló dejó una versión muy buena el 8 de mayo de 1944, en la que también brillan el piano de Maderna y el violín de Francini.
 

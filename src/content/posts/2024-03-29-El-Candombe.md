@@ -12,7 +12,7 @@ Los mismos portadores culturales del candombe colonizaron Brasil (sobre todo en 
 
 En la ciudad de Buenos Aires, en los últimos años del siglo XVIII había diez mil habitantes entre mestizos, guaraníes y españoles y veinte mil africanos Kongos, Luangos, Mandingos, Carabalís. El sonar de los tambores era permanente, según crónicas jesuitas, tanto que el Virrey prohibió el uso del tambor, pues actuaba como aglutinante cultural frente a la clase dominante.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiVGbFUHMgbcGOMW38u247L84MHwVTADT1UdA1BwtHiDroRW4QuW2sjWM-xxFFcnZkaDQVzDxHAoRamr-amYSsW6bRGWJdEJhxEHrQhQ3HMbC2qvpA_YVFU7Bv4tGjhgm2T6Y9ZFTjKwjtj_OgtD0Blmfefez7Zyc2st-664owLDbtafszlaHUgAjfig4IF/w400-h330/drums_14.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiVGbFUHMgbcGOMW38u247L84MHwVTADT1UdA1BwtHiDroRW4QuW2sjWM-xxFFcnZkaDQVzDxHAoRamr-amYSsW6bRGWJdEJhxEHrQhQ3HMbC2qvpA_YVFU7Bv4tGjhgm2T6Y9ZFTjKwjtj_OgtD0Blmfefez7Zyc2st-664owLDbtafszlaHUgAjfig4IF/s1090/drums_14.jpg)Candombe en San Telmo - Buenos Aires
+[![](/tangos-al-bardo/images/d08189211e37.jpg)](/tangos-al-bardo/images/a28534802548.jpg)Candombe en San Telmo - Buenos Aires
 
 Sin embargo fue en Montevideo, y en el siglo XX, donde el candombe se convierte en lo que es hoy. La razón es simple. La mayoría de los negros argentinos y uruguayos entremezclaron la cultura global de ambos países. Sus ritmos frianos (tango, milonga, malambo) y sus rasgos culturales (añoranza, gesticulación, permanente vivir en el presente, pensar que todo va a cambiar mañana y otros) se mezclaron con el fondo cultural común de estos países.
 
@@ -20,7 +20,7 @@ Pero en los conventillos de Montevideo pervivieron grupos de familias extensas q
 
 Según el historiador uruguayo Vicente Rossi "en el lustro 1895/90 los candombes desaparecieron. No solamente el pueblo perdió interés por ellos, sino que los negros criollos, sostenedores de esa única tradición, disminuían sin reemplazarse, por no ser raza inmigratoria de ese color...". Rossi sostenía que el vocablo candombe, "*es una adaptación onomatopéyica que el negro ha tomado del silabario brevísimo de sus ritornelos cantables, silabario que inventaba con dicción bozal, evocando los ritmos del terron nativo"*.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi7wbHqarUHxafVK83u1BzDLVxTcAQ1_I5KEMQJ4Ps1ogeZZ2ZzDOfOv67j_gy9z8Fck5OaeKKpUywm2LlodJKdcNPiQ4o-sZYplkgdCA38nGAXqpNvA6CKm155kUkysGZ71C2Gc-zHav7ioIHlpINkvvWLThQR4dq7WVQA4457tjflVh9rS4HdeT_WWuwr/w400-h278/candombe%203.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi7wbHqarUHxafVK83u1BzDLVxTcAQ1_I5KEMQJ4Ps1ogeZZ2ZzDOfOv67j_gy9z8Fck5OaeKKpUywm2LlodJKdcNPiQ4o-sZYplkgdCA38nGAXqpNvA6CKm155kUkysGZ71C2Gc-zHav7ioIHlpINkvvWLThQR4dq7WVQA4457tjflVh9rS4HdeT_WWuwr/s720/candombe%203.jpg)Grupo de candombe en las calles de Montevideo
+[![](/tangos-al-bardo/images/fff403d36617.jpg)](/tangos-al-bardo/images/15f3c0081905.jpg)Grupo de candombe en las calles de Montevideo
 
 Hoy se asiste a un resurgimiento, junto a los portadores tradicionales que aún respetan la ley del tambor (los que nunca tocan la madera, los que callan cuando el mayor "rezonga"). Hoy se asiste a un fusión con otros ritmos (jazz, rock, beat, salsa, reagge, rap, etc,) y a una expansión. Esta última es debido sobre todo a los movimientos migratorios.
 

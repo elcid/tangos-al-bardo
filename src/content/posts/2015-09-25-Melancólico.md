@@ -14,7 +14,7 @@ Pianista-bandoneonista, nacido y criado en La Pampa, su forma de ser y de compon
 
 Su trayectoria pasa por las orquestas de Miguel Caló, Antonio Rodio, Carlos Di Sarli e incluso media su incorporación a la orquesta de Eduardo Bianco y una larga gira por Europa y Medio Oriente. Estaría en el conjunto de Atilio Stampone y desde 1959, en el de Osvaldo Pugliese donde consolidó su papel de ejecutante, compositor y arreglador.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiwBxibQwv-WW2eTn2j7Mwwt_UgLxk4ASJtYMdUc2Va9_xi7sIC4QziZDkkzwPqy9FfgCtX3EAUjZ1juixK4mgSOpi8l3FamJb1DzNHdrBGtiNYz3VT88LoO4FQ7BRG8MlU18r2SGSas08/s400/Calo_Orq3.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiwBxibQwv-WW2eTn2j7Mwwt_UgLxk4ASJtYMdUc2Va9_xi7sIC4QziZDkkzwPqy9FfgCtX3EAUjZ1juixK4mgSOpi8l3FamJb1DzNHdrBGtiNYz3VT88LoO4FQ7BRG8MlU18r2SGSas08/s1600/Calo_Orq3.jpg) Julián Plaza, tercero por la derecha, cuando estaba en la orquesta de Miguel Caló
+ [![](/tangos-al-bardo/images/719c58dcda80.jpg)](/tangos-al-bardo/images/e2664f456d27.jpg) Julián Plaza, tercero por la derecha, cuando estaba en la orquesta de Miguel Caló
 Troilo, que tiene muy buena oreja, lo llama para pedirle un arreglo y a partir de ese momento no sólo incorporará los tangos y milongas que Plaza iba tejiendo sino, acude una y otra vez a sus arreglos.
 Recordaba el mismo Julián hablando con Del Priore, aquella primera invitación de Pichuco.
 

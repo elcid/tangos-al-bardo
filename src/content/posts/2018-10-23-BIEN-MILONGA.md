@@ -6,7 +6,7 @@ labels: ""
 tags: ["Alfredo De Angelis", "Julio De Caro", "Carlos Dante"]
 ---
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjvTcQMijJjhzHwU87B3eMDwTrG6yim4QWrqeDZpEI2mTvPIcEH-5sG5aBlArz85dcvE93aOMdhMeFLhBOg2cxCA6sfBaUqa_d8JTkl-73WbbAty_S8_TE3AumF8h_5JQCaspVco6oeOjBx/s200/41466534_1054849841384940_7378119419139669591_n.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjvTcQMijJjhzHwU87B3eMDwTrG6yim4QWrqeDZpEI2mTvPIcEH-5sG5aBlArz85dcvE93aOMdhMeFLhBOg2cxCA6sfBaUqa_d8JTkl-73WbbAty_S8_TE3AumF8h_5JQCaspVco6oeOjBx/s1600/41466534_1054849841384940_7378119419139669591_n.jpg)
+[![](/tangos-al-bardo/images/7e3796dd807f.jpg)](/tangos-al-bardo/images/ced5c276cdb4.jpg)
 
  *El tango es el tango...no hay vuelta que darle*
 * con cuello o pañuelo, lo mismo es gotán,*

@@ -14,7 +14,7 @@ Tené en cuenta que Gardel estaba solo, rodeado de franceses primero, luego de n
 
 Esa gente podía perderlo. Él tenía su voz (¡qué te parece!), esa polenta de su personalidad y sus ideas musicales. Pero no era letrista.
 
-[![](https://blogger.googleusercontent.com/img/a/AVvXsEiw7FpYF2YhD2_9cOvSd7ZaXfePBDcziv2Ptt0tUiFYlhD37i0sXQCTw7OmrjnzSHalc4HJvDMrUZhlDek58s0lLPCzzAxaeZSVZzMiEQsyPqrSGixNaxU1rzV4eennkT6zNq4Ip-_OwVGMoGiZ7p3gZb50gFenwhVrWfV9pnO_cl0kxRZyaT1NhpC5cZes=w241-h320)](https://blogger.googleusercontent.com/img/a/AVvXsEiw7FpYF2YhD2_9cOvSd7ZaXfePBDcziv2Ptt0tUiFYlhD37i0sXQCTw7OmrjnzSHalc4HJvDMrUZhlDek58s0lLPCzzAxaeZSVZzMiEQsyPqrSGixNaxU1rzV4eennkT6zNq4Ip-_OwVGMoGiZ7p3gZb50gFenwhVrWfV9pnO_cl0kxRZyaT1NhpC5cZes)Carlos Gardel y Alfredo Le Pera
+[![](/tangos-al-bardo/images/50d2ef4cfea6.jpg)](https://blogger.googleusercontent.com/img/a/AVvXsEiw7FpYF2YhD2_9cOvSd7ZaXfePBDcziv2Ptt0tUiFYlhD37i0sXQCTw7OmrjnzSHalc4HJvDMrUZhlDek58s0lLPCzzAxaeZSVZzMiEQsyPqrSGixNaxU1rzV4eennkT6zNq4Ip-_OwVGMoGiZ7p3gZb50gFenwhVrWfV9pnO_cl0kxRZyaT1NhpC5cZes)Carlos Gardel y Alfredo Le Pera
 
 Ahí aparece Le Pera, de quien me dijeron que no era buen tipo, pero ¡qué importa ya! Los dos hacen una trampa portentosa: conservan lo nuestro en un ambiente extraño.
 

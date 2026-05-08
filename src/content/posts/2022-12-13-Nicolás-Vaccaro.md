@@ -10,7 +10,7 @@ Durante una de las tantas audiciones radiofónicas que realizó con Ismael Aguil
 
 Ella era Ofelia, ahora una octogenaria, novia, en su juventud lejana, del compositor, de manera que Vaccaro infirió que la pieza debió ser escrita a principios de siglo, cuando él acababa de nacer.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhCGAsMJMT6chZlZvtI7Igrcjvy4dCYfISQ-tzAlyzodfOeF7Y8ItLyvvPXrm-ROxl3ukSA3QSrQFaAhBRg_TBQr2TEXbXClezTZH-h_9y7KL1UKfT7NivlR9DF5xAcSKmszM1ZewtDyqnqfvCx1gbyryk14RMvYBQUFyg85oRngyakZLSGYUJrTzDylQ/w242-h320/NVaccaro.gif)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhCGAsMJMT6chZlZvtI7Igrcjvy4dCYfISQ-tzAlyzodfOeF7Y8ItLyvvPXrm-ROxl3ukSA3QSrQFaAhBRg_TBQr2TEXbXClezTZH-h_9y7KL1UKfT7NivlR9DF5xAcSKmszM1ZewtDyqnqfvCx1gbyryk14RMvYBQUFyg85oRngyakZLSGYUJrTzDylQ/s264/NVaccaro.gif)Nicolás Vaccaro
+[![](/tangos-al-bardo/images/3283de3e1513.gif)](/tangos-al-bardo/images/90251b52242a.gif)Nicolás Vaccaro
 
 Con las peripecias que caracterizan la vida de Vaccaro, podría ensayarse un extenso e ilustrativo capítulo de la historia del tango (que es, precisamente, lo que se propuso al confiar últimamente sus memorias a un copista).
 
@@ -28,7 +28,7 @@ Las circunstancias lo llevaron a Córdoba, donde trabó amistad con Ciriaco Orti
 
 Terminado el ciclo, Vaccaro pensó que ya era hora de formar su propia orquesta y así lo resolvió al encontrarse otra vez en sus lares nativos. Con la intervención de Astor Piazzolla, Julio Ahumada, Eduardo Del Piano, Tití Rossi y Antonio Ríos constituyó una de las grandes alienaciones que respondieron a su batuta y de la que puede decirse que no desentonaría hoy ni por su ritmo ni por el juego instrumental, ordenados de acuerdo con el sentido moderno que fue en su momento una verdadera avanzada.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjkPisU0AFmhP-w6L_M3rESqq3Uc3HylJECdmO0ImTNICcbaBMGpnqCRwjB5mesTDdxKzre0ZNt7bBVh1lGY8drsSUm5rCejgp--zGPMy4KjPOY4sfiyw3gAbBd74nT9vNnZuMtTdznIh-2h8zMgjJp3J6jxXKje_0XCQtAXsa6KQbLJ3S8TnYZa4nOEg/w400-h154/1929-05-26%20-%20ambassadeurs%201%20-%20pick%20copy%202.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjkPisU0AFmhP-w6L_M3rESqq3Uc3HylJECdmO0ImTNICcbaBMGpnqCRwjB5mesTDdxKzre0ZNt7bBVh1lGY8drsSUm5rCejgp--zGPMy4KjPOY4sfiyw3gAbBd74nT9vNnZuMtTdznIh-2h8zMgjJp3J6jxXKje_0XCQtAXsa6KQbLJ3S8TnYZa4nOEg/s1806/1929-05-26%20-%20ambassadeurs%201%20-%20pick%20copy%202.jpg)La orquesta de Fresedo en Les Ambassadeurs - París - Año 1929
+[![](/tangos-al-bardo/images/5816beac71a8.jpg)](/tangos-al-bardo/images/da3370fb9125.jpg)La orquesta de Fresedo en Les Ambassadeurs - París - Año 1929
 
 No es posible poner punto final a esa semblanza de Vaccaro sin añadir que es autor de numerosos tangos, milongas y valses. **En la vía, Barajando**, ambos con letra de Eduardo Escaris Méndez; **Funyi claro, Vida rea, Cuatro Ladrillos y La compadrita** han de conceptuarse las más difundidas de las piezas surgidas de la inspiración de este veterano del teclado y uno de los fundadores de SADAIC, tanto que su credencial es la decimotercera.
 

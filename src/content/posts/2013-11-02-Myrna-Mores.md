@@ -16,17 +16,17 @@ En realidad Myrna tiene raíces portuguesas y se llama Guillermina Moragues, por
 
 Incluso fue contratada para el cine y llegó a participar en tres películas. Todo indicaba que haría carrera en el medio artístico por su belleza y atractivo personal, sobre todo cuando ingresa en la orquesta de Francisco Canaro, en la cual dejó apenas tres grabaciones: el tango *Tan Sólo tú *y los valses *Tormenta en el alma* y *Apasionadamente*, estos dos a dúo con Ernesto Famá.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiEB7fmPHzMe0mF04BdmJ0tDVZOCspPKkOjlkU2nYHZy1Y61PNjzKr_J1nOTCu7wbS8mN5sXVvSDktHzowLQPaFHZsIKfehdBEwhaxc29hio7plqWgWh55jsmpOn9jyWKIdAPbCkyJXPS8/s320/MMores.gif)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiEB7fmPHzMe0mF04BdmJ0tDVZOCspPKkOjlkU2nYHZy1Y61PNjzKr_J1nOTCu7wbS8mN5sXVvSDktHzowLQPaFHZsIKfehdBEwhaxc29hio7plqWgWh55jsmpOn9jyWKIdAPbCkyJXPS8/s1600/MMores.gif) El Trío: Margot, Myrna, Mariano
+ [![](/tangos-al-bardo/images/25eb72adb0af.gif)](/tangos-al-bardo/images/e7bbd70f8c25.gif) El Trío: Margot, Myrna, Mariano
 
 Su hermana se retiró pronto debido a su casamiento y Myrna hizo lo propio cuando apenas contaba 22 años. También su matrimonio con Mariano ese año, la impulsó a dedicarse a su esposo y a su familia. Esporádicamente aparecería en Teatro o televisión con toda su familia y demostraría que mantenía sus condiciones vocales y artísticas.
 
 Myrna nació en Córdoba y su madre que entonaba muy bien, las empujó a sus hijas para que siguiesen la estela del canto. Instalados en Buenos Aires, se inscribieron en la Academia de Rubistein donde ella conocería al que sería su futuro esposo, aunque al principio, le costó bastante trabajo a Mariano seducirla, según confiesan ambos.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhKphnO47pU7TFpFJHerOSLZfnqDVGL82CV7B5vwAg7ep8HauTuRbvL-GxwqN6ub71vssinl4iEM82cKfMihjQaHpUd_169HXmrupneb4s4LU0wz7T5tYMV20FQROQsvN-s3iog86Y5a7I/s320/moresuno.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhKphnO47pU7TFpFJHerOSLZfnqDVGL82CV7B5vwAg7ep8HauTuRbvL-GxwqN6ub71vssinl4iEM82cKfMihjQaHpUd_169HXmrupneb4s4LU0wz7T5tYMV20FQROQsvN-s3iog86Y5a7I/s1600/moresuno.jpg) Silvia, Mariana, Mariano y Myrna fueron a escuchar a Gabriel, el nieto
+ [![](/tangos-al-bardo/images/26e66fe9cff6.jpg)](/tangos-al-bardo/images/eaa139d7c247.jpg) Silvia, Mariana, Mariano y Myrna fueron a escuchar a Gabriel, el nieto
 
 Afortunadamente, además de coincidir en muchas cosas, especialmente en la faceta familiar, también lo hicieron en cuando a la salud vital de ambos para mantenerse incólumes al paso del tiempo, y sobrevivir a la tremenda desdicha de perder a su hijo Nito cuando apenas contaba cuarenta años y se había instalado con fuerza en el firmamento tanguero junto a su esposa Claudia.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEixYhbER63Sqi8Kr1zelMbZ5z_NV8SJJ9ELk5EpYszKad0Aw2R0X4ih0zcVGnPnRgsB9jvM9cxxp8urU7fhkuKDWIawfKiOIJ5tidGiVBO-CmWqZAtXzDF50zprTlN47IwfAhxIoopDhB4/s320/mores_familia.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEixYhbER63Sqi8Kr1zelMbZ5z_NV8SJJ9ELk5EpYszKad0Aw2R0X4ih0zcVGnPnRgsB9jvM9cxxp8urU7fhkuKDWIawfKiOIJ5tidGiVBO-CmWqZAtXzDF50zprTlN47IwfAhxIoopDhB4/s1600/mores_familia.jpg) La familia con Nito Mores
+ [![](/tangos-al-bardo/images/e3ec5d721666.jpg)](/tangos-al-bardo/images/59be6e3afb0f.jpg) La familia con Nito Mores
 Mariano cumplió 95 este año y se retiró definitivamente con un concierto, con el calor del público acompañándolo. Myrna, por parte, hizo los 93 el mes pasado y afortunadamente, uno y otro gozan de buena salud.
 
 Yo quiero recordar a Myrna cantando con Francisco Canaro. En dúo con Ernesto Famá, en el vals de José Luis Padula y Enrique Cadícamo: **Tormenta en el alma**. Y, sola, en el tango **Tan solo tú**, de Mariano Mores y Marvil (Elisardo Martínez Vilas), registrados ambos el 28 de octubre de 1940.

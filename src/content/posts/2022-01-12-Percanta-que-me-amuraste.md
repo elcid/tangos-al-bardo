@@ -10,7 +10,7 @@ Si todo se pierde inexorablemente, la especie anímica que alentó al recién fa
 
 -*Hay que ponerle versos a todos los tangos *-proclama-, exagerando su idea: él sabe que los antiguos tangos cantados a lo Villoldo están totalmente fuera de concurso. Él habla de otros tangos...
 
-[![](https://blogger.googleusercontent.com/img/a/AVvXsEg9JFS6emgc07emjMwGeE1emsVnf5N0A08z4ySMnwrV5Dp9FMbfEN-ueE0rDPgNwwARalM5eOd4Z_rU5h-2ZJAg6o5px1m8XFO-JGcf2ZbAGGfAKX42YifBQ9V8mM0N-eTUqD4a2kJf73zefiV3W6piG9M3GHs3RnE3XcECOAWlid4C75ISZ-1oI8fhNQ=w255-h400)](https://blogger.googleusercontent.com/img/a/AVvXsEg9JFS6emgc07emjMwGeE1emsVnf5N0A08z4ySMnwrV5Dp9FMbfEN-ueE0rDPgNwwARalM5eOd4Z_rU5h-2ZJAg6o5px1m8XFO-JGcf2ZbAGGfAKX42YifBQ9V8mM0N-eTUqD4a2kJf73zefiV3W6piG9M3GHs3RnE3XcECOAWlid4C75ISZ-1oI8fhNQ=s1600)Pascual Contursi
+[![](/tangos-al-bardo/images/cdec55afd6bf.jpg)](https://blogger.googleusercontent.com/img/a/AVvXsEg9JFS6emgc07emjMwGeE1emsVnf5N0A08z4ySMnwrV5Dp9FMbfEN-ueE0rDPgNwwARalM5eOd4Z_rU5h-2ZJAg6o5px1m8XFO-JGcf2ZbAGGfAKX42YifBQ9V8mM0N-eTUqD4a2kJf73zefiV3W6piG9M3GHs3RnE3XcECOAWlid4C75ISZ-1oI8fhNQ=s1600)Pascual Contursi
 
 Y ¡qué bien!, ¡con qué justeza desentraña a las melodías las irreveladas palabras que a su paladar de poeta, llevan implícitas! Lo ayuda también en su entusiasta manifiesto de versificador por decreto de todos los tangos, este hecho: los compositores -que son amigos o, por lo menos conocidos suyos, ¡todos de noche tanguera cerrada!- hacen ahora unos temas que "piden" canto.
 

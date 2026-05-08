@@ -12,7 +12,7 @@ A lo largo de una década siguieron efectuándose anualmente esos concursos, y h
 
 Voy a referirme hoy, justamente al tercer premio del concurso inicial, *Organito de la tarde*, página siempre fresca que trajo al primer plano de la notoriedad, en la canción ciudadana, a dos cultores de talento: el dramaturgo José González Castillo y su hijo Cátulo.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiwUA5bH6P_hGbYdnP_yVzAvm0Thh-AS0hmHccGM4saN8TMflt1d2n2iTsWO58WthG0Fj4dUk5LOqs3AE-rI14WYh1Co5WqN7b8kye-4Q8xYgV2cDzD9QH7TEKOatmC9XfbcbAaDP3YU40PWOhATO1NjWMjySukdWAJAcArnkMTEUV9PWI_O4ob0ZounXaf/s320/jose-gonzalez-castillo-y-su-hijo-catulo-dupla-brava.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiwUA5bH6P_hGbYdnP_yVzAvm0Thh-AS0hmHccGM4saN8TMflt1d2n2iTsWO58WthG0Fj4dUk5LOqs3AE-rI14WYh1Co5WqN7b8kye-4Q8xYgV2cDzD9QH7TEKOatmC9XfbcbAaDP3YU40PWOhATO1NjWMjySukdWAJAcArnkMTEUV9PWI_O4ob0ZounXaf/s642/jose-gonzalez-castillo-y-su-hijo-catulo-dupla-brava.jpg)José González Castillo y Cátulo.
+[![](/tangos-al-bardo/images/116074ee4446.jpg)](/tangos-al-bardo/images/a53d083a2827.jpg)José González Castillo y Cátulo.
 
 La orquesta del certamen era la de Roberto Firpo y los tangos competían solamente en su carácter musical, sin injerencia de la letra aunque la tuviesen. El mismo carácter fue el de los concursos de los siguientes años, porque en ese tiempo no existía aún el cantor de orquesta. Las obras, aunque inéditas, se presentaban a la empresa Glücksmann firmadas por sus propios autores, y eran seleccionadas por la dirección artística.
 

@@ -12,7 +12,7 @@ El tango puede definirse de cualquier manera menos como algo simple. Sabe a milo
 
 Es reflejo de las mas diversas pasiones y emociones humanas. Todas esas características nos llevaron a encontrarnos con Domingo Pugliese, para muchos quizás desconocido por su afán de mantener su “perfil bajo” como bien él define su propia figura, pero reconocido como pocos en el ambiente tanguero de Buenos Aires por llevar 52 impecables años como eximio BAILARIN y profesor de profesores.
 
-[![](https://blogger.googleusercontent.com/img/a/AVvXsEg3g0Whwjsmx5OGYUfA-Pj2xF-SsgMjusMM2YpF3Hf0awf_kAYTecEf-Wjxd_L7wgtOt6sI2d9neea-CQwyrO3ZxxR1nBjrvzd1fIa7O1b9wvZrS61RmxpRbBiHR4YZrv89V-bZCe_vG7tujAe0yHRQOEhg4o6SXuDYv9EUSm2wriMz_osM4fShMzmSYw=w400-h329)](https://blogger.googleusercontent.com/img/a/AVvXsEg3g0Whwjsmx5OGYUfA-Pj2xF-SsgMjusMM2YpF3Hf0awf_kAYTecEf-Wjxd_L7wgtOt6sI2d9neea-CQwyrO3ZxxR1nBjrvzd1fIa7O1b9wvZrS61RmxpRbBiHR4YZrv89V-bZCe_vG7tujAe0yHRQOEhg4o6SXuDYv9EUSm2wriMz_osM4fShMzmSYw=s457)Esther y Mingo Pugliese
+[![](/tangos-al-bardo/images/99ea1c2f426c.jpg)](https://blogger.googleusercontent.com/img/a/AVvXsEg3g0Whwjsmx5OGYUfA-Pj2xF-SsgMjusMM2YpF3Hf0awf_kAYTecEf-Wjxd_L7wgtOt6sI2d9neea-CQwyrO3ZxxR1nBjrvzd1fIa7O1b9wvZrS61RmxpRbBiHR4YZrv89V-bZCe_vG7tujAe0yHRQOEhg4o6SXuDYv9EUSm2wriMz_osM4fShMzmSYw=s457)Esther y Mingo Pugliese
 
 Integrante de los Jurados del Festival de tango y folklore de Baradero de la Provincia de Buenos Aires y de los Torneos Bonaerenses de tango y folklore para Tercera Edad. Viene transmitiendo su escuela desde hace muchos años en países como España, Japón, Brasil, Alemania, además de ser Profesor y Coreógrafo del Centro General Belgrano y del Centro Cultural Ricardo Rojas y de la Universidad de Buenos Aires.
 
@@ -32,7 +32,7 @@ Algunos dicen que uno de los primeros bailarines, fue de San Telmo, se llamo Ped
 
 Me vuelco mas por esa teoría porque ahí estaba el matadero antiguo al que llegaban arriando las tropas desde el interior y el barrio estaba todo circundado por prostíbulos.
 
-[![](https://blogger.googleusercontent.com/img/a/AVvXsEge5pMbR0S-LwXg0YZ6icY-J2DwSY5MR1ziQEcVJOES5aqR8aDsQjpjUiOxflffKmMN7SCUY_lkz9UwsUHd0SY82J9BbU3OWogf8I7SNfrhtQt-ydIR5j7mP7IEWJW9PH5-7-fbGvet6PVax50IbgDRyrbOXLfI8uBVMpo9Bsgwvif1gq-LoKUUsqddDg=w400-h298)](https://blogger.googleusercontent.com/img/a/AVvXsEge5pMbR0S-LwXg0YZ6icY-J2DwSY5MR1ziQEcVJOES5aqR8aDsQjpjUiOxflffKmMN7SCUY_lkz9UwsUHd0SY82J9BbU3OWogf8I7SNfrhtQt-ydIR5j7mP7IEWJW9PH5-7-fbGvet6PVax50IbgDRyrbOXLfI8uBVMpo9Bsgwvif1gq-LoKUUsqddDg=s220)Mingo Pugliese bailando con Gachi Fernández
+[![](/tangos-al-bardo/images/1f7805ed1a23.jpg)](https://blogger.googleusercontent.com/img/a/AVvXsEge5pMbR0S-LwXg0YZ6icY-J2DwSY5MR1ziQEcVJOES5aqR8aDsQjpjUiOxflffKmMN7SCUY_lkz9UwsUHd0SY82J9BbU3OWogf8I7SNfrhtQt-ydIR5j7mP7IEWJW9PH5-7-fbGvet6PVax50IbgDRyrbOXLfI8uBVMpo9Bsgwvif1gq-LoKUUsqddDg=s220)Mingo Pugliese bailando con Gachi Fernández
 
 En lo que a mi respecta, me interesa hacer dos separaciones en el tango y que son las etapas que marca el año ’40, ya que a partir de ese año fue cuando realmente evolucionó ‑el tango música empieza allá por el ’900 como tango ‑ criollo, como tango de la Guardia Vieja, hasta que De Caro en la época del ’20 le cambia la notación musical del compás del 2 por 4, al del 4 por 4, dando origen a la Guardia Nueva.
 

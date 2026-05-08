@@ -26,7 +26,7 @@ La variante **mandolión** puede encontrarse en la partitura de "Viejo rincón",
 
 Como nadie ignora, por metonimia (la parte por el todo) al bandoneón se le llama** fueye**, nombre dado por Manzi a unos versos muy bellos, convertidos en tango por el genio creador de Charlo (Oscar Zucchi ha escrito páginas memorables sobre este tango, y aún podría agregar muchas otras, porque le sobra resto). Esta metáfora dio el adjetivo **fueyero**, y ha tenido amplia cogida en la más empinada literatura.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi-cZNO-FpUfu5Yb6pVX3ACeEHFy9m_1_wX0VrDtB19WykRL_aiUKz1bWTtGq6-uM4gjgxlTQIwLqJdxMPF9tfw3wR5RhWQwTwUlSqcF7s5Tb19PRRdHgSAuwm-cRFzCY3LdSzj5o8g2Dcj/w240-h320/aieta.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi-cZNO-FpUfu5Yb6pVX3ACeEHFy9m_1_wX0VrDtB19WykRL_aiUKz1bWTtGq6-uM4gjgxlTQIwLqJdxMPF9tfw3wR5RhWQwTwUlSqcF7s5Tb19PRRdHgSAuwm-cRFzCY3LdSzj5o8g2Dcj/s259/aieta.jpg)Anselmo Aieta
+[![](/tangos-al-bardo/images/fc3413ebfd3e.jpg)](/tangos-al-bardo/images/21fc2389d9a7.jpg)Anselmo Aieta
 
 Véase: *"Un rápido quemarse de tus alas, allá, en el cabaret sin gloria que a medianoche da tumbos de borrachos al son de fuelles y violines más negros que la pena*" (Leopoldo Marechal, "Adán Buenos Aires", 1948); "*Y ese Bar y Billares, saliendo a la vereda donde una vez Aieta sacó viruta al fueye*" (Raúl González Tuñón, "La veleta y la antena", 1969). sin embargo, el viejo significado lunfardo de fueye es "pulmón". La acepción musical parece más bien una creación literaria.
 

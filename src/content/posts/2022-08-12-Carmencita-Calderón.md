@@ -14,7 +14,7 @@ La mítica compañera de El Cachafaz
 
 La danza porteña nació bastarda, machista y orillera y a las féminas les costó su tiempo franquear esas puertas prohibidas incluso para la sociedad pacata de la época. Pero el tango supo esperarlas y les dio el salvoconducto en su aduana a las musas milongueras que venían a iluminar las nuevas pistas bailables en salones y clubes que desplazaban a academias, bailongos y cabarutes.
 
-### [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjJNAxYx0NkHUGybaj9_uon26sbfL0Q4oUDmzO9T-T6xJjda01I07o1-z47qNsuv60zuBsf_225nPrhwCTNloAnRhYShqp6E-UVZrITxYCmBO4LWUwbUiBPeuN5H_SXwENIsOFOzu5m89twfIu4bWcyZvb5dCw-2KanE2q1P02Kmbl2GG6HWkL0MxXhiA/w258-h400/El-Cachafaz-Carmencita-Calderon-web.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjJNAxYx0NkHUGybaj9_uon26sbfL0Q4oUDmzO9T-T6xJjda01I07o1-z47qNsuv60zuBsf_225nPrhwCTNloAnRhYShqp6E-UVZrITxYCmBO4LWUwbUiBPeuN5H_SXwENIsOFOzu5m89twfIu4bWcyZvb5dCw-2KanE2q1P02Kmbl2GG6HWkL0MxXhiA/s932/El-Cachafaz-Carmencita-Calderon-web.jpg)El Cachafaz y Carmencita
+### [![](/tangos-al-bardo/images/4dd2c7980ea3.jpg)](/tangos-al-bardo/images/7aa004949c85.jpg)El Cachafaz y Carmencita
 
 Para ello debió abandonar la procacidad de sus movimientos, transformándolos en una sustancia íntima, sensual, recoleta, que abarcaba a una comunidad cuyos sentimientos eran intransferibles y donde machos y minas compartían una pasión común. Uno y otro creaban al compás de la música, el hombre llevando, marcando compases y pasos, la mujer interpretando el modo de devolver y disfrutar en su cuerpo lo que el bailarín le estaba proponiendo.
 

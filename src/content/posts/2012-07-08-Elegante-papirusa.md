@@ -8,7 +8,7 @@ tags: ["Edgardo Donato", "Miguel Caló"]
 
 En principio, este título del tango del violinista de la guardia vieja Tito Roccatagliata, sugiere una dedicatoria especial a una dama. Y lo tiene.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgLGCjeVRSUGhLKPEEfwehPB6GodcCEoBRD9juoSStzwThCnREAPQPw2VTf_0JcejT-DygVuJ85ppcAAcuaVqdTcJhyphenhyphenu7XTbFRrjn072gN3wBpbVjxdWLNNnptP4pq2DdNwd7BBpvF4Rcze/s320/escanear0003.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgLGCjeVRSUGhLKPEEfwehPB6GodcCEoBRD9juoSStzwThCnREAPQPw2VTf_0JcejT-DygVuJ85ppcAAcuaVqdTcJhyphenhyphenu7XTbFRrjn072gN3wBpbVjxdWLNNnptP4pq2DdNwd7BBpvF4Rcze/s1600/escanear0003.jpg) La orquesta de Fresedo en 1921. Fresedo, Rodríguez y Thompson adelante. Detrás: Francia, Cobián, Tito y saxofón.
+ [![](/tangos-al-bardo/images/74864005843f.jpg)](/tangos-al-bardo/images/cf4975c5f32d.jpg) La orquesta de Fresedo en 1921. Fresedo, Rodríguez y Thompson adelante. Detrás: Francia, Cobián, Tito y saxofón.
 
 En Buenos Aires, el tango fue desplazándose desde los barrios bajos, a los cabarés de Palermo, los cafetines de la Boca y finalmente a los Cabarés o *Dancing* del centro de la Capital, en la segunda década del siglo XX.
 

@@ -17,7 +17,7 @@ Estudió en la Facultad de Filosofía y Letras aunque no llegó a diplomarse y s
 En 1951 viaja a España y luego a París donde permanece un tiempo.
 
 En un viaje anterior,en 1944, escribe un verso y se lo envía a su hermano Virgilio: *"Andá poniéndole música a esta primera parte, que después escribo la segunda y la primera bis y te la mando".*
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhPrHsSa6sJyIG3-r-ha2-hB8MomocoxzhslXQLpFUR8nigL3oRoTujJNm4bG7HbHwmyLJePy4tZ8q2VzstawfellOVAVwHX4ETqK_kL8Y89Ska0S6obpQLbO9aKf-lft_Vs6LVZcwpFALH/s1600/HomeroExp%C3%B3sito.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhPrHsSa6sJyIG3-r-ha2-hB8MomocoxzhslXQLpFUR8nigL3oRoTujJNm4bG7HbHwmyLJePy4tZ8q2VzstawfellOVAVwHX4ETqK_kL8Y89Ska0S6obpQLbO9aKf-lft_Vs6LVZcwpFALH/s1600/HomeroExp%C3%B3sito.jpg) Homero Expósito  Virgilio que era pianista, le responde: "*Con esto ya tenés el corazón del tema. Acá ya dijiste todo, Hace una primera y una primera bis cortitas, que ya está."*
+ [![](/tangos-al-bardo/images/487e472ae042.jpg)](/tangos-al-bardo/images/487e472ae042.jpg) Homero Expósito  Virgilio que era pianista, le responde: "*Con esto ya tenés el corazón del tema. Acá ya dijiste todo, Hace una primera y una primera bis cortitas, que ya está."*
 
 Virgilio contaba que era tan meticuloso que cambiaba 60 o 70 veces las letras, porque siempre le encontraba un defecto.
 

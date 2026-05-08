@@ -5,7 +5,7 @@ original_url: https://tangosalbardo.blogspot.com/2023/09/de-otro-tiempo.html
 labels: ""
 ---
 
-![José María Plaza – Rufinoweb.com.ar](https://rufinoweb.com.ar/wp-content/uploads/2014/03/plazajm.jpg)
+![José María Plaza – Rufinoweb.com.ar](/tangos-al-bardo/images/3d0208b97d0e.jpg)
 
 Vos sabés que son rantes mis blasones
 

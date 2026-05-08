@@ -20,7 +20,7 @@ En una de esas charletas que tenía con Ángel y Coco D'Agostino, su sobrino, a 
 
 -El tango quedó archivado entre tantos papeles amontonados, hasta que una noche a fines del cuarenta, estábamos en la boite* Chez Nous* y después de la actuación, me vino a la cabeza ese tema y lo empecé a tocar en el piano con la idea de rejuvenecerlo. Como estaba Cadícamo le dije si podía ponerle letra. Éste tomó unos apuntes y se lo llevó. Así fue como empezó la historia de *Tres esquinas...*
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiXjBlcx8txixgByxhrUrzHrgTMHJ4g_dWbqLNsrK18QZSZwkQjs6WrrVpPT0BqwDWbffIFP7LjP7kGWKe-S5hu7HGJYwa7-ERh7g6Rn7-0kzqhMKo3mKVXRW85JaZTY4KWXg_IUdpLl3c/s1600/entrevista_adagostino02.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiXjBlcx8txixgByxhrUrzHrgTMHJ4g_dWbqLNsrK18QZSZwkQjs6WrrVpPT0BqwDWbffIFP7LjP7kGWKe-S5hu7HGJYwa7-ERh7g6Rn7-0kzqhMKo3mKVXRW85JaZTY4KWXg_IUdpLl3c/s1600/entrevista_adagostino02.jpg) D'Agostino y Cadícamo en los recuerdos.
+ [![](/tangos-al-bardo/images/fd325303fca6.jpg)](/tangos-al-bardo/images/fd325303fca6.jpg) D'Agostino y Cadícamo en los recuerdos.
 
 Y ya con el tema compuesto lo estaban ensayando. Angelito Vargas con su vocecita fraseadora le estaba sacando punta y lo tenían bien enfilado, para entusiasmo de todos los integrantes de la orquesta. Pero había algo que no terminaba de satisfacer a D'Agostino, cuando a Vargas se le ocurre recitar el comienzo de la segunda parte:
 
@@ -32,7 +32,7 @@ Y continúa cantando:
 *Soy de ese barrio que toma mate*
 *bajo la sombra que da el parral....*
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgVAx9WQV3-DSb5ms7Qqj2bXLaeaOMOclQS2zTL3PTecbGC6Sb5UZ2mod9zgjfLd0okR7Fr8LLVSjoinhweU_btQlXLzXpAVM1PI2DphUmu-qhh9QKS0j7-LrtY9DMhDlKWHl6rTy4-i3s/s1600/ALFREDO+ADOLFO+ATTAD%C3%8DA.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgVAx9WQV3-DSb5ms7Qqj2bXLaeaOMOclQS2zTL3PTecbGC6Sb5UZ2mod9zgjfLd0okR7Fr8LLVSjoinhweU_btQlXLzXpAVM1PI2DphUmu-qhh9QKS0j7-LrtY9DMhDlKWHl6rTy4-i3s/s1600/ALFREDO+ADOLFO+ATTAD%C3%8DA.jpg) Alfredo Adolfo Attadía
+ [![](/tangos-al-bardo/images/4fd26f178237.jpg)](/tangos-al-bardo/images/4fd26f178237.jpg) Alfredo Adolfo Attadía
 
 Era el paréntesis que buscaba D'Agostino para no hacer tan largo el parlamento cantado. Y quedó redondito. Entonces venía el final de la segunda parte en la que el director había ideado una melodía con el piano, pero no salía como quería y en un paréntesis se puso a dialogar con el violinista Holgado Barrio. Y el primer bandoneón, que era Alfredo Attadía y había colaborado en el armado de la orquestación, entró a realizar unos acordes.
 

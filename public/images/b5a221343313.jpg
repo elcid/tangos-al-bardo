@@ -1,0 +1,79 @@
+﻿<!DOCTYPE html>
+<html lang="en">
+<head>
+    <meta charset="UTF-8">
+    <meta name="viewport" content="width=device-width, initial-scale=1.0">
+    <title>Cineuropa</title>
+    <style>
+        body {
+            font-family: sans-serif;
+            display: flex;
+            justify-content: center;
+            align-items: center;
+            min-height: 100vh;
+            margin: 0;
+            background-color: #333333;
+            color: #333;
+            text-align: center;
+        }
+        .container {
+            padding: 20px;
+            border-radius: 8px;
+            background-color: #fff;
+            box-shadow: 0 2px 10px rgba(0,0,0,0.1);
+        }
+        h1 {
+			font-size: 30px;
+            color: #d32f2f; /* A reddish color for error messages */
+        }
+        p {
+            margin-top: 18px;
+            font-size: 25px;
+        }
+        #countdown {
+            font-size: 40px;
+            font-weight: bold;
+            color: #1976d2; /* A blue color for the countdown */
+            margin-top: 20px;
+        }
+    </style>
+	<!-- Google tag (gtag.js) -->
+	<script async src="https://www.googletagmanager.com/gtag/js?id=G-LBM9ZCCKZ7"></script>
+	<script>
+	  window.dataLayer = window.dataLayer || [];
+	  function gtag(){dataLayer.push(arguments);}
+	  gtag('js', new Date());
+
+	  gtag('config', 'G-LBM9ZCCKZ7');
+	</script>
+</head>
+<body>
+	
+    <div class="container">
+		<IMG src="https://cineuropa.org/img/logoBottom2013.png" width="300"><br><br>
+        <h1>The page you requested<BR>encountered an error.</h1>
+        <p>Nothing serious, we're taking you to a safe page.</p>
+        <p><strong>You will be redirected in<br><span id="countdown">30</span><br>seconds...</strong></p>
+    </div>
+
+    <script>
+        const redirectUrl = "https://cineuropa.org/en/news/";
+        let timeLeft = 10;
+        const countdownElement = document.getElementById("countdown");
+
+        function updateCountdown() {
+            countdownElement.textContent = timeLeft;
+            timeLeft--;
+
+            if (timeLeft < 0) {
+                window.location.href = redirectUrl; // Reindirizza l'utente
+            } else {
+                setTimeout(updateCountdown, 1000); // Aggiorna ogni secondo
+            }
+        }
+
+        // Avvia il conto alla rovescia al caricamento della pagina
+        updateCountdown();
+    </script>
+</body>
+</html>

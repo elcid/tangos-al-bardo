@@ -12,7 +12,7 @@ Hoy estoy con la música de Pichuco y me pongo a repasar su historia previa a la
 
 Elvino Vardaro y Osvaldo Pugliese habían formado un quinteto en 1929. En el 30 lo renovaron. Siguieron ellos dos, Corleto en el contrabajo, Miguel Jurado como bandoneón, y entramos Alfredito Gobbi y yo. Los dos nos fuimos en el 32. Yo me fui con Ciriaco Ortiz al cabaret Casanova y Gobbi se abrió para ir con Osvaldo Pugliese al Moulin Rouge. Al mismo tiempo grababa con Ciriaquito, Kalisay, Germino, Vardaro, Corleto y Francia.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjzazEEU-2lmkewQZAfTFD6VK7O4Ena3RpTY2xvIuH571Fi4pDPEKpo-YhbxAZq4UWnWIcIx7PXinN80jneuOz8f-nIPq3P-ypZ1My3oBwEh0WnVsaOmmryZzVNvBN7OoDf9XbV4BiPFbK-/s400/DEC.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjzazEEU-2lmkewQZAfTFD6VK7O4Ena3RpTY2xvIuH571Fi4pDPEKpo-YhbxAZq4UWnWIcIx7PXinN80jneuOz8f-nIPq3P-ypZ1My3oBwEh0WnVsaOmmryZzVNvBN7OoDf9XbV4BiPFbK-/s1600/DEC.jpg) La orquesta de Julio De Caro. Troilo está parado arriba, detrás de Armando Blasco
+ [![](/tangos-al-bardo/images/f3fbfa07abba.jpg)](/tangos-al-bardo/images/be083fa44106.jpg) La orquesta de Julio De Caro. Troilo está parado arriba, detrás de Armando Blasco
 
 **Julio De Caro**
 
@@ -31,7 +31,7 @@ A Orlando Goñi me lo presentó Alfredo Gobbi. Trabajamos en el cine Garay y ens
 
 Elvino Vardaro formó un sexteto para actuar en Radio Belgrano. Estaban él y Hugo Baralis en violines. José Pascual en el piano, Pedro Caracciolo en contrabajo y Jorge Fernández y yo en bandoneones. En esos años tallaban los dúos de fueyes: Maffia y Laurenz, De Franco y Clausi. Ellos hacían temblar a las barras milongueras. Con Jorge hicimos un dúo de bandoneones que la ciudad entró a considerar con el mejor de los apoyos. Con ese sexteto viajamos a Montevideo y actuamos en el Tupí Nambá nuevo, que estaba en la 18, cerca de la Plaza Independencia. Allí venían a ponerle la oreja al sexteto, el escritor Sabat Ercasty, aquel centro half glorioso que fue Zibecchi, el* ñato* Pedreira, Pintín Castellanos, el* Loro* Collazo, Di Feo, el* Flaco* Pérez. Venía todas las noches un pibe que se llamaba De los Hoyos...
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgCMldGXIz5sr4PojUtfW71huGR3wbR-Sw_XqfQoE_03BdG_GSGLPemKMt3rkVF7DoREK_fZB6u5bfks4TgF495NVe31oagOf65q6YZSg6W9ffNAuKnQGGj1bNd9hr87J8CqmWXgfGONQqz/s400/DATRO.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgCMldGXIz5sr4PojUtfW71huGR3wbR-Sw_XqfQoE_03BdG_GSGLPemKMt3rkVF7DoREK_fZB6u5bfks4TgF495NVe31oagOf65q6YZSg6W9ffNAuKnQGGj1bNd9hr87J8CqmWXgfGONQqz/s1600/DATRO.jpg) Ángel D'Agostino su orquesta, con Troilo y Alberto Echagüe
+ [![](/tangos-al-bardo/images/50862892fd87.jpg)](/tangos-al-bardo/images/2569ac173466.jpg) Ángel D'Agostino su orquesta, con Troilo y Alberto Echagüe
 
 **Ángel D'Agostino**
 

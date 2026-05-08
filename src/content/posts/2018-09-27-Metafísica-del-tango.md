@@ -12,7 +12,7 @@ Una de las manifestaciones de este sentimiento de inferioridad del argentino (qu
 
 Según esta singular doctrina, el "mal metafísico" sólo puede acometer a un habitante de París o de roma. Y, si se tiene presente que ese mal metafísico es consecuencia de la finitud del hombre, hay que concluir que para estos teóricos la gente sólo se muere en Europa.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjzd7CzOW0MQI3wfg7VDcuEzPXM-G-z6EpAtvHNFXeJeKYrn1eVz4-u3lI-xPL7_eF5d4zyRKkvADodh-gUfXtb-EztdPmvUMqq8dnr5QzeLYIJszfq0HQTNaZEybSZ76C0B6HYfuZDGkq6/s320/S%25C3%25A1bato+y+Troilo.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjzd7CzOW0MQI3wfg7VDcuEzPXM-G-z6EpAtvHNFXeJeKYrn1eVz4-u3lI-xPL7_eF5d4zyRKkvADodh-gUfXtb-EztdPmvUMqq8dnr5QzeLYIJszfq0HQTNaZEybSZ76C0B6HYfuZDGkq6/s1600/S%25C3%25A1bato+y+Troilo.jpg) Eernesto Sábato y Aníbal Troilo
+ [![](/tangos-al-bardo/images/7327ddf448ea.jpg)](/tangos-al-bardo/images/de4924d2ec4d.jpg) Eernesto Sábato y Aníbal Troilo
 A estos críticos, que no sólo se niegan a considerar su miopía como una desventaja sino que, por el contrario, la usan como instrumento de sus investigaciones, hay que explicarles que si el mal metafísico atormenta a un europeo, a un argentino lo debe atormentar por partida doble, puesto que si el hombre es transitorio en Roma, aquuí lo es muchísimo más, ya que tenemos la sensación de vivir esta transitoria existencia en un campamento y en medio de un cataclismo universal, sin ese respaldo de la eternidad que allá es la tradición milenaria.
 
 Cómo será verdad todo esto que hasta los autores de tango hacen metafísica sin saberlo.

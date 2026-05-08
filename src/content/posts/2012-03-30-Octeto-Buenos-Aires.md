@@ -14,7 +14,7 @@ En una oportunidad llevé a Astor Piazzolla al programa que teníamos en Radio A
 
 
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgzAG43Ph3tfEIaJzdu-TtI_Tx7OlVeNddF8KJjOTGlwAGwMqJ6A2qRhE7kBVgQpS5xC2JKrs6vF9nzEUxCC95a0J_uu3uj8B7U8dVxC4RVWCiLHOpIYnB1fkquEl0E3O3ySmfofeLdYewo/s320/Octeto+-imagen.bmp)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgzAG43Ph3tfEIaJzdu-TtI_Tx7OlVeNddF8KJjOTGlwAGwMqJ6A2qRhE7kBVgQpS5xC2JKrs6vF9nzEUxCC95a0J_uu3uj8B7U8dVxC4RVWCiLHOpIYnB1fkquEl0E3O3ySmfofeLdYewo/s1600/Octeto+-imagen.bmp)  ****Astor Piazzolla con el Octeto Buenos Aires en 1956 (Canal 7)****  De izquierda a derecha: Stampone, Nicolini, Baralis, Federico, Piazzolla, Bragato, Francini y Malvicino
+ [![](/tangos-al-bardo/images/d30c6f2eb16e.bmp)](/tangos-al-bardo/images/ec42335c00dd.bmp)  ****Astor Piazzolla con el Octeto Buenos Aires en 1956 (Canal 7)****  De izquierda a derecha: Stampone, Nicolini, Baralis, Federico, Piazzolla, Bragato, Francini y Malvicino
 
    Vale la pena volver a escuchar a ese Octeto que marcó toda una época en el tango y que según el director, realizar el difícil equilibrio sonoro del Octeto llevó dos años y quedaba mucho por descubrir…
  Y hoy traigo dos de aquellas versiones del LP. Incluso con las explicaciones del propio Piazzolla.

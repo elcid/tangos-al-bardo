@@ -8,7 +8,7 @@ tags: ["Ignacio Corsini", "Carlos Gardel"]
 
 En el **Día Nacional de la Zamba**, me detengo en esta hermosa página del poeta Benjamín Alfonso Tagle Lara y el pianista-violinista Carlos Vicente Geroni Flores. La compusieron en 1923 y al principio la llamaron** *****Zamba del boyero** *(Persona que se dedica a pastar y conducir una manada de bueyes). El tema tuvo mucho recorrido, estuvo considerada como página ejemplar en el folklore campero y figuró con nota en el repertorio de los tres grandes: Gardel, Magaldi y Corsini.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhpV8sy-zQHMCVpdiriZ01CbADmYCLbrT7z1Y49Xs7o6BMWrEDdCHr9t1OtNizMN57x1GTuFmJwSZGMSstYwfdRa3Kc5AF01skPANlDY_QNpnCgH6a6deKx0aX4Ok6kyyv5yM8wDHoASnJpXQIM2bpPnhUasAGwvvhq2GnoHaDuw9rNDXixpsWQePg0QA/s1600/Benjam%C3%ADn%20Tagle%20Laraca54f9be79becf3331db9fc736b6f0e8.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhpV8sy-zQHMCVpdiriZ01CbADmYCLbrT7z1Y49Xs7o6BMWrEDdCHr9t1OtNizMN57x1GTuFmJwSZGMSstYwfdRa3Kc5AF01skPANlDY_QNpnCgH6a6deKx0aX4Ok6kyyv5yM8wDHoASnJpXQIM2bpPnhUasAGwvvhq2GnoHaDuw9rNDXixpsWQePg0QA/s320/Benjam%C3%ADn%20Tagle%20Laraca54f9be79becf3331db9fc736b6f0e8.jpg)Benjamín Alfonso Tagle Lara
+[![](/tangos-al-bardo/images/6b51260153c6.jpg)](/tangos-al-bardo/images/fe5eee8c72b5.jpg)Benjamín Alfonso Tagle Lara
 
 Fue estrenada con el primigenio título por el dúo Ítalo Goyeche-Néstor Feria en el concurso de canciones regionales, realizado en 1924 en Montevideo. Se trataba del primer tema de Tagle Lara que luego descollaría en el tango con composiciones de relieve como *Una tarde, Trapo viejo, La tropilla, Puente Alsina, Congoja, El trovero* o* Zaraza.*
 

@@ -6,7 +6,7 @@ labels: ""
 tags: ["Osvaldo Pugliese", "Francisco Canaro", "Mariano Mores"]
 ---
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhGYDiiBo25A7cgFYvk2fRhcCOa9devVcPoB4PHxdghrcA9NL5oNAkpvE-LPRlWTtzxlMxD-gPp66ug5_BKGMnnQXosNp2IF7pQgSQ6wzwGNKAhg1nDQnQh6xfKDm8VFPOyeGgvQ4JUJm5R/s320/yunta.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhGYDiiBo25A7cgFYvk2fRhcCOa9devVcPoB4PHxdghrcA9NL5oNAkpvE-LPRlWTtzxlMxD-gPp66ug5_BKGMnnQXosNp2IF7pQgSQ6wzwGNKAhg1nDQnQh6xfKDm8VFPOyeGgvQ4JUJm5R/s1600/yunta.jpg) *Muchachos, comienza la ronda*
+[![](/tangos-al-bardo/images/2f617b8ed811.jpg)](/tangos-al-bardo/images/78a2ebadd226.jpg) *Muchachos, comienza la ronda*
 * ***que el tango invita a formar.**
 ** ***¿Quién al oir el arranque*
 * **de un son tan brillante*

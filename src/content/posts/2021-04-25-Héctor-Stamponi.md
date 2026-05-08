@@ -44,7 +44,7 @@ El tango fue, desde luego, el principal invitado en la charla que *Siete Días *
 
 —Así es. Es un nuevo tipo de tango. Yo creo que hay que crear para las nuevas generaciones, aunque las buenas obras perduren siempre. No hay música antigua ni moderna: hay buena y mala música. Si desecháramos todo lo antiguo no se tocaría* La traviata* ni se representaría el *Hamlet*, ni se leería *La divina comedia* ni *El Quijote*.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgrNrFp2ErDKEl_onr_NLbwb5QlvZ6_MekLs0OCWcbGkENVUAz-7eXKLkwvMlyg4QSyi8lPRXic9W6Z-wwEEiowJA_Hczb4wCgZqkXFhyphenhyphenUzhiSfWhWSsjaRyLlUyprBQSMZQAjl1QhUQId-/w400-h275/Juan+Ehlert+primero+por+derecha%252C+stamponi+mo%25C3%25B1ito.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgrNrFp2ErDKEl_onr_NLbwb5QlvZ6_MekLs0OCWcbGkENVUAz-7eXKLkwvMlyg4QSyi8lPRXic9W6Z-wwEEiowJA_Hczb4wCgZqkXFhyphenhyphenUzhiSfWhWSsjaRyLlUyprBQSMZQAjl1QhUQId-/s600/Juan+Ehlert+primero+por+derecha%252C+stamponi+mo%25C3%25B1ito.jpg)Stamponi en sus comienzos cuando tocaba en la orquesta de Juan Ehlert
+[![](/tangos-al-bardo/images/94915e44b27a.jpg)](/tangos-al-bardo/images/920cc3a7d23b.jpg)Stamponi en sus comienzos cuando tocaba en la orquesta de Juan Ehlert
 
 —Pero en general, en materia de letras, el tango dejó de ser testimonio de su tiempo: es decir, se insiste en el percal y la tuberculosis en la época del *wash and wear* y las vacunas. . . Probablemente haya falta de poetas al estilo de Manzi y Discépolo. . .
 

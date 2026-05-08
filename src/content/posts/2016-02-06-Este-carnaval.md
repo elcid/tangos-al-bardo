@@ -24,7 +24,7 @@ Este hombre, nacido en el porteño barrio de Villa Crespo en 1916, tocó en la o
 
 Curiosamente, a la par de excelente bandoneonista, Caruso también se lucía con la pluma y así escribió temas de notable éxito como: *Anselmo Acuña el resero, Y siempre igual, La fulana* -en ambos roles con Alberto Mastra-, *Bomboncito, Es inútil que la llores, Lilián, Lecherito del Abasto, Se va una tarde más, Aquel muchacho de la orquesta, *y otros temas en los que demuestra su gran ductilidad, porque también fue un aplaudido compositor.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjze_C7Tj7PFNQsjKZUgIP4qn1VUDvddsDq6lzi6QO6zQK7DTf-p_ZSWumewkhWvL4DsN7ST8T3oWUFuFgNSf9igFRIvz4mEF1lanMCd8EbxflyWE88pGayUpCbvnrkNWSEAJbHtdoM_Ay5/s400/Warren.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjze_C7Tj7PFNQsjKZUgIP4qn1VUDvddsDq6lzi6QO6zQK7DTf-p_ZSWumewkhWvL4DsN7ST8T3oWUFuFgNSf9igFRIvz4mEF1lanMCd8EbxflyWE88pGayUpCbvnrkNWSEAJbHtdoM_Ay5/s1600/Warren.jpg) Caruso en la orquesta de Carlos Warren en 1938. Es el primer bandoneón, izquierda
+ [![](/tangos-al-bardo/images/f2e14838fc92.jpg)](/tangos-al-bardo/images/2eb57ada489d.jpg) Caruso en la orquesta de Carlos Warren en 1938. Es el primer bandoneón, izquierda
 
 No le falta imaginación para describir situaciones al ritmo del tango. **Este carnaval** lo termina así:
 

@@ -27,7 +27,7 @@ A partir de los 60 años, una persona al tomar decisiones no usa solamente un he
 
 Conclusión: si una persona lleva un estilo de vida saludable, se mueve, tiene actividad física viable y tiene plena actividad mental, las habilidades intelectuales NO disminuyen con la edad, simplemente CRECEN, alcanzando un pico a la edad de 80-90 años.
 
-[![](https://blogger.googleusercontent.com/img/a/AVvXsEidJfVTcgN3bzVLfGTEcW-ELo_u3tEWhCb7PePqAvB9d5qSLmLaE3o7TpY7FIB5bEY_TJN93z9u9zo3X_hEPY2buV-vAXkFT2C5ai0GT0TdSPZi-XN7k_2NWPzhnmlTi2fkl6QKQU1sB-q3JhLq_6T0Z121Umv_h6nPLxWQOg2Ymu69kjgJcXw0e_wfhuky=w400-h400)](https://blogger.googleusercontent.com/img/a/AVvXsEidJfVTcgN3bzVLfGTEcW-ELo_u3tEWhCb7PePqAvB9d5qSLmLaE3o7TpY7FIB5bEY_TJN93z9u9zo3X_hEPY2buV-vAXkFT2C5ai0GT0TdSPZi-XN7k_2NWPzhnmlTi2fkl6QKQU1sB-q3JhLq_6T0Z121Umv_h6nPLxWQOg2Ymu69kjgJcXw0e_wfhuky)El Profesor Ouri Monchi
+[![](/tangos-al-bardo/images/54aafe5fa397.jpg)](https://blogger.googleusercontent.com/img/a/AVvXsEidJfVTcgN3bzVLfGTEcW-ELo_u3tEWhCb7PePqAvB9d5qSLmLaE3o7TpY7FIB5bEY_TJN93z9u9zo3X_hEPY2buV-vAXkFT2C5ai0GT0TdSPZi-XN7k_2NWPzhnmlTi2fkl6QKQU1sB-q3JhLq_6T0Z121Umv_h6nPLxWQOg2Ymu69kjgJcXw0e_wfhuky)El Profesor Ouri Monchi
 
 CONSEJOS SANOS
 

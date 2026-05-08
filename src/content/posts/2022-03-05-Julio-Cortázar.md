@@ -17,7 +17,7 @@ No hablo más que de las cosas; estamos fuera, irremisiblemente fuera de las cos
 
 También yo la invento desde aquí, desde fuera como cualquier otro, más cerca quizás que otros. Buenos aires, como toda ciudad, es una metáfora; nace a la realidad por el contacto de términos distantes y extranjeros, de alianzas secretas, de una calle y de un hombre que se encuentra en su hora, de una zaguán y una voz que indeciblemente se fusionan, y sólo así se entrega alguna vez a su habitante, cuando se la escala desde el sueño o el recuerdo, cuando se la posee con las armas de la imaginación y el mito.
 
-[![](https://blogger.googleusercontent.com/img/a/AVvXsEgICKWkNyE54Ust7T1GHM_80KrmreI30VJpWPlle3-cYnjPOVumW7H_JPQAfEPUk8vkxKJ5FBkAmcF-iEUQBLZxkQzja9EZ6udLsEC_w2D8s878errDLB41Bp5fRSZ7kF5yCQDDHlvljygh8K6eWXLsPsCc9p5ym66QJiHppZnUSmdzbKEgx07b8802Aw=w320-h289)](https://blogger.googleusercontent.com/img/a/AVvXsEgICKWkNyE54Ust7T1GHM_80KrmreI30VJpWPlle3-cYnjPOVumW7H_JPQAfEPUk8vkxKJ5FBkAmcF-iEUQBLZxkQzja9EZ6udLsEC_w2D8s878errDLB41Bp5fRSZ7kF5yCQDDHlvljygh8K6eWXLsPsCc9p5ym66QJiHppZnUSmdzbKEgx07b8802Aw=s310)
+[![](/tangos-al-bardo/images/15d82cb983e7.jpg)](https://blogger.googleusercontent.com/img/a/AVvXsEgICKWkNyE54Ust7T1GHM_80KrmreI30VJpWPlle3-cYnjPOVumW7H_JPQAfEPUk8vkxKJ5FBkAmcF-iEUQBLZxkQzja9EZ6udLsEC_w2D8s878errDLB41Bp5fRSZ7kF5yCQDDHlvljygh8K6eWXLsPsCc9p5ym66QJiHppZnUSmdzbKEgx07b8802Aw=s310)
 
 No basta con vivir en la ciudad si no se la alcanza desde el mismo rechazo, si no se entra a ella por calles que no son las de los planos. Una ciudad también es un fantasma que sólo la ingenuidad del habitante cree domesticable y próximo; apenas unos pocos saben del mecanismo interior que hace caer las fechadas y da acceso por oscuros pasajes a sus últimos reductos.
 

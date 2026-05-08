@@ -15,7 +15,7 @@ Ya no te aguanto más, María Melato,esgunfia como estoy te doy un corte,buscate
 La naifa lo escuchó y dulcementele clavó la mirada frente a frenteponiéndole una noma en la cabeza.
 Con un hilo de voz, sin espamento,le dijo al breón que andaba en movimento:"Andá chabón... barreme bien la pieza."
 JULIÁN CENTEYA
-[![](https://blogger.googleusercontent.com/img/a/AVvXsEjbPxvPXmBO1fFeLulqs1T3w1xdXnFf7b8SNrQJ2qwHUjrl7MRm9bl51PVr8Rw4vsiQJN1TnMEqbY76lm9LfWAmXyoQH14Xu0hzEP47mTZZsUFpOwkt6bzo1kB695NmlwpPk3F0ZCf3Dd8B6R4AbMZdSgdSw_wvyUDrQrMDBlDrBfPBnpK9ej8NivTqzhym)](https://blogger.googleusercontent.com/img/a/AVvXsEjbPxvPXmBO1fFeLulqs1T3w1xdXnFf7b8SNrQJ2qwHUjrl7MRm9bl51PVr8Rw4vsiQJN1TnMEqbY76lm9LfWAmXyoQH14Xu0hzEP47mTZZsUFpOwkt6bzo1kB695NmlwpPk3F0ZCf3Dd8B6R4AbMZdSgdSw_wvyUDrQrMDBlDrBfPBnpK9ej8NivTqzhym)
+[![](/tangos-al-bardo/images/5f3d11f87457.jpg)](/tangos-al-bardo/images/5f3d11f87457.jpg)
 
 ** BIABA**
 Ya se lo había dicho: "Del laburosin hacer estación, venite a casa.No es que yo esté celoso, te lo juropero si vos no estás.. no sé que pasa..." "Si tardás en llegar tengo pavurade que te hayas peleao en la milonga,vos sabés que no falta un cara dura...Y yo te manco bien, cara chinonga...".

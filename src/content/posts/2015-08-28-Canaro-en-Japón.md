@@ -16,7 +16,7 @@ Los japoneses pretendían efectivamente llevarse a Pirincho, pero éste se negó
 
 Los arreglos del repertorio les fueron encargados a Argentino Galván, Ástor Piazzolla y Osvaldo Tarantino y la orquesta estaba integrada por: Alfredo Marcucci, Arturo Penón y Ramón Torreyra en bandoneones; Hugo Baralis, Emilio González y Henry Balestro en violines; Rufino Arriola en contrabajo y Tarantino al piano. Además completaron la comitiva, la pareja de bailarines Julia y Lalo Bello y un folklorista, Silvano González.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjf8U0VrRE5VT8gk2lWnOZ1M46Zb4N6-DYyCdzMQXRedG2wcniXToAVBA7sSuz2POrTzdYM39mGI6YKjSRFiDwQsyo2WHOCYiQ8jcQAn6IJxMxAoyv7CJPD-1dNy_ZUP37ypjRbpnlf7PQ/s400/img042.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjf8U0VrRE5VT8gk2lWnOZ1M46Zb4N6-DYyCdzMQXRedG2wcniXToAVBA7sSuz2POrTzdYM39mGI6YKjSRFiDwQsyo2WHOCYiQ8jcQAn6IJxMxAoyv7CJPD-1dNy_ZUP37ypjRbpnlf7PQ/s1600/img042.jpg) María de la Fuente, Baralis, Marcucci, Insúa, Penón, Tarantino, Canaro y el resto
+ [![](/tangos-al-bardo/images/321ba2a16a18.jpg)](/tangos-al-bardo/images/9ac006d4a047.jpg) María de la Fuente, Baralis, Marcucci, Insúa, Penón, Tarantino, Canaro y el resto
 
 El avión con la comitiva despegó de Buenos Aires en diciembre del 53 y después de dos días de viaje arribó a Tokio. donde fue recibida con honores oficiales. El debut se produjo en el Teatro Nichiyeki, con la presencia de la familia real en el palco, y el aforo completo. Juan Canaro escribió dos temas que se estrenaron esa noche:* A su majestad* y *Saludo a Japón.* La gira fue un éxito total en asistencia de público y críticas y el tango recibió su visto bueno definitivo.
 

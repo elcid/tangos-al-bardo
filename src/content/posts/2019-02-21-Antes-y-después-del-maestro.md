@@ -22,7 +22,7 @@ Y De Caro llegó hasta allí e hizo el milabgro: impuso el tango. Por supuesto, 
 
 Con mi hermana menor, con la que compartimos la pasión por el tango, no olvidaremos nunca aquellas tardes del Petit Splendid. ¿podríamos borrar de nuestra memoria las interpretaciones de *El monito, Tierra negra, Lorenzo,Sobre el pucho,Buen amigo, La última cita* y de tantos otros tangos...?
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgNCECKWKaTudHhTxOhfrEhV8qXy_nSdTYgz467EclP4JaF_-a_KGYQk7YW8rYcbBWCZkRjZr7f5qAYY5JNbXC21cRev_G9LvimepvFf7_4r0qcAYJGhJ9AEyJLgHjSl7Cui9WUigRCTSpQ/s400/Francisco+de+Caro04.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgNCECKWKaTudHhTxOhfrEhV8qXy_nSdTYgz467EclP4JaF_-a_KGYQk7YW8rYcbBWCZkRjZr7f5qAYY5JNbXC21cRev_G9LvimepvFf7_4r0qcAYJGhJ9AEyJLgHjSl7Cui9WUigRCTSpQ/s1600/Francisco+de+Caro04.jpg) Julio De Caro, Emilio de Caro, Blasco, Francisco De Caro, Laurenz y Sciarreta.
+ [![](/tangos-al-bardo/images/c37069c9c567.jpg)](/tangos-al-bardo/images/e38c1d768495.jpg) Julio De Caro, Emilio de Caro, Blasco, Francisco De Caro, Laurenz y Sciarreta.
 
 Por esos días, si recuerdo bien, la orquesta estaba constituída así: Pedro Laurenz y Armando Blasco, *el cieguito*, tenían a su cargo los bandoneones; Francisco de caro era el pianista; Vicente Sciarreta, con una pinta que mataba, el contrabajo, y Emilio De Caro y Julio De Caro los violines. El cantor, creo, Pedro Lauga.
 
@@ -34,5 +34,5 @@ Hipólito Jesús Paz
 
 (*Tuco* para los amigos, Abogado, Político, Ministro, Embajador, Profesor, Escritor.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgmEY2wTxQ4cNYcxp3aH4nGHfCqqt7VLtX5GoziDmGTFdjwtmo_r2VQvyKFDyOkHFlFfMl-Gm7GdkVODuT4nfeuL2RGSBrhJxQ1InpRgT1GvyggunSOFF3kU62ENidVstw7WddssFoS7D7x/s1600/paz3.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgmEY2wTxQ4cNYcxp3aH4nGHfCqqt7VLtX5GoziDmGTFdjwtmo_r2VQvyKFDyOkHFlFfMl-Gm7GdkVODuT4nfeuL2RGSBrhJxQ1InpRgT1GvyggunSOFF3kU62ENidVstw7WddssFoS7D7x/s1600/paz3.jpg) "Tuco" Paz, con el presidente norteamericano Harry Truman
+ [![](/tangos-al-bardo/images/db72365d4129.jpg)](/tangos-al-bardo/images/db72365d4129.jpg) "Tuco" Paz, con el presidente norteamericano Harry Truman
 Apasionado desde joven por el tango, era miembro de la Academia Nacional del Tango. Un Acta notarial labrada en la casa de Felipe Yofre el 17 de Mayo de 1974 por Jorge Garrido, Escribano General de Gobierno, y suscripta por Cátulo Castillo, Homero Expósito, Héctor Stamponi, Ariel Ramírez y Albino Gómez, caratulada “***Acta a Tuco el grande sus gomias de la noche***” exterioriza su condición de hombre de tango, así como también sus vínculos con Manzi, Discépolo, Anibal Troilo, Piazzolla, Horacio Ferrer y su admiración por Carlos Gardel y Julio de Caro).

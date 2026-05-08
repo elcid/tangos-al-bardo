@@ -6,7 +6,7 @@ labels: ""
 tags: ["Francisco Canaro", "Alberto Podestá", "Pedro Laurenz", "Lucio Demare", "Raúl Berón"]
 ---
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjnVhn7Gwe3I_6PM6kSYOHsD3q9yfnd4vgLZpL65DoTgAcG6h2qVok16BpJGJnCblQ3bGJAHK-JbkcO_IMHbPPQLBJFiMJl8qittXnzva8T4sjuEcncgUDm1lO1zJ6jacrcbGiE3ksPF8rn/s200/bottomSpot3.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjnVhn7Gwe3I_6PM6kSYOHsD3q9yfnd4vgLZpL65DoTgAcG6h2qVok16BpJGJnCblQ3bGJAHK-JbkcO_IMHbPPQLBJFiMJl8qittXnzva8T4sjuEcncgUDm1lO1zJ6jacrcbGiE3ksPF8rn/s1600/bottomSpot3.jpg) * Prendete Catalina*
+[![](/tangos-al-bardo/images/d96720f4ea31.jpg)](/tangos-al-bardo/images/e5b01ee26a3f.jpg) * Prendete Catalina*
 * vos que sos "mi peor es nada",*
 * y enseñale a las pitucas*
 * de Florida *

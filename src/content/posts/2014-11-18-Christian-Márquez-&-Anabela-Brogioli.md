@@ -10,10 +10,10 @@ Se empajeraron este año para bailar tango y da gusto verlos. Parece que lo llev
 
 Guardián de las esencias, no ha parado de viajar, al principio con su compañera de entonces, desde 1997, Virginia Gómez, formando el dúo *Los Totis*, ya como reconocidos profesionales. Han bailado en Piazzolla Tango, Los tangos de la cábala, Copes tango Copes, O Tango, Corporación Tango, y realizaron una larga gira con el videoclip de Gotan Proyect: *Diferente*.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhF2pZ9P9DaR8ge_DMB_25BMVtWK5xju-GUDHqBbdi0Lk-piFMXjZzuVlWtB5VDUS-JOWj3qO3xTCm5I6PfLdCbLkofxkgYeHFsVntcASYOTLEW8a6HABjSuyCIJyTM-uvTCsbinDlGwgI/s1600/C+y+A.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhF2pZ9P9DaR8ge_DMB_25BMVtWK5xju-GUDHqBbdi0Lk-piFMXjZzuVlWtB5VDUS-JOWj3qO3xTCm5I6PfLdCbLkofxkgYeHFsVntcASYOTLEW8a6HABjSuyCIJyTM-uvTCsbinDlGwgI/s1600/C+y+A.jpg) Anabela y el Toti
+ [![](/tangos-al-bardo/images/ea0e08fc381b.jpg)](/tangos-al-bardo/images/ea0e08fc381b.jpg) Anabela y el Toti
 Anabela Tenía 11 años cuando se arrimó al fogón del tango.Comenzó en la Escuela Municipal de Danzas de su localidad, Lanús Oeste. Allí integró el Ballet Estable Municipal, y por influencia familiar, fue de a poco derivando el rumbo hacia el tango. En el año 2000 participó en los Torneos juveniles Bonaerenses, obteniendo medalla de plata y bronces en las categorías: Tango escenario y Tango salón. Sus padres la ayudaron y en su camino estudiaría con muy buenos profesores.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjFKZdai_YPEqABW4hszQriymh6-Skd_Qa__oqgtGzmGZz048BigdKd_cXOelM2eZ_dCunQyD8aGXtrPluIAodOoQPYWbI3_AC9XW36bPdfg-ybWX110TXOsnFfpZ1Gk5yzh221Ip9ayes/s1600/Anabela.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjFKZdai_YPEqABW4hszQriymh6-Skd_Qa__oqgtGzmGZz048BigdKd_cXOelM2eZ_dCunQyD8aGXtrPluIAodOoQPYWbI3_AC9XW36bPdfg-ybWX110TXOsnFfpZ1Gk5yzh221Ip9ayes/s1600/Anabela.jpg) Anabela Brogioli
+ [![](/tangos-al-bardo/images/eaa5117fd7f1.jpg)](/tangos-al-bardo/images/eaa5117fd7f1.jpg) Anabela Brogioli
 
 Natalia Gamez y Gabriel Angió le dieron los lineamientos fundamentales y también participaron en su crecimiento, personajes como Raúl Bravo, Esther y Mingo Pugliese, Carlitos y Rosa Pérez. Pero nunca abandonó sus clases de Danza contemporánea, Clásica, Jazz o Acrobacia. Psicología, Producción teatral y Actuación. Todo ese bagaje de conocimientos le sirvieron para integrar el elenco artística de la Secretaría de Educación y Cultura de la Municipalidad de Lanús.
 

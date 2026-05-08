@@ -19,7 +19,7 @@ En Corrientes y Libertad estaba *Montecarlo*, donde bailé tantas noches hasta l
 
 El libro se presentó en la Academia del Lunfardo, pero mi gran placer fue ver el libro en el Centro de Exposiciones, durante el Mundial de Tango y en las librerías de mi querida calle.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi4aZ_PDq72XlUCFzZEz7_UYJOKV-jI3Ln6agA5olrF1aQqWaCfE7RtNdOzEYK__2x4qitHztohjGRL4VkavL9OFO_yHjDkYUZwJBWYlC2BNl9iQO0qVENbTAZY3U0XRpf1wTFsMd9n_9jA/s320/SDC12811.JPG)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi4aZ_PDq72XlUCFzZEz7_UYJOKV-jI3Ln6agA5olrF1aQqWaCfE7RtNdOzEYK__2x4qitHztohjGRL4VkavL9OFO_yHjDkYUZwJBWYlC2BNl9iQO0qVENbTAZY3U0XRpf1wTFsMd9n_9jA/s1600/SDC12811.JPG)
+ [![](/tangos-al-bardo/images/91895dd7f887.jpg)](/tangos-al-bardo/images/bfde1b125012.jpg)
 
 Adoro los libros y recordé un poema que compuse hace un par de años: Brolis (Libros), pensando en los que fui perdiendo con la mudanza de continente.
 

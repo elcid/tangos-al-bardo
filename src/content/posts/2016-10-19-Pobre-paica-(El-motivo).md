@@ -10,7 +10,7 @@ Hay que retroceder hasta casi cien años atrás para encontrar el nacimiento de 
 
 Es cierto que Villoldo, además de la música, también dibujó unas letrillas que se nutrían de canciones europeas y otras latitudes, como el cuplé y la habanera. Aunque dándoles un aire acriollado. Pero Contursi, cantor que se auto acompañaba con rasgueos de su guitarra de nueve cuerdas, descubrió el filón en el mítico Moulin Rouge montevideano, propiedad de *Papá* Matos, el progenitor de Gerardo Matos Rodríguez.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg26gxqvVVSDjz9ZoGU2vVD_Cu06kBTBFTs0n9q-UQe0m4XemnD0NnAaW5cOIUWscwdrxM2oVyezQJZwlR4mMpb_AhyphenhyphenyQ9-DmXo1nhKOVML4LtfBc82Xgt9-FiCVRwK7ZRn9ZNVXUwh-dDL/s320/Pascual-Contursi-Comenzo-cumparsita_CLAIMA20150622_0010_28.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg26gxqvVVSDjz9ZoGU2vVD_Cu06kBTBFTs0n9q-UQe0m4XemnD0NnAaW5cOIUWscwdrxM2oVyezQJZwlR4mMpb_AhyphenhyphenyQ9-DmXo1nhKOVML4LtfBc82Xgt9-FiCVRwK7ZRn9ZNVXUwh-dDL/s1600/Pascual-Contursi-Comenzo-cumparsita_CLAIMA20150622_0010_28.jpg) Pascual Contursi
+ [![](/tangos-al-bardo/images/b0e8a384545b.jpg)](/tangos-al-bardo/images/5c741787b471.jpg) Pascual Contursi
 Y lo hizo colocando sus versos arrabaleros sobre partituras de tango de conocidos autores argentinos como él, que ignoraban estas picardías realizadas sin permiso del creador original de tales notas. Y así , este profeta, ignorante de la trascendencia que tendrían sus travesuras, se divertía en sus años jóvenes. Los músicos de entonces no gustaban de que sus corcheas fueran invadidas por versos, pero la audacia de Pascual Contursi, hizo germinar esta otra faceta del tango, que iba a darle el empujón defintivo hacia los puertos del mundo.
 
 Su bautismo de fuego, que generó un largo pleito entre Samuel Castriota, el pianista que había compuesto el tango *Lita*, sobre el que Contursi embocó sus versos con un insuperable octosílabo inicial ("*Percanta que me amuraste...*."), titulándolo *Mi noche triste, *le abrió las puertas de aquella Corrientes angosta, plagada de recintos tangueros y bohemios recalcitrantes.
@@ -27,7 +27,7 @@ Y hurgando en conocidas músicas convierte el tango instrumental de Arolas: **La
 
 En el mismo, Pascual Contursi, el hijo del sastre italiano que vivirá en el pueblo de Chivilcoy y se trasladaría luego a Buenos Aires con la familia, desliza sus conocidos retornos sobre la mujer que fue reina de su tiempo, por su belleza y sus amores, y el presente la encuentra amurada y nostálgica. También él tendría un final parecido cuando regresó en barco desde Europa donde permaneció tres años, y lo haría en un estado de demencia, que lo llevaría postrado en el Hospicio hasta su muerte, con 44 años.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEilowXcjOCd8rsJNmz2SpONKdCpIh-P99C1Mnggq_WqKWDyVkDJikL3wRPZC1DgjtISZOIkLGGOG392JACUEEAzqWqSVlcrNJHuwgiQ2T0HCaUlVoJwamwUVPqPoztVwmqO83ZNTu9CZsxH/s1600/COBI.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEilowXcjOCd8rsJNmz2SpONKdCpIh-P99C1Mnggq_WqKWDyVkDJikL3wRPZC1DgjtISZOIkLGGOG392JACUEEAzqWqSVlcrNJHuwgiQ2T0HCaUlVoJwamwUVPqPoztVwmqO83ZNTu9CZsxH/s1600/COBI.jpg)Mina que fue en otro tiempo
+[![](/tangos-al-bardo/images/1e359bb1e211.jpg)](/tangos-al-bardo/images/1e359bb1e211.jpg)Mina que fue en otro tiempo
 las más papa milonguera
 y en esas noches tangueras
 fue la reina del festín.

@@ -15,7 +15,7 @@ El Director del Sello en Argentina, apellidado Salisbury, fue a ver al cine Hind
 
 Pedro Maffia reforzó entonces su orquesta que se integró con: Pedro Maffia, Alfredo de Franco y Florentino Ottaviano en bandoneones; Elvino Vardaro, Emilio Puglisi y Carlos Campanone en la fila de violines; Osvaldo Pugliese al piano, Nerón Ferrazzano en violoncello y Francisco De Lorenzo al contrabajo.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhGy7K2GOYSWhJ0M0QNFzf1-BuRgondOiHmGIHLlVMpyV82rWHr9NoG7jV547zo1f52E5Qq9wZvF55TFY5MFIwI8Dz0rLG6fHcFi7E-HbGKaADkrnt32gmQW7CvbirJA7f8cSL7TxgOiXU/s320/escanear0015.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhGy7K2GOYSWhJ0M0QNFzf1-BuRgondOiHmGIHLlVMpyV82rWHr9NoG7jV547zo1f52E5Qq9wZvF55TFY5MFIwI8Dz0rLG6fHcFi7E-HbGKaADkrnt32gmQW7CvbirJA7f8cSL7TxgOiXU/s1600/escanear0015.jpg) Septeto Brunswick. Arriba: A.Rodio, F.De Lorenzo, E.Scalise, G.Clausi. Abajo: N.Ferrazzano, P.Maffia y E.Puglisi
+ [![](/tangos-al-bardo/images/adee6c4ada3d.jpg)](/tangos-al-bardo/images/2ac71c23d883.jpg) Septeto Brunswick. Arriba: A.Rodio, F.De Lorenzo, E.Scalise, G.Clausi. Abajo: N.Ferrazzano, P.Maffia y E.Puglisi
 Al poco tiempo Vardaro y Pugliese se alejan para formar su propio y maravilloso Sexteto, Eugenio Nóbile supliría la baja de Vardaro y José Pascual, la de Pugliese, y el elenco se iría modificando por las idas y venidas de los músicos que en esa época tenían mucho trabajo, especialmente Pedro Maffia, su director.
 
 La orquesta de Maffia, se haría incluso responsable de las grabaciones de tangos, en la empresa Columbia bajo los mismos supuestos que la Víctor y la Brunswick: exclusivamente para registrar en disco sus creaciones.

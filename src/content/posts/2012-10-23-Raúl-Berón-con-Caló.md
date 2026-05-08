@@ -16,7 +16,7 @@ Hoy les invito a recordar dos temas poco difundidos que cantara con Miguel Caló
 Federico, además de enriquecer con su talento y su manejo del fueye, a esa *Orquesta de las Estrellas *
 conducida por Miguel Caló, fue un inspiradísimo compositor que creó numerosas páginas fermentadas a continuación por el conjunto, dándole mayor vuelo popular al mismo.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh4qEbiUtJ4Ez3ldErmGyAW8kNJ2RmI1ozPaCNskWncEbP3iMrWc5R3BnX_xzvSlVBykuiaRT672Vx_6NeWrssNIL9rysnnF6w8TigGN0fKMYtyZYN5W-WSPyMwbr0HfHNs6AZJeuprVZKf/s1600/Miguel+Cal%C3%B3+y+su+orqueesta.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh4qEbiUtJ4Ez3ldErmGyAW8kNJ2RmI1ozPaCNskWncEbP3iMrWc5R3BnX_xzvSlVBykuiaRT672Vx_6NeWrssNIL9rysnnF6w8TigGN0fKMYtyZYN5W-WSPyMwbr0HfHNs6AZJeuprVZKf/s1600/Miguel+Cal%C3%B3+y+su+orqueesta.jpg) Arriba: Pontier y Berón. Francini, Caló y Podestá en medio y Federico debajo  Como asiduo caminador de las pistas de tango desde hace ta'y tantos años, aprecio mucho el final del primer tema, grabado el 23 de abril de 1963. Años antes lo había registrado el propio Caló con la voz de Carlos Dante.:
+ [![](/tangos-al-bardo/images/b26b69dd526d.jpg)](/tangos-al-bardo/images/b26b69dd526d.jpg) Arriba: Pontier y Berón. Francini, Caló y Podestá en medio y Federico debajo  Como asiduo caminador de las pistas de tango desde hace ta'y tantos años, aprecio mucho el final del primer tema, grabado el 23 de abril de 1963. Años antes lo había registrado el propio Caló con la voz de Carlos Dante.:
 
 *¡Soy milonguero de ley!
 ¡milonga mía!,

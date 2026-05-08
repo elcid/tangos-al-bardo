@@ -10,7 +10,7 @@ Vale la pena recordar este tango que no ha sido muy difundido, por la letra, que
 
 La música le pertenece al bandoneonista y violinista Juan Pecci, hijo del legendario flautista de la guardia vieja Vicente Pecci, que desarrolló casi toda su carrera especialmente en Europa, enrolado en la orquesta de Eduardo Bianco, o en pequeños conjuntos que iba formando con otros compatriotas. Se fue muy joven de Argentina, recién cumplido el servicio militar y su encuentro con Manzi para pergeñar este tango fue en el barrio de San Cristóbal, donde vivía el músico con su padre. Homero no muy lejos de allí, en el pasaje Danel donde supo habitar con su hermano en el barrio de Boedo.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhv_QjwMJkoXIKO3zl173sEV6wcuWuE0f1r9KR88qj144pyoyeYH2lUx9sAR27a_ehX7akL4veDBOYAwfEWUuIULTeB18R_-KpAVYoAf33dUbASIPC7XInGqbalOjt4XwSPXJkgNIvw9hU/s320/Homero+Manzi.png)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhv_QjwMJkoXIKO3zl173sEV6wcuWuE0f1r9KR88qj144pyoyeYH2lUx9sAR27a_ehX7akL4veDBOYAwfEWUuIULTeB18R_-KpAVYoAf33dUbASIPC7XInGqbalOjt4XwSPXJkgNIvw9hU/s1600/Homero+Manzi.png) Homero Manzi en Mar del Plata
+ [![](/tangos-al-bardo/images/205b984ebbef.png)](/tangos-al-bardo/images/84165886f50e.png) Homero Manzi en Mar del Plata
 
 El tema fue creado en 1928 y grabado por Francisco Canaro con la voz maestra de Charlo, que como todos los* chansonniers* de la época, sólo cantaban un trozo del tango. En este caso la primera décima de un total de cuatro partes, que acá reproduzco por lo inusual de la escritura de Manzi, ese grande de la literatura que supo hermosear el tango a lo largo de su corta vida.
 
@@ -56,7 +56,7 @@ el otro taita compadrón,
 sin la nobleza de los pibes
 vino de repe y lo mató.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh1cvtgAi_Jfe6BFBfHET9scUTSK-qwQc3K_uhkzDDEVHa0OUM6S45cYNQG06GlsmK_3L-e7JTsLF5UnfGorBioQyjumyfNV-VlrGQ04QhgkWJ3eRh8KbCMx9ELa6nKmcDc9Aqj0BgfeFE/s320/Bati.png)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh1cvtgAi_Jfe6BFBfHET9scUTSK-qwQc3K_uhkzDDEVHa0OUM6S45cYNQG06GlsmK_3L-e7JTsLF5UnfGorBioQyjumyfNV-VlrGQ04QhgkWJ3eRh8KbCMx9ELa6nKmcDc9Aqj0BgfeFE/s1600/Bati.png) Juan Pecci entre Batisttella y Gardel en Niza
+ [![](/tangos-al-bardo/images/6b186896c7cd.png)](/tangos-al-bardo/images/11ce54c541fb.png) Juan Pecci entre Batisttella y Gardel en Niza
 
 Evidentemente Homero era muy jovencito cuando escribió estos versos, que no tienen nada que ver con su trayectoria posterior en ese sentido, que lo encumbraría entre lo más selecto del género. Y mucho más raro es su sociedad con Pecci que vivió incluso quince años en Grecia luego de otros largos años en París y periplos por numerosas ciudades de Europa. Cuando volvió al país en 1954, Manzi había dejado este mundo tres años antes. Según afirman algunos, el tango lo estrenó en Europa el cantor José F. Cohan en el Casino Municipal de San Remo -Italia- en 1929. Como datos curiosos agrego que Dizeo y Gentile hicieron un tango con el mismo nombre. Ni Pecci ni Manzi inscribieron el suyo en SADAIC.
 

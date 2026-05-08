@@ -12,7 +12,7 @@ Las muchachas cantoras eran un ramillete que iban surgiendo de concursos de radi
 
 Silvia del Río, Elsa Rivas, Ruth Durante, Nelly Vázquez, Susy Leiva, habían recibido el testigo de sus ilustres antecesoras y portaban en su equipaje artístico, muchas ganas de llegar al gran público y establecerse en el podio de las elegidas. Y lo habían logrado. Lamentablemente Susy Leiva falleció muy joven, trágicamente, volviendo en coche de Rosario, donde había actuado.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhDLkmD7C5MEF-Pk5yKKHfI6lonx9QDiSHbQfdYLOl-J-oVqT933L4jtS1zyiVgajHoCrRv8GWWtJ_keFbqx-XP4s2FFoQSVWrBicwjFeqrHXyvMLfXkS8rohy0L15BWHdarKqRWFYrXBs/s1600/Blanca+Mooney.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhDLkmD7C5MEF-Pk5yKKHfI6lonx9QDiSHbQfdYLOl-J-oVqT933L4jtS1zyiVgajHoCrRv8GWWtJ_keFbqx-XP4s2FFoQSVWrBicwjFeqrHXyvMLfXkS8rohy0L15BWHdarKqRWFYrXBs/s1600/Blanca+Mooney.jpg) Blanca Mooney
+ [![](/tangos-al-bardo/images/16b31237a8bf.jpg)](/tangos-al-bardo/images/16b31237a8bf.jpg) Blanca Mooney
 
 Blanca Mooney llegó a esa instancia, al ocupar el segundo puesto en un concurso realizado por la revista *Radiofilm* en 1956. Curiosamente, la ganadora Ángeles Dangell no llegaría a hacerse conocida, mientras que Blanca Nester Mooney (Su nombre real) por su voz y gusto tan especiales fue contratada de inmediato para unas actuaciones en Radio Belgrano.
 
@@ -31,7 +31,7 @@ Con la orquesta de Fresedo grabó tres temas que fueron muy difundidos entre ene
 
 Se casó y se radicó en Córdoba. Del matrimonio con Ricardo Caletti, nacieron dos hijos varones. Cada tanto reaparecía y finalmente -después de diez años de ostracismo- con la Banda de la Armada, recorrería varios países de América e incluso Estados Unidos. Con dicha orquesta grabó "*Tangos a bordo*" y recibió sus últimos aplausos como artista porque falleció tempranamente, con apenas 51 años después de un derrame cerebral.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjIzIDtZ5n4-abz1-x-YjIELGrKuoqDGHavJ_OiDS77-9jD3D3WWZppXzymNGGyesJeIL8txVKXyX4By6Bve4STJ2DUgjbyWfl0_l2j-pvEPEbph2yCeKud-SLWiHCvElgvdy1DRWh7hu0/s1600/Orquesta_Tango_a_Bordo_canta_Blanca_Mooney_1977_%C2%A9MPL.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjIzIDtZ5n4-abz1-x-YjIELGrKuoqDGHavJ_OiDS77-9jD3D3WWZppXzymNGGyesJeIL8txVKXyX4By6Bve4STJ2DUgjbyWfl0_l2j-pvEPEbph2yCeKud-SLWiHCvElgvdy1DRWh7hu0/s1600/Orquesta_Tango_a_Bordo_canta_Blanca_Mooney_1977_%C2%A9MPL.jpg) Blanca Mooney con la Orquesta Tangos a Bordo, en Lobos, 1977
+ [![](/tangos-al-bardo/images/125327891328.jpg)](/tangos-al-bardo/images/125327891328.jpg) Blanca Mooney con la Orquesta Tangos a Bordo, en Lobos, 1977
 
 Hoy la recuerdo con cariño y nostalgia, en dos de esos temas. Primero en el bellísimo tango de Mariano Mores y José María Contursi: **En esta tarde gris**, grabado en 1978 con la Banda de la Armada Argentina. Y acompañada por la orquesta de Luis Stazo, el tango de Manuel Sucher y Carlos Bahr:** Nada más que un corazón**, llevado al disco en 1972.
 

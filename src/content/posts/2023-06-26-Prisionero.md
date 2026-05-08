@@ -10,7 +10,7 @@ El mismo título que el tango de Francisco García Jiménez y Anselmo Aieta, per
 
 De Carlos Bahr he escrito varias veces, siempre con admiración por su talento incrustado en esa capacidad de atrapar las minúsculas y sutiles transformaciones de las cosas. El *beau* Brummell nos enseñó que la cumbre de la elegancia es la simplicidad absoluta. Y el poeta tanguero transita con su pluma, tanto los periplos diarios, el chispazo, como las historias de una noche.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjm30IaDsqAjVkbGzlM8ysUIiFQemQEfnzmR7AaUDpuRODt6S9yTHOapzAk7NK02G8lE5QqNM4Ww4Pvx4h2_8U313KYFtcYCsRNkWZ_TJ9Iy5KgQCB93WX4lxwp6UiNZE8ImGNI__NrsrdLqcay7q9JnjC-L84ry0sLKth6LYPGNMu37n1tNqI-1kAmI9F-/s320/Carlos-Bahr-port.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjm30IaDsqAjVkbGzlM8ysUIiFQemQEfnzmR7AaUDpuRODt6S9yTHOapzAk7NK02G8lE5QqNM4Ww4Pvx4h2_8U313KYFtcYCsRNkWZ_TJ9Iy5KgQCB93WX4lxwp6UiNZE8ImGNI__NrsrdLqcay7q9JnjC-L84ry0sLKth6LYPGNMu37n1tNqI-1kAmI9F-/s1500/Carlos-Bahr-port.jpg)Carlos Bahr
+[![](/tangos-al-bardo/images/2ca376e1bc77.jpg)](/tangos-al-bardo/images/8b5ca7781f1a.jpg)Carlos Bahr
 
 Como maestro de lo mínimo ya lo demostró en sus tangos, siempre retratando con justeza el mosaico de los personajes. Esa arborescente pluralidad de experiencias, son las que definen al autor. Es el estilo lo que cuenta, además de la historia que va narrando poéticamente. Conjugando sonoridad y sentido. En la historia de lo pequeño, la voz narrativa no es omnisciente, pero sus motivaciones expresivas, las ilusiones, los fracasos van delineando los versos.
 Libre es el viento

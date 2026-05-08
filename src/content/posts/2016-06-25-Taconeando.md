@@ -8,7 +8,7 @@ tags: ["Alberto Podestá", "Edgardo Donato", "Romeo Gavioli", "Miguel Caló"]
 
 Ya lo decía José Horacio Staffolani en este tangazo que compuso junto a Pedrito Maffia:
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjpFLS0_POnCGDdsdBklyj3UXKjq5YPJk8mJwvkW7NdYzX__TDRX_SKBUHPkdyAqm1mOSVOeq7k25qgc_oZ7dGiS1xUnEmLpfH8s9GL5rFhAdfKV2iISjgsBuHb6ZDL1S687U7p2CLvCnJv/s200/TIC.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjpFLS0_POnCGDdsdBklyj3UXKjq5YPJk8mJwvkW7NdYzX__TDRX_SKBUHPkdyAqm1mOSVOeq7k25qgc_oZ7dGiS1xUnEmLpfH8s9GL5rFhAdfKV2iISjgsBuHb6ZDL1S687U7p2CLvCnJv/s1600/TIC.jpg)¿Quién no sintió
+[![](/tangos-al-bardo/images/045681da5e8d.jpg)](/tangos-al-bardo/images/8c03f13da34a.jpg)¿Quién no sintió
 la emoción del taconear
 y el ardor
 que provoca el bandoneón al llorar?
@@ -19,7 +19,7 @@ Y si, los días de milonga los tangos nos recorren todas las venas y nos prepara
 
 Si incluso, después, hasta ellos lo bailaban...
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiTCbYsH9xqqXhgEwfZz5SRF64JVXb8-Ws1iJ-y4bjoJFuF6-ofNLj9xZ4i8q0IcFetP5LTOJv9qwvIlYTkfkZZHP-Wq9N43PwzryoDquomBAM1osq0NHHEYcFticTd2-mpjgDVYeGlWYIW/s400/Troilo+baila.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiTCbYsH9xqqXhgEwfZz5SRF64JVXb8-Ws1iJ-y4bjoJFuF6-ofNLj9xZ4i8q0IcFetP5LTOJv9qwvIlYTkfkZZHP-Wq9N43PwzryoDquomBAM1osq0NHHEYcFticTd2-mpjgDVYeGlWYIW/s1600/Troilo+baila.jpg) Pichuco y Zita le dan rienda suelta a los remos en el Marabú
+ [![](/tangos-al-bardo/images/b808d280bb64.jpg)](/tangos-al-bardo/images/7665fa6e7feb.jpg) Pichuco y Zita le dan rienda suelta a los remos en el Marabú
 
 **BIEN MILONGA** sigue funcionando en la Casa de Aragón de Madrid, todo el mes de Julio que se viene, y descansaremos en Agosto. Cuando nos iremos a recargar el fueye del cuore y las gambusas en el Mediterráneo, entre esas olas mansas y el sol que te borra las ojeras noctámbulas y te deja morocho por más protector solar que te pongas.
 

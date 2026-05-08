@@ -6,7 +6,7 @@ labels: ""
 tags: ["Francisco Canaro", "Juan D'Arienzo"]
 ---
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgTDIBVVr0YHCMS-W5HWKh-hClH6YgaoR_MgwkARpX79pOTDDoWmBqbX52AZY70eC_r3TkLymTiMn4JCFmHSzAhbCoTrTFL4orx6pjBH-rQ2eH1hTTJJE7c08ymJxuVZlrOLi_jTQVofln_/s200/40970302_246272952745350_6965441540830393312_n.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgTDIBVVr0YHCMS-W5HWKh-hClH6YgaoR_MgwkARpX79pOTDDoWmBqbX52AZY70eC_r3TkLymTiMn4JCFmHSzAhbCoTrTFL4orx6pjBH-rQ2eH1hTTJJE7c08ymJxuVZlrOLi_jTQVofln_/s1600/40970302_246272952745350_6965441540830393312_n.jpg) *Bailar un tango con vos, firuleteado*
+[![](/tangos-al-bardo/images/73e10c475a93.jpg)](/tangos-al-bardo/images/ccf5ee5f9c3b.jpg) *Bailar un tango con vos, firuleteado*
 * quebrar el aire, correr siempre abrazados, *
 * doblar un ocho, al final de una mirada,*
 * hacerle pierna al amor, de una sentada.*

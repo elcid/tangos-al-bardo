@@ -21,7 +21,7 @@ Me asombraba la precisión del cincelado musical de esas violas. Por eso y por e
 
 Nelson tiene a su cargo la primera voz y guitarra, en tanto Nelson (o *Cacho*) realiza la segunda voz y la guitarra rítmica. Ambos cantan acompañados de sus guitarras, ejecutadas con púa logrando así un estilo metálico y enérgigo. Surgieron allá por 1966 y en 1969 ganaron el *Premio Revelación de Cosquín* en 1969.
 
-[ ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhQD5RrZ-RpKMdHiHB7m_aYANSMICwTw1mpq_DHgr-uAZ6iVtwEQbRu3Y0FOJus95A9PnT49bXjPaXKbP7Mi9iOZxDKZVabpzsflQQaq37Xg56pVlr7DVfIUAcM6ZzNtYYHLvYEzIfffFtK/s320/Los+Indios+Tacunau-Romance+de+Barrio-Portada.JPG)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhQD5RrZ-RpKMdHiHB7m_aYANSMICwTw1mpq_DHgr-uAZ6iVtwEQbRu3Y0FOJus95A9PnT49bXjPaXKbP7Mi9iOZxDKZVabpzsflQQaq37Xg56pVlr7DVfIUAcM6ZzNtYYHLvYEzIfffFtK/s1600/Los+Indios+Tacunau-Romance+de+Barrio-Portada.JPG)
+[ ![](/tangos-al-bardo/images/8643e5f95cda.jpg)](/tangos-al-bardo/images/e74094bd2aae.jpg)
 
 Y de *indios* no tienen nada más que el nombre artístico. Los escuchamos en un tango de los Pedros: Laurenz y Maffia: **Amurado** y en un valsecito de Julio César Sanders: **Luna de arrabal**.
 

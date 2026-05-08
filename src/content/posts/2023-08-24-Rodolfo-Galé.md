@@ -21,7 +21,7 @@ Es el único cantor de la orquesta y debuta en el disco el 30 de mayo de 1951, c
 José Basso lo llama para su conjunto, ante la baja de Jorge Durán, otro cuyano de voz grave, y dejará con la orquesta del pianista de Pergamino, apenas cuatro temas, porque lo espera el salto más importante de su carrera: el llamado de Carlos Di Sarli, que ha perdido a toda su orquesta y los cantores y está armando un equipo nuevo.. En este escalón decisivo, eludiendo la cursilería, dejará apenas dos registros: los tangos **Noche de locura** y **Mala yerba.**
 
 ** **
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh7SzzYJYftDBRBy8cmKt7yYF8ep7m8F9WAiVs6W8fMHCAa1Qa-hES86g-S6cnFJPLFZp2Z_vDf1OSC86r0G_4BKjpFGSducnIdM8Ou3rMlf_zMzkrZ9lHoiVLgbcyqsslPffDVPTeCaiOpJM0ud1p2oaBEp0E5YLu3EiJO8cc1GxtYpczdqfxCuo0ej4wv/w275-h400/Gal%C3%A9%20y%20Di%20sarli%20001.bmp)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh7SzzYJYftDBRBy8cmKt7yYF8ep7m8F9WAiVs6W8fMHCAa1Qa-hES86g-S6cnFJPLFZp2Z_vDf1OSC86r0G_4BKjpFGSducnIdM8Ou3rMlf_zMzkrZ9lHoiVLgbcyqsslPffDVPTeCaiOpJM0ud1p2oaBEp0E5YLu3EiJO8cc1GxtYpczdqfxCuo0ej4wv/s344/Gal%C3%A9%20y%20Di%20sarli%20001.bmp)Carlos Di Sarli y Rodolfo Galé**
+[![](/tangos-al-bardo/images/2be4f2e1c53d.bmp)](/tangos-al-bardo/images/48213ec8e28c.bmp)Carlos Di Sarli y Rodolfo Galé**
 **
 
 Imprimirá su huella en la orquesta de Roberto Caló, que en ese momento tenía mucho trabajo. Comparte yunta de voces con Héctor De Rosas y allí en los años 1957 y 1958 grabará siete temas, cuatro de ellos en dupla con De Rosas: **Limosna de amor, Si vos no me querés, Luna tucumana **y** **el vals** Mi Colegiala**. Los otros tres, sólo, son:** Nunca serás mía, Y con eso dónde voy **y** Mañana seré feliz** (grabados en 1958).

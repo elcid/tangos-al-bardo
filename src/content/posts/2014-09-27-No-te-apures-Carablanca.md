@@ -28,7 +28,7 @@ Esta dupla produjo en sociedad varios temas, como por ejemplo: *Avergonzado, Nos
 En el año 1942, Ignacio Corsini, ya palpitaba su retiro artístico y sólo grabó dos temas. Fue el 8 de octubre de ese año. De un lado esta el valsecito de Homero Expósito, Francini y Stamponi: *Pedacito de cielo *y en el reverso de aquellos discos de 78rpm, este tema. Y lo hizo acompañado en ambos por la orquesta dirigida por Roberto Garza (José García López). Fue un exitazo, precisamente, el último.
 
 *Me achica el corazón *
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhD9aie864SyBHxOLsTbg9h_qz-usSudbYjFT-IYcPOoXqqJ-GqJ76PoPW8Do8AW4VdFvMr2uJuV7N5-QkR84_lHBeUvDKUur9NMq4oiUWIKsergAORDZ_GqyRbWae8-EG64wYANktZ-60/s1600/escanear0005.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhD9aie864SyBHxOLsTbg9h_qz-usSudbYjFT-IYcPOoXqqJ-GqJ76PoPW8Do8AW4VdFvMr2uJuV7N5-QkR84_lHBeUvDKUur9NMq4oiUWIKsergAORDZ_GqyRbWae8-EG64wYANktZ-60/s1600/escanear0005.jpg) Carlos Bahr en Radio El Mundo  *salir del corralón,*
+ [![](/tangos-al-bardo/images/d63b2272c85f.jpg)](/tangos-al-bardo/images/d63b2272c85f.jpg) Carlos Bahr en Radio El Mundo  *salir del corralón,*
 *porque me sé perdido.*
 *Me tienta la ilusión*
 *que ofrece el bodegón,*
@@ -61,7 +61,7 @@ Roberto Garza, un músico desdibujado en las biografías e historias de tango, d
 *compadreando la alegría*
 *de ser feliz. *
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg6D90YL_Wa3zGU0clplKiJ385UPGsGvwfcf5T3Y-1spVFboOylT-JfWnaksCmH9SsyMjUtBRykH29YdDyLwIPd37yeR8hlbvqEO7jbeCGhHeoTuiWmyKFxN1zmPpnmsnLT-cqz-a7Ad3o/s1600/Demare+con+Miranda.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg6D90YL_Wa3zGU0clplKiJ385UPGsGvwfcf5T3Y-1spVFboOylT-JfWnaksCmH9SsyMjUtBRykH29YdDyLwIPd37yeR8hlbvqEO7jbeCGhHeoTuiWmyKFxN1zmPpnmsnLT-cqz-a7Ad3o/s1600/Demare+con+Miranda.jpg) Juan Carlos Miranda, Lucio Demare y una inolvidable orquesta
+ [![](/tangos-al-bardo/images/153cf6352802.jpg)](/tangos-al-bardo/images/153cf6352802.jpg) Juan Carlos Miranda, Lucio Demare y una inolvidable orquesta
 Cuando Lucio Demare formó su impecable orquesta en 1938, estuvo probando al cantor que quería y luego de descartar a algunos, se quedó con el desconocido Juan Carlos Miranda (Rafael Miguel Sciorra), un muchacho de Chivilcoy que había cantado en su ciudad y que había tomado algunas clases en la Academia de los Rubistein. Demare lo calificó entonces de *chansonnier*, de acuerdo a su experiencia en la época que vivió en Francia.
 
 Pero Miranda se adaptó muy bien a la orquesta y con Demare alcanzó un registro maravilloso de este tango. Al principio, Lucio, que los conoció en el Abasto, con el piano parece imitar el andar del percherón. Lo grabaron el 9 de octubre de 1942 y es un tema imperdible que esta noche pasaré en la milonga una vez más.

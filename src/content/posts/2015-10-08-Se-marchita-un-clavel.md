@@ -10,7 +10,7 @@ Lindo tango del pianista, director y compositor José Tinelli y el poeta, period
 
 Y el recuerdo va hacia atrás porque esto lo contaba Alberto Marino sobre sus comienzos.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhr-eOKqtBZBQ0_QJpM0ReoCEb6YszHvf1qDfNHyG0FezlFG5tSyDqGmDhrTo70igAZHtmBpXeo6PjRZWLGyt_84_vGpoEWihQ695JGRF7JqanuUzWIjy04icWEQIi5VF9HQFvDfg2sI-8/s320/TROILO+-+MARINO.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhr-eOKqtBZBQ0_QJpM0ReoCEb6YszHvf1qDfNHyG0FezlFG5tSyDqGmDhrTo70igAZHtmBpXeo6PjRZWLGyt_84_vGpoEWihQ695JGRF7JqanuUzWIjy04icWEQIi5VF9HQFvDfg2sI-8/s1600/TROILO+-+MARINO.jpg) Aníbal Troilo y Alberto Marino
+ [![](/tangos-al-bardo/images/50aee06002e9.jpg)](/tangos-al-bardo/images/560e4b6db6fa.jpg) Aníbal Troilo y Alberto Marino
  -Mis padres y mis hermanos, todos cantaban muy bien. Los viejos eran sicilianos. sabían óperas enteras de memoria; y los domingos en la sobremesa de las grandes comidas familiares, cantaban ellos y todos cantábamos, cuando vinimos de Italia a la provincia de Salta, y más tarde en el barrio porteño de Las cañitas, entre Palermo y Belgrano.
 
 Se llamaba Alberto Marinaro y nació en Verona. Supo enrolarse en la Academia de canto de Eduardo Bonessi, el mismo que lo pulió a Carlos Gardel y a tantos intérpretes tangueros. A los 16 años debutaría en el Cine Palermo y en Radio Mitre. Decidió optar por el alias artístico de Alberto Demare, que tenía similitud con su verdadero apellido.

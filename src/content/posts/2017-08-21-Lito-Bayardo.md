@@ -30,7 +30,7 @@ allá en mi arrabal.
 
 Es larga de mencionar la cantidad de temas que creó. Por ejemplo, solo (*Con la otra, Cuatro lágrimas, Desilusión*), o en yunta con compositores como Carlos Marcucci (*Esta noche, Una vez*), Eduardo Scalise (*Déjame soñar*), Félix Lipesker y Emilio Barbato (*Adiós adiós corazón*)... Con su compañero Alfredo Palacios escribieron los versos del vals *Flores del alma*, que musicalizó el pianista Juan Larenza. Con Charlo crearon *Arreando sombras *y *Adiós amor*. Con Cátulo Castillo: *Están sonando las ocho* y *Para qué la quiero tanto.* Con el guitarrista Marsilio Robles, *Así es Ninón* y la milonga *Cimarrón de ausenci*a...
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjdgkzJ1GIC4SPPDaesd5ylx726tP7c8mXWpk1X9xETkuIvgBdJQ4hjAQzMAAsBiZyWHqMVm22pHGV_5ITuf6snMyOnylWm3_u9YGmL2-e27lWmz2UvPDcAhkvC_PzlJmWN3fBlah-Jad7i/s400/Lito_Bayardo+y+Antonio+Tormo-.gif)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjdgkzJ1GIC4SPPDaesd5ylx726tP7c8mXWpk1X9xETkuIvgBdJQ4hjAQzMAAsBiZyWHqMVm22pHGV_5ITuf6snMyOnylWm3_u9YGmL2-e27lWmz2UvPDcAhkvC_PzlJmWN3fBlah-Jad7i/s1600/Lito_Bayardo+y+Antonio+Tormo-.gif) Lito Bayardo y Antonio Tormo
+ [![](/tangos-al-bardo/images/f7070cc29291.gif)](/tangos-al-bardo/images/286244e116c7.gif) Lito Bayardo y Antonio Tormo
 
 Son apenas bosquejos de su ingente producción. Del muchacho que comenzó como cantor en sus pagos, que formó en Tríos, el mismo terceto que cantaría fugazmente con la orquesta de Julio De Caro. Que fue directivo de SADAIC, que vivió escribiendo, cantando y caminando la noche de Buenos Aires, sembrando páginas para los registros de orquestas y cantores. Y que de repente se suicidaría cuando tenía 81 años, en su departamento de la céntrica calle Motevideo, en la Capital.
 

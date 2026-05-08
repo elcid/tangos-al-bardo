@@ -6,7 +6,7 @@ labels: ""
 tags: ["Juan D'Arienzo", "Miguel Caló", "Raúl Berón"]
 ---
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhLLWu40U5HaKa9RXXcQGwC1Dv6EF8i6Xt6tnMPVYIzsvSGwst_WuWWx-QIwE8QkyvyhEzfzGyk8zMjDeysMvQq1JEKl-RAImlEdjI9AuuHWpSpL7flsWmvTjRlIXxrDKUO-EQne36GfsbZ/s200/Paretyopo.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhLLWu40U5HaKa9RXXcQGwC1Dv6EF8i6Xt6tnMPVYIzsvSGwst_WuWWx-QIwE8QkyvyhEzfzGyk8zMjDeysMvQq1JEKl-RAImlEdjI9AuuHWpSpL7flsWmvTjRlIXxrDKUO-EQne36GfsbZ/s1600/Paretyopo.jpg)*Así mi amor, así cosita linda, *  *juntitas las mejillas, uno solo los dos,*
+[![](/tangos-al-bardo/images/7b4e1f1fa48f.jpg)](/tangos-al-bardo/images/440b1d9dd5d2.jpg)*Así mi amor, así cosita linda, *  *juntitas las mejillas, uno solo los dos,*
 *te juro, piba, que así bailando lento*  *distinta yo te encuentro, qué dulce sensación. *  *Tu cinturita dormida entre mis brazos *  *el tango, paso a paso, aumenta mi emoción, *  *bailando tango, vivamos nuestro tiempo *  *qué lindo este momento, bailemos corazón. *  Jorge Moreyra
 
   Martes, noche convocante, ambiente especial, música milonguera al mango, pista de madera flamante, todo esto es lo que buscan los milongueros y es lo que te te espera en la casa de Aragón, de Madrid, (Pza, República Argentina nº 6), a partir de las 21 horas de hoy. Para más inri, es fácil aparcar, el metro República Argentina te deja a 4 metros de la entrada, y tenés restaurante, terraza y bar. Imperdible.

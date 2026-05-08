@@ -13,7 +13,7 @@ De veras que hace un frío de tiritar: el inviernazo del 37 se ha venido con tod
 **-No lo creo así. Por de pronto, la casa tiene su clientela. ¡Y los amigos no van a fallar! Digo yo...**
 
 ** **
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgZvwXpUvSjcmlHQecGNGxbVoFhR0Xb4Y7Y0HLlMvYltswL2rQYowatz1daLbEY4IjTSoKK_FnHTS89C8thZ3W4nnDJN9lwM007hUX1KDzR-eiEkLSYecsdPvK1K_k94zV6_7oe6_8IUaFI-c_CMxJNOIo_Q5sce_PKnFadsIeWpiM6ap59AkHtJ8nYJw/s320/z137.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgZvwXpUvSjcmlHQecGNGxbVoFhR0Xb4Y7Y0HLlMvYltswL2rQYowatz1daLbEY4IjTSoKK_FnHTS89C8thZ3W4nnDJN9lwM007hUX1KDzR-eiEkLSYecsdPvK1K_k94zV6_7oe6_8IUaFI-c_CMxJNOIo_Q5sce_PKnFadsIeWpiM6ap59AkHtJ8nYJw/s409/z137.jpg)La orquesta de Troilo el día de su debut**
+[![](/tangos-al-bardo/images/fc49448fefcd.jpg)](/tangos-al-bardo/images/7692beccefc5.jpg)La orquesta de Troilo el día de su debut**
 **
 
 Son casi las once de la noche. Bien metidos en sus sobretodos, esos muchachos -ya se han comido un bife por ahí- sorben su cafecito caliente en el bar de Corrientes y Maipú.

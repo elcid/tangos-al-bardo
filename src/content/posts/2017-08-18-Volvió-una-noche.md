@@ -36,7 +36,7 @@ me dijo: "Es la vida", y no la vi más.
 
 Ví que acusaba el golpe y no es para menos. Yo no soy cantor, está claro, pero estos versos son demoledores. Cuántas personas, cuántos amigos, amigas y figuras públcas habrán pasado por este trance de descorrer los velos y regresar al pasado. Ese *fantasma del viejo pasado* que tuvo momentos maravillosos y final triste y duro. Persigue la evanescencia del tiempo, su rebobinarse y romperse. Por eso me llega tanto el tema de Gardel y Le Pera. Porque es hondamente conmovedor de sentimientos y vivencias...
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi6qJM6fQNASxESt343WchdLao1NgltWQL0-29ejy68b764LasBnRxJbEm3AXWtNNvVlY5tGtphulWxaoMRr-qLkZN9E9Mq4wkcnKtne0SoF4EDNWtGpRDMMGn1PwaTdRBxNnO7q6r8uzml/s320/Gardel_y_Le_Pera.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi6qJM6fQNASxESt343WchdLao1NgltWQL0-29ejy68b764LasBnRxJbEm3AXWtNNvVlY5tGtphulWxaoMRr-qLkZN9E9Mq4wkcnKtne0SoF4EDNWtGpRDMMGn1PwaTdRBxNnO7q6r8uzml/s1600/Gardel_y_Le_Pera.jpg) Gardel y le Pera la gran dupla creadora
+ [![](/tangos-al-bardo/images/a4d651e21999.jpg)](/tangos-al-bardo/images/7e050df87107.jpg) Gardel y le Pera la gran dupla creadora
 No le quise citar la primera bis del tema, porque es final es todavía más duro y tampoco herir al amigo que cargaba con todas las dudas del regreso a un tema que se había agotado y sólo podía traerle problemas, según su propia confesión. Le Pera termina desnudando al propio protagonista que no quiere volver al viejo amor y de paso se encuentra con su propia dolorosa realidad.
 
 Volvió esa noche, nunca la olvido,

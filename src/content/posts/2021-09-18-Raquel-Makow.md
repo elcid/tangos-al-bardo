@@ -10,7 +10,7 @@ Nació en San Francisco, California, en la primavera del año 1991. Fue criada p
 
 A los 15 años empezó a participar en competencias, lo que la llevó a recorrer Estados Unidos y más adelante Europa. El mismo año viajó a Buenos Aires para visitar su familia. En ese viaje tomó sus primeras clases de Tango y asistió a su primera milonga en *La Viruta*. Fue en ese momento de sentir su primer abrazo que se metió en otro mundo, un mundo de placer, olvidándose de todo el resto y enamorándose del tango. Después volvió a su vida en San Francisco, a su mundo de *Ballroom*, un ambiente exigente de competencias, brillos y luces. Pero se llevó el recuerdo y la sensación de aquella noche en la milonga, algo que quedó grabado para siempre en su corazón.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEit4gBFu9xp1kFxtCNWah0GFYVT27jswkhHMq1RjooH1uvgfHZXbhtW9N6mqcQtIK78lxprJ_mW6ea6joVO8ujQGtqN_JfDIgtVCVcY5J2p97pK6WZf9CAyh9DQRuOlmTfEmaMezrgrHeKb/s320/WEI92bb3c_3f9cd7ae196046dbb87b1424b445ccd5%257Emv2.webp)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEit4gBFu9xp1kFxtCNWah0GFYVT27jswkhHMq1RjooH1uvgfHZXbhtW9N6mqcQtIK78lxprJ_mW6ea6joVO8ujQGtqN_JfDIgtVCVcY5J2p97pK6WZf9CAyh9DQRuOlmTfEmaMezrgrHeKb/s604/WEI92bb3c_3f9cd7ae196046dbb87b1424b445ccd5%257Emv2.webp)Raquel Makow
+[![](/tangos-al-bardo/images/a48cdfaddc22.webp)](/tangos-al-bardo/images/cc5bf01b9e28.webp)Raquel Makow
 
 A los 19 años se mudó a Portugal para bailar con un renombrado bailarín de *Ballroom*. Juntos consiguieron el título de Campeones Nacionales de Portugal 2011. Raquel después continuó su carrera en la República Checa y Canadá ganando otros premios internacionales. Pero a pesar del éxito en su carrera, algo faltaba en su vida, y sin ello, su alma no se llenaba al final del día. Nunca se olvidó de esa sensación que le dio el Tango.
 
@@ -18,7 +18,7 @@ Y más y más cada día añoraba el tango y ese abrazo tan dulce de la milonga. 
 
 En Buenos Aires, se dedicó a aprender, ensayar, salir a las milongas, y entregarse cien por ciento al Tango. Fue y sigue siendo un camino gratificante y frustrante al mismo tiempo. Descubrió que el Tango es un arte muy profundo que no se puede tapar con brillos y trucos. En el Tango uno tiene que abrirse al otro y conectar desde un lugar mucho más íntimo que en otras danzas.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg0spCP6DkDdiXRRJc63lN6i8eMXVZYTbggdgZxjypv80wAIOmfBCkt0kzapR9ZCDtjcPinE3_5qscGJXZHUkbEzTQjBA7SPtFv3_HRmqoUQyoeZ5zpouagJ-VQUdZy9jGPJln16ECLahbz/w251-h400/MAXI92bb3c_2d2aceff2dd446d18329a68627836f04%257Emv2_d_1339_2006_s_2.webp)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg0spCP6DkDdiXRRJc63lN6i8eMXVZYTbggdgZxjypv80wAIOmfBCkt0kzapR9ZCDtjcPinE3_5qscGJXZHUkbEzTQjBA7SPtFv3_HRmqoUQyoeZ5zpouagJ-VQUdZy9jGPJln16ECLahbz/s944/MAXI92bb3c_2d2aceff2dd446d18329a68627836f04%257Emv2_d_1339_2006_s_2.webp)Maxi y Raquel
+[![](/tangos-al-bardo/images/50f0220539e4.webp)](/tangos-al-bardo/images/28a6d4071598.webp)Maxi y Raquel
 
 Raquel fue aprendiendo más sobre ella misma mientras estudiaba y bailaba Tango. En Buenos Aires también trabajaba como jueza de *Ballroom* y entrenadora de las mejores parejas de *Ballroom* en Argentina y Uruguay.
 

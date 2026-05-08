@@ -22,7 +22,7 @@ Lo cierto es que Francisco De Caro, aunque haya estado muchos años a la sombra 
 
 -Si no hubiese existido, habría que inventarlo. Lo que hizo por el tango, ha sido fundamental porque le dió una jerarquía evolutiva indiscutible. Y sus páginas son maravillas...
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh1_RDfs4CbDi6NLc9jdop1_hRFUviIR9cnBLcLMcdqvmG9CMa2so8ttXsou_ICM-xnhZ_jvnphyphenhyphenBrAwI6OWVBwMtNTr7M7HZU8OtH9bUH3MyVhQoO7yltLnbtGt29q2dkFIB9yRF8d13A/s320/franciscodecaro.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh1_RDfs4CbDi6NLc9jdop1_hRFUviIR9cnBLcLMcdqvmG9CMa2so8ttXsou_ICM-xnhZ_jvnphyphenhyphenBrAwI6OWVBwMtNTr7M7HZU8OtH9bUH3MyVhQoO7yltLnbtGt29q2dkFIB9yRF8d13A/s1600/franciscodecaro.jpg) Francisco De Caro
+ [![](/tangos-al-bardo/images/0f5ef68306c9.jpg)](/tangos-al-bardo/images/20dc530f96d9.jpg) Francisco De Caro
 
 Horacio Ferrer expresaba sobre **Flores negras**:
 
@@ -30,7 +30,7 @@ Horacio Ferrer expresaba sobre **Flores negras**:
 
 -Estructurado en dos partes, su gran belleza y su inseparable concepción armónica admiten influencias de música española, italiana y francesa, pero asociadas en una creación enteramente original y esencialmente nuestra.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhre9HHGGL7C6xl-QF7x1zKDYJEiTDhrXn3KxY5P4G-Hq2MJGuuBIn-75mn4RDk-TA-w908hRnoq4qVos14v0ioz1gvLD7i7LfTfuyZEUkVfHAP8ycck_ZnbvN5J0xlbIxMQTSK0AXarDo/s320/Fran.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhre9HHGGL7C6xl-QF7x1zKDYJEiTDhrXn3KxY5P4G-Hq2MJGuuBIn-75mn4RDk-TA-w908hRnoq4qVos14v0ioz1gvLD7i7LfTfuyZEUkVfHAP8ycck_ZnbvN5J0xlbIxMQTSK0AXarDo/s1600/Fran.jpg) Julio Rosenberg, Julio De Caro, Luis Díaz y Francisco De Caro
+ [![](/tangos-al-bardo/images/e958fc074beb.jpg)](/tangos-al-bardo/images/258e1280dd57.jpg) Julio Rosenberg, Julio De Caro, Luis Díaz y Francisco De Caro
 
 Lo grabó Julio De Caro con su Sexteto el 12 de septiembre de 1927 y luego repetiría con su Orquesta en 1942 y 1952. Y César Salgán, pianista, hijo del legendario Horacio, rescata al frente de la Gran Orquesta TangoVia Buenos Aires, unas "raras partituras" de su padre, y graba entre otros temas, una relectura para piano y cuerdas de: **Flores negras**, que se conoce por primera vez en 50 años.
 

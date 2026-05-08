@@ -17,7 +17,7 @@ Se llevó consigo a músicos de probada categoría y trayectoria, como los fueye
 José Basso fue de los primeros en grabar los temas que iba lanzando Piazzolla al mercado tanguero: *Para lucirse, Prepárense, Triunfal, Contratiempo*. Incluso el mismo Ástor hizo varios arreglos para la orquesta, en los primeros años cincuenta.
 
 Autor de temas importantes: *Amor y tango, Rosicler, Qué vas buscando muñeca, Me están sobrando las penas * -con poetas destacados- o los instrumentales *11 y 1* (dedicado a su club: Boca Juniors), *Brazo de oro, De diez, siete *y la milonga *Sacale punta al lápiz.*
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiqtXBqjlaFwhlzFmmZM001eTLVNRF_sxGWkixHKn0rttsvQ63zTNDs_d9znuHbiflwWNrBpFQ5iGdQ7cphDPcUoQMxrZI5QYQTQzwMtWVAQlxsSo-rrO4Mdh-72CIIZuG_XsrVek4m8YBj/s1600/Claveles_blancos.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiqtXBqjlaFwhlzFmmZM001eTLVNRF_sxGWkixHKn0rttsvQ63zTNDs_d9znuHbiflwWNrBpFQ5iGdQ7cphDPcUoQMxrZI5QYQTQzwMtWVAQlxsSo-rrO4Mdh-72CIIZuG_XsrVek4m8YBj/s1600/Claveles_blancos.jpg)
+[![](/tangos-al-bardo/images/1d564f6a5159.jpg)](/tangos-al-bardo/images/1d564f6a5159.jpg)
 
 Yo lo recuerdo en sus primeras grabaciones, con el cantor Ricardo Ruiz. Me encanta la voz, su fina manera de decir los versos y la afinación vocal de este cantor, que se luciera antes con Osvaldo Fresedo.
 

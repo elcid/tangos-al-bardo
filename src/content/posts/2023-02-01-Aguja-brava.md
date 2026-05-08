@@ -10,7 +10,7 @@ Estos versos lunfas del poeta Eduardo Giorlandini muestran su gran capacidad cre
 
 Realizó tareas de investigación en la Universidad de Estudios de Palermo, en Sicilia (Italia) y fue becario en Alemania. En 1966 fue incorporado como miembro de número en la Academia Porteña del Lunfardo y como investigador adjunto en el Instituto de Filología Experimental.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj1OWEd5g4hySpH5A2-mGtiK058u0rxQ-fIOs-JMOLJ-rKK_lLxmFCOwRZsNjZ3efGQLDrNpNrmJk85ii1rwF3QYAOYwpB1oh51P-LLEB8_TPbiCE07Z6EDRdHGjRolNLUt9lK4QQpnlzHEMBcs3JFzUeV9fPgBa5RWQRbrDL25BIYxEbpj173H7hOUnw/w312-h400/GIORLA%C3%ADndice.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj1OWEd5g4hySpH5A2-mGtiK058u0rxQ-fIOs-JMOLJ-rKK_lLxmFCOwRZsNjZ3efGQLDrNpNrmJk85ii1rwF3QYAOYwpB1oh51P-LLEB8_TPbiCE07Z6EDRdHGjRolNLUt9lK4QQpnlzHEMBcs3JFzUeV9fPgBa5RWQRbrDL25BIYxEbpj173H7hOUnw/s254/GIORLA%C3%ADndice.jpg)Eduardo Giorlandini
+[![](/tangos-al-bardo/images/1bb64b7a325f.jpg)](/tangos-al-bardo/images/b1dcbda7b303.jpg)Eduardo Giorlandini
 
 Fue tanguero de alma incluso y dedicó muchas páginas al género en sus libros de tango, demostrando una vez más esa poderosa intuición que nos permite apreciar la excelencia del arte o de la música. En su imaginativo universo poético, las ideas estéticas se combinan con la densa maraña de pasiones populares y por ello logra el tono y la atmósfera adecuados, junto con una gran imaginación para pintar el mundo interior de los personajes. ​
 

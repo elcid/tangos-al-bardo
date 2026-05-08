@@ -10,14 +10,14 @@ Parecía que ninguna fuerza del mundo fuera capaz de parar la música de la call
 
 Mi debut con Troilo fue en el Tibidabo, en plena avenida; unos de los tres mayores cabarotes de la época. Los otros dos fueron el Chantecler y el Marabú, que estaban pegados a Corrientes pero en transversales: el primero en Paraná y el otro en Maipú, como marcando fronteras al norte y al sur.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhu4VLWYzH7_QC53gnOHeoSgk-AS8AMd7xmipsqoR5tskJ0kG1vrQP13oyr9yKLfrGYO5ZylO4NbAL2CWVT7rjfqfPQ42wZF3FTzqhbF6kqxNl89jHqsIUwFcyg7Imt8oEHz2rKEDkIICcLjoN7ntnNHrF1xr5pADnAmtFg9Z_HnAkVoAYkI6jW4r_jylLm/w400-h285/FQ-46eJXIAEakWw.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhu4VLWYzH7_QC53gnOHeoSgk-AS8AMd7xmipsqoR5tskJ0kG1vrQP13oyr9yKLfrGYO5ZylO4NbAL2CWVT7rjfqfPQ42wZF3FTzqhbF6kqxNl89jHqsIUwFcyg7Imt8oEHz2rKEDkIICcLjoN7ntnNHrF1xr5pADnAmtFg9Z_HnAkVoAYkI6jW4r_jylLm/s680/FQ-46eJXIAEakWw.jpg)
+[![](/tangos-al-bardo/images/b981d10ca173.jpg)](/tangos-al-bardo/images/ea0977e4cb0d.jpg)
 El Antiguo Café Marzotto de la calle Corrientes 1124.
 
 En todos lados el rey era el tango. Aun cuando compartiera los escenarios ocasionalmente con orquestas de otros géneros, ni por asomo le podían restar público ni aplausos. Había tango hasta de día, casi en cada puerta de Corrientes. Además del viejo Nacional, florecían Tango Bar, Marzotto, La Armonía, boliches exclusivamente tangueros. Cada uno tenía su propio público, cada orquesta sus propios y seguidores hinchas y lo mismo sucedía a veces con los cantores o con algunos instrumentistas.
 
 Entre tanto prócer que vieron aquellos años, figuras muchas que llegan hasta hoy brillando, había también casos pintorescos, personajes que buscaban la atención del enorme público tanguero, pero por medios extraños. Entre ellos recuerdo tres cantores: el de la voz de acero, el cantor sin piernas y el cantor gorila.
 
-[![Marzotto-20-September-1944](https://tangodecoder.files.wordpress.com/2015/09/ea03f-6a00d83454a05169e201bb0874923f970d-320wi.jpg?w=625 "Marzotto-20-September-1944")](https://tangodecoder.files.wordpress.com/2015/09/ea03f-6a00d83454a05169e201bb0874923f970d-320wi.jpg)
+[![Marzotto-20-September-1944](/tangos-al-bardo/images/54f06fab80c5.jpg?w=625 "Marzotto-20-September-1944")](/tangos-al-bardo/images/54f06fab80c5.jpg)
 
 El de la voz siderúrgica era, según él, quien tenía el récord de permanencia en el canto. Decía poder atormentar a la gente un día seguido, pero creo que nunca encontró interesados. Una vez le siguieron el tren en el Tango Bar y le dijeron que pidiera el tipo de acompañamiento. Se despachó con poco: cuarenta guitarristas, eso sí, veinte vestidos de smoking negro y veinte de blanco. Se lo prometieron y le aseguraron que la prueba se iba a transmitir por onda larga , corta y "cortita".
 

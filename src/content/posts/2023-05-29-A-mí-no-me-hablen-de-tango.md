@@ -10,7 +10,7 @@ Resulta verdaderamente curioso comprobar que, en la extensa producción de José
 
 Y nos demuestra una vez más su capacidad para describir con su pluma poética, aquellas milongas de los domingos en los Corrrales (Parque Patricios), las partidas de taba, carnavales y el enfundado traje milonguero de fantasía. Todo el argumentario que le sirve para defender en esta instancia al tango de antes, el de su padre, el que vivió de cerca o de lejos, pero reflejado en revistas, en reportajes, en imágenes...
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjtTLmPxK9R9wy-Oyk4MS60tKTu5dCfglwOmI5vNTykoUWl_rvBLpDuxG9Hyg00-3YK8tyDYgBGV9wNSTiHVyCaqudYX_XUwEZlAFaVY2pv6FJPw8g9JUtioovYXHIPA4EdafOOYeT9pyNZqioHiALh-kS1Xz74uBwNodwUO2rUIaifkZHhSTcif-kvJA/s320/Contursi_6.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjtTLmPxK9R9wy-Oyk4MS60tKTu5dCfglwOmI5vNTykoUWl_rvBLpDuxG9Hyg00-3YK8tyDYgBGV9wNSTiHVyCaqudYX_XUwEZlAFaVY2pv6FJPw8g9JUtioovYXHIPA4EdafOOYeT9pyNZqioHiALh-kS1Xz74uBwNodwUO2rUIaifkZHhSTcif-kvJA/s1292/Contursi_6.jpg)José María Contursi con Gricel y su hija.
+[![](/tangos-al-bardo/images/e64c56d53a12.jpg)](/tangos-al-bardo/images/b6eb6123fd58.jpg)José María Contursi con Gricel y su hija.
 
 En este tema que hoy transito, lo vemos al *Catunga *en un umbral imaginario del cambio y devenir incesante, mostrando su fidelidad a nuestra monografía urbana y su trasfondo. Los claroscuros de la existencia al desgaire, delimitan un espacio y un tiempo de lo cotidiano. Una especie de radiografía agridulce en el recuerdo. La voz narrativa, omnisciente, se desliza dentro de un mosaico de realidades e imágenes que enfocan tiempos desteñidos en la memoria.
 En esta noche de capricho y de fandango,

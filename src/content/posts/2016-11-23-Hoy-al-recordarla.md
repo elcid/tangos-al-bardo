@@ -10,9 +10,9 @@ Hay tangos que has escuchado miles de veces, los has bailado, los has sentido en
 
 Por todo ello, este tango que me retrocede a mi juventud milonguera y aventurera, tiene cosas que me llenan. Y lo más notable es que lo grabaron orquestas y cantores tan dispares como De Angelis-Julio Martel, Morán con Osvaldo Pugliese o Di Sarli con Jorge Durán y me gustan los tres por igual. ¿Serán los versos? ¿O tal vez los recuerdos?
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjZqOFsShDxAmjBuQfAzG_7k-Z2WTSlt_fqznu1F07rYhLGQhxSWuna7GDsgNjUODaD_Maivv770vbd4YX4O8OUqD95IibKUx3pjCEyoASZ6cTzcexAI0UXjJsqlgWCb4ffcH5v24LuhyAR/s320/CanetRecortado.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjZqOFsShDxAmjBuQfAzG_7k-Z2WTSlt_fqznu1F07rYhLGQhxSWuna7GDsgNjUODaD_Maivv770vbd4YX4O8OUqD95IibKUx3pjCEyoASZ6cTzcexAI0UXjJsqlgWCb4ffcH5v24LuhyAR/s1600/CanetRecortado.jpg) José Canet
+ [![](/tangos-al-bardo/images/c65135d0e913.jpg)](/tangos-al-bardo/images/685cc5091f65.jpg) José Canet
 Anoche lo puse en la milonga por la orquesta de Di Sarli con el sanjuanino Jorge* Cajón* Durán Y otra vez sentí ese cosquilleo que te ronda el cuore. Además de la hermosa y colorida voz grave de Durán, Di Sarli hace unas cositas con el piano, que parece él sólo una orquesta y te lleva en la pista.. Arranca tartamudeando las notas con el teclado y sigue empujando a la oquesta con su toque maestro, único. Y cuando suena la melodía, con los violines enfilando, ya me estoy emocionando. Para más* inri*, lo estoy bailando y en mi cabeza bullen los recuerdos...
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhBOyJETGpNfBNOJDK8tRT7gs5_CqsbWiyhfuhuyZ31nSOK4bm8sXfPavRpJdG0Vm9BQ3A-w-A5VVYzZgyZerUpcSJWPc_1Faz3FZjIS7_NQSqldU5cS-YQpJLgAiRwoJCqWgnLeSBUUnF1/s320/SABA.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhBOyJETGpNfBNOJDK8tRT7gs5_CqsbWiyhfuhuyZ31nSOK4bm8sXfPavRpJdG0Vm9BQ3A-w-A5VVYzZgyZerUpcSJWPc_1Faz3FZjIS7_NQSqldU5cS-YQpJLgAiRwoJCqWgnLeSBUUnF1/s1600/SABA.jpg)
+[![](/tangos-al-bardo/images/062ec9f2c3db.jpg)](/tangos-al-bardo/images/e53bde6823e4.jpg)
 
 Se atora el tango en sus venas
 y en mis penas se arrincona,
@@ -39,7 +39,7 @@ que saben mi angustia...
 Qué noche más triste...
 Surgen los recuerdos y en sombras me pierdo
 llorando su amor.
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgTIpyGprgiUoXPpBaj_txAixGjmQoYKFLXbG1uENvVtD9f79d8vXoXZHk_ICq0hnDRx-P9UOQApF8LoaZRktQNXCixdVx5mma0_cO6f_0SyVLLjL46w5ybJftTO9T2vxW0d7mBFgtoAOWl/s200/Carlitos+disrli.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgTIpyGprgiUoXPpBaj_txAixGjmQoYKFLXbG1uENvVtD9f79d8vXoXZHk_ICq0hnDRx-P9UOQApF8LoaZRktQNXCixdVx5mma0_cO6f_0SyVLLjL46w5ybJftTO9T2vxW0d7mBFgtoAOWl/s1600/Carlitos+disrli.jpg)
+[![](/tangos-al-bardo/images/ac1ea8e6a2de.jpg)](/tangos-al-bardo/images/827141604b8d.jpg)
 
 Tiene como un poder vivificatorio, te lleva en la pista a babucha. El sonido de ciertas palabras te tocan y la música es como una segunda naturaleza tuya. Quizás no se pueda racionalizar pero lo sentís y ya está. El corazón susurrante te lleva hacia alguna parte oscura, distante. ¿Será la fuerza de los tangos? Uno retrata en algunos versos de tango sus yacimientos de tiempo y la memoria hace el resto. Por eso, este tema, con la envoltura tan linda de su música, tiene ese poder letárgico.
 

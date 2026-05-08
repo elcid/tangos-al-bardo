@@ -15,7 +15,7 @@ Mi infancia, adolescencia y parte de la juventud la viví en Parque Patricios, e
 
 Una noche nos invitaron a una práctica en el Club Paciencia que estaba en la orilla vecina de Nueva Pompeya y allí concurrían chicas. Con una de ellas bailé** La madrugada** por Juan D'Arienzo y fue como un toque directo al cuore. Un impacto por lo bien que nos entendimos en ese lugar extraño para mí. Y cada vez que lo bailo, me vienen a la memoria aquellas noches de práctica en el club Paciencia.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhJWKqs9L9FkYQvJJNSVR14K8mkQfw3TiFkJTqvItJCi1qbSPFRuqnd6EoCOfMFyba0ruICc0ehuRWppebkJbs2H-GzIW5bORe0IeAFF1ur3vVm_RJuRQ0IXBqXYRMDnPWOmlBaCufEm80T/s320/catulo3.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhJWKqs9L9FkYQvJJNSVR14K8mkQfw3TiFkJTqvItJCi1qbSPFRuqnd6EoCOfMFyba0ruICc0ehuRWppebkJbs2H-GzIW5bORe0IeAFF1ur3vVm_RJuRQ0IXBqXYRMDnPWOmlBaCufEm80T/s1600/catulo3.jpg) Cátulo Castillo en la máquina, componiendo con Aníbal Troilo
+ [![](/tangos-al-bardo/images/50a8158b5b8f.jpg)](/tangos-al-bardo/images/43e879f0273e.jpg) Cátulo Castillo en la máquina, componiendo con Aníbal Troilo
 
 Además me parece especialmente emotiva, la acuarela inicial que realiza Cátulo Castillo en este tango que lleva música del bandoneonista Ángel Maffia, hermano menor de Pedro. Nos hace evocar la melancolía de lo que se ha perdido y nos deriva a aquellas noches largas de destino incierto.
 

@@ -23,7 +23,7 @@ Su amigo Vicente San Lorenzo (Vicente Ronca) un napolitano cantor y músico a qu
 Y escogieron **Cómo se canta en Nápoles** (*Comme si canta a Napule*), de Giovani Ermete Gaeta, primera figura de la canción napolitana como autor y compositor, que firmó el tema como E. A. Mario.
 Gardel lo canta a su modo, cambiando algunas palabras pero dándole el tono ambiental adecuado y la profundidad emotiva que el tema requería.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgXlFtkN3QV_5HpiQIfRPLhhkxV7msEZ0NtPrlSKSUYRA93y9wnX4yJYXkxFvMY2DvSJdUFlcdYSQFIYd1-ObN2tDDP-1SYNwJzyceO5xAMRbmS1NbJWwOgT5eptD7H_tBpRGwtBozq-KGU/s1600/Gardel+y+sus+guitarristas.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgXlFtkN3QV_5HpiQIfRPLhhkxV7msEZ0NtPrlSKSUYRA93y9wnX4yJYXkxFvMY2DvSJdUFlcdYSQFIYd1-ObN2tDDP-1SYNwJzyceO5xAMRbmS1NbJWwOgT5eptD7H_tBpRGwtBozq-KGU/s1600/Gardel+y+sus+guitarristas.jpg) Gardel con sus guitarristas
+ [![](/tangos-al-bardo/images/2a0631ec3735.jpg)](/tangos-al-bardo/images/2a0631ec3735.jpg) Gardel con sus guitarristas
 
 Lo grabó con las guitarras de Vivas, Barbieri y Riverol, el 16 de junio de 1931.
 

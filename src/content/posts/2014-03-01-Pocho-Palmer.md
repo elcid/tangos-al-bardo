@@ -18,7 +18,7 @@ Hace un par de años, lo vi como integrante de la Big Band de tango de Fabián B
 
 Me contó de su admiración por bandoneonistas como Aníbal Troilo y Leopoldo Federico entre otros. Pensaba como Troilo, que más allá de la técnica o el dominio del instrumento, "*cuando se toca un instrumento uno tiene que cantarlo e interpretar lo que está tocando*". Todo pasa por la sensibilidad y el respeto por la melodía, aseguraba.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEipVevY2NPvl_-whrNg6IdrIF2OEP2HVLKaLWrB-VyR_gkbMJ6_qQuG1DzK9Es7v3YJoNlOu7GduAk1rZFK488OlW1CbxoH4LiU5k14mVUUc5bUo0_Eg0cEKpXfpyibK4hPb_D-Y4GMLJ8/s1600/escanear0001.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEipVevY2NPvl_-whrNg6IdrIF2OEP2HVLKaLWrB-VyR_gkbMJ6_qQuG1DzK9Es7v3YJoNlOu7GduAk1rZFK488OlW1CbxoH4LiU5k14mVUUc5bUo0_Eg0cEKpXfpyibK4hPb_D-Y4GMLJ8/s1600/escanear0001.jpg) Con la Big Band Tango de Bertero. Pocho es el 5º, arriba de izquierda a derecha
+ [![](/tangos-al-bardo/images/5d7595382a24.jpg)](/tangos-al-bardo/images/5d7595382a24.jpg) Con la Big Band Tango de Bertero. Pocho es el 5º, arriba de izquierda a derecha
 Supo acompañar también a Alicia Pometti en el Trío que constituyeron con ella; a Lidia Borda, se lució en el espectáculo *Puro Tango* y deja una historia llena de recuerdos lindos y una ristra de amigos que lo acompañan en este imprevisto final.
 
 Lo traigo a este espacio, hoy tristón como la mañana madrileña que aparece en mi ventana, tocando en La Orquesta Color Tango Tolosa, como primer bandoneón, secundado entre otros por el que fuera bandoneonista de la orquesta de Osvaldo Pugliese, Alejandro Prevignano. Interpretan** La bordona**, de Emilio Balcarce.

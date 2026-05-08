@@ -8,7 +8,7 @@ tags: ["Antonio Todaro"]
 
 De aquellas figuras iniciales han desaparecido muchas, pero la originalidad de la sociedad de cuerpos, permite una infinita posibilidad de invención. Muchos pasos se han ido puliendo y mejorando, y sobre aquellas figuras se han ido tejiendo y mejorando dibujos, enriqueciendo lo que crearon algunos grandes bailarines como El Cachafaz, Tarila, El Negro Cotongo, el Mocho Undarz, Miguel Bucino, Antonio Todaro, Portalea, Lampazo, Cantinflas, Tim, Lavandina, el fino Ribera y tantos anónimos de aquella inmensa masa de milongueros porteños del 40 y 50.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi7OZufVKzE20DEA3EfcMq_vUXhAE2X8ttV1n8zA0wIz24Od6Eo00Exn3H7RRmQDaB9QrffyGuG0Delt9AvDdc0nLitLZJa-Dqh4u2VjQOR9MI_B8K11bQmrPd0yE0pag16ZEcTYpXzSBXHzJvOULNsPhHlxU0ucc0bKYNuelmLnRszo4FE_8n0MfyRWQ/w400-h224/cacha.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi7OZufVKzE20DEA3EfcMq_vUXhAE2X8ttV1n8zA0wIz24Od6Eo00Exn3H7RRmQDaB9QrffyGuG0Delt9AvDdc0nLitLZJa-Dqh4u2VjQOR9MI_B8K11bQmrPd0yE0pag16ZEcTYpXzSBXHzJvOULNsPhHlxU0ucc0bKYNuelmLnRszo4FE_8n0MfyRWQ/s300/cacha.jpg)El Cachafaz y Carmencita Calderón bailan en la película "Tango"
+[![](/tangos-al-bardo/images/8a055186f985.jpg)](/tangos-al-bardo/images/28853d212491.jpg)El Cachafaz y Carmencita Calderón bailan en la película "Tango"
 
 Muchas de dichas figuras las legaron a sus sucesores sin tomar conciencia del servicio que prestaron al tango, porque ellos iban a jugar, crear y pasarla bien en la pista junto a las parejas de turno. Cuando un italiano bautizado artísticamente como Rodolfo Valentino baila el tango en aquellas películas mudas, le hizo un gran favor a la música rioplatense por la difusión mundial que le dio.
 

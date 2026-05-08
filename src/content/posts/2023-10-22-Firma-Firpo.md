@@ -7,7 +7,7 @@ labels: ""
 
 <iframe src="https://www.youtube.com/embed/CC0j_eIbLPo"></iframe>
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj4lpNwRPdmglRPz3KBGwFt5Jwvikn3NGcGZbMZt_M5UGZHRGxWxDF-hqw0W80NJ-n4e4TCNdUfp168QAfssKIeKoIc-pu8juDoIc732bfZ1o8_lfazayz-YuST8rO3ibMVM1XRcZUt2yJaAuU-ozYc7U1wejhyphenhyphenqsI34yqB8bbKsCNKT3vdAVTr9ZJtJLaD/w243-h320/fuegos_artificiales.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj4lpNwRPdmglRPz3KBGwFt5Jwvikn3NGcGZbMZt_M5UGZHRGxWxDF-hqw0W80NJ-n4e4TCNdUfp168QAfssKIeKoIc-pu8juDoIc732bfZ1o8_lfazayz-YuST8rO3ibMVM1XRcZUt2yJaAuU-ozYc7U1wejhyphenhyphenqsI34yqB8bbKsCNKT3vdAVTr9ZJtJLaD/s263/fuegos_artificiales.jpg)
+[![](/tangos-al-bardo/images/a63a5d9dee4f.jpg)](/tangos-al-bardo/images/8ec240e8a2bf.jpg)
 
 <iframe src="https://www.youtube.com/embed/fAcQ4oYSR1o"></iframe>
 

@@ -6,7 +6,7 @@ labels: ""
 tags: ["Juan D'Arienzo"]
 ---
 
-[![](https://blogger.googleusercontent.com/img/a/AVvXsEhqz_lHJLGJmTBKy2eXdESoM53X5LrnF51Zw0IwOOJpWwwBquFwxDyhDKPn8zY4o0NrMqr9GKMmKRRbr54lw9LncYgMGvk33ULcKmZM57LMLZiBpvmR0tt2MpkiTQNQCsyNgxAfkGeXqCAU8-aBrYy0wIg3digNxNRiwTrmUB6pyrd0aWP8-RbDcPO3HA=w200-h137)](https://blogger.googleusercontent.com/img/a/AVvXsEhqz_lHJLGJmTBKy2eXdESoM53X5LrnF51Zw0IwOOJpWwwBquFwxDyhDKPn8zY4o0NrMqr9GKMmKRRbr54lw9LncYgMGvk33ULcKmZM57LMLZiBpvmR0tt2MpkiTQNQCsyNgxAfkGeXqCAU8-aBrYy0wIg3digNxNRiwTrmUB6pyrd0aWP8-RbDcPO3HA=s271)¡Seguime, corazón!
+[![](/tangos-al-bardo/images/6dee4c88fedc.jpg)](https://blogger.googleusercontent.com/img/a/AVvXsEhqz_lHJLGJmTBKy2eXdESoM53X5LrnF51Zw0IwOOJpWwwBquFwxDyhDKPn8zY4o0NrMqr9GKMmKRRbr54lw9LncYgMGvk33ULcKmZM57LMLZiBpvmR0tt2MpkiTQNQCsyNgxAfkGeXqCAU8-aBrYy0wIg3digNxNRiwTrmUB6pyrd0aWP8-RbDcPO3HA=s271)¡Seguime, corazón!
 Sí, la mujer sigue al hombre y también propone en la pista, porque ése es el dúo no hablado de la pareja, bailando tangos, milongas y valses. Como sucede todos los Martes del año en BIEN MILONGA.
 
 <iframe src="https://www.youtube.com/embed/lRVp2rIzCwE"></iframe>

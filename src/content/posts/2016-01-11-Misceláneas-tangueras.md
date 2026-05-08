@@ -31,7 +31,7 @@ Como es consiguiente, las músicas de una y otra no guardan ninguna analogía. L
 En los contornos de la ciudad están tan generalizada, que hoy la milonga es una pieza obligada en todos los bailecitos de *medio pelo*, que se oye en las guitarras, en los acordeones, un papel con peine y en los musiqueros ambulantes de flauta, arpa y violín.
 También es ya del dominio de los organilleros que habían arreglado y lo hacían oír con aire de danza o habanera; lo bailan también en los casinos de baja estofa de los mercados 11 de Setiembre y Constitución, como en los bailables y velorios de los carreritos, soldadesca y compadraje.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhSv23EAPYhSrMQFq6Z45k-Q1UGcf1kFYqyZYmWZ2VnEE9njlX4R_7IICa_K3aJFAEyk10WyBBApqu7kz65KvXsfynVXDwO78sT6wWs13faLvtsW0IzPjbeLOzTG8FaS3blzr7_jz5JzpCB/s400/Manuel+Suero.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhSv23EAPYhSrMQFq6Z45k-Q1UGcf1kFYqyZYmWZ2VnEE9njlX4R_7IICa_K3aJFAEyk10WyBBApqu7kz65KvXsfynVXDwO78sT6wWs13faLvtsW0IzPjbeLOzTG8FaS3blzr7_jz5JzpCB/s1600/Manuel+Suero.jpg) Pintura de Manuel Suero
+ [![](/tangos-al-bardo/images/a824f435bf7c.jpg)](/tangos-al-bardo/images/d869e20d44b3.jpg) Pintura de Manuel Suero
 
 1950
 
@@ -46,7 +46,7 @@ Calla Filiberto.
 -¿Nada más?
 Para explicar lo que falta, Juan de Dios no dispone de la necesaria elocuencia verbal. Traza con la diestra un arabesco en el aire; sonríe; y mientras, el espontáneo de antes toca de nuevo en el piano la famosa pieza. Lo inefable queda manifiesto en una línea del sonido, que nadie dejó de comprender.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgfFh6j7tX5OCpkRxBPmjJcix4Yr_ms6Fp5HaYJkoYXgEuNzsEqFz2pObOjn60rrYOtR-JdxNJdy9jSYYqncIwy4xKbKUZq8MVGHDZ_nb3yL8jHz8pu3nyB3bFx21me9ag7bGj3KGwqELio/s400/filiberto.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgfFh6j7tX5OCpkRxBPmjJcix4Yr_ms6Fp5HaYJkoYXgEuNzsEqFz2pObOjn60rrYOtR-JdxNJdy9jSYYqncIwy4xKbKUZq8MVGHDZ_nb3yL8jHz8pu3nyB3bFx21me9ag7bGj3KGwqELio/s1600/filiberto.jpg) Juan de Dios Filiberto
+ [![](/tangos-al-bardo/images/4a8482bf300d.jpg)](/tangos-al-bardo/images/ef6df6097674.jpg) Juan de Dios Filiberto
 
 Y para acompañar estos recuerdos de autores diversos, nada mejor que la versión de **El Pañuelito**, de Gabino Coria Peñaloza y Filiberto, grabado en 1934 por la orquesta de éste, cantando el estribillo Patrocinio Díaz.
 

@@ -21,7 +21,7 @@ En mi poema reina el ritmo vivaz que nacía en las bordonas. Para ello cuenta co
 
 Así, “furca”, forma sorpresiva de asalto y robo; “sobrando”, como sinónimo de superando; “cachafaz”, como designación heroica del suburbio; “lenghe”, amplio pañuelo para el cuello; “canyenghe”, ritmo específico del tango; “corrida”, “quebrada”, “sentada”, “media luna”, distintos pasos de la danza que canta el poema.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiuiw2G9fP3fA3MVzrYeBzlBh7U2FmeWlTbYHiqtGOEy6OR9Y1H2mVPBm99cdKoz9bmedjOC6HtcSlWEqx2CSNK27-SFzyOizZvbLTYH7IgLkkG0fojm-_PtesxzsKkMCXhiAZxf0pERwiNFnvt3EG7RqL1iJMSY4kGDGuc5Fd_enWGEj2JaJP5QSlrMuKc/w320-h175/descarga%20(15).jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiuiw2G9fP3fA3MVzrYeBzlBh7U2FmeWlTbYHiqtGOEy6OR9Y1H2mVPBm99cdKoz9bmedjOC6HtcSlWEqx2CSNK27-SFzyOizZvbLTYH7IgLkkG0fojm-_PtesxzsKkMCXhiAZxf0pERwiNFnvt3EG7RqL1iJMSY4kGDGuc5Fd_enWGEj2JaJP5QSlrMuKc/s303/descarga%20(15).jpg)Berta Singerman
+[![](/tangos-al-bardo/images/60e108d3b652.jpg).jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiuiw2G9fP3fA3MVzrYeBzlBh7U2FmeWlTbYHiqtGOEy6OR9Y1H2mVPBm99cdKoz9bmedjOC6HtcSlWEqx2CSNK27-SFzyOizZvbLTYH7IgLkkG0fojm-_PtesxzsKkMCXhiAZxf0pERwiNFnvt3EG7RqL1iJMSY4kGDGuc5Fd_enWGEj2JaJP5QSlrMuKc/s303/descarga%20(15).jpg)Berta Singerman
 
 Lo demás, la emoción, el misterio, corren por cuenta del arte de nuestra gran Berta. Me palpito que esta emoción y ese misterio, son lo más grande del poema.” Homero Manzi
 

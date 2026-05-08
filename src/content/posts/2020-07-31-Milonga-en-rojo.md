@@ -32,7 +32,7 @@ Sandia calada.
 
 La atmósfera popular que subyace en los temas del viejo maestro, florece con la sencillez de sus imágenes. Una cartografía que lleva en su mochila como signo de autenticidad. La clave tonal, esa algarabía popular en sus pintorescos rincones, la humilde calle asoleada con los pregoneros que fondean junto a sus casitas. El viejo de Cátulo hace gala de su don de observación y la maravillosa interpretación de las cosas simples gracias a una honda sensibilidad, que le permitió destacar como periodista, autor teatral y gran poeta del tango, dejándonos además a Cátulo como continuador de su obra magistral.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEixWA9KOm3s1yHaWuN-PXZtHM0wjtHjHQLIZS3fMZx2nVzAhX1TD0izQiZejE2F0KzG4Wkw7MMN7Oiy15fzfNFhQncvU3enZ5mayAQ0woRbMBB0DPnE7nfhffeyZ0DhGl6E_nWWHYv1_Mj3/s320/milonga_en_rojo_tapa_72.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEixWA9KOm3s1yHaWuN-PXZtHM0wjtHjHQLIZS3fMZx2nVzAhX1TD0izQiZejE2F0KzG4Wkw7MMN7Oiy15fzfNFhQncvU3enZ5mayAQ0woRbMBB0DPnE7nfhffeyZ0DhGl6E_nWWHYv1_Mj3/s1600/milonga_en_rojo_tapa_72.jpg)En la vereda arbolada
+[![](/tangos-al-bardo/images/ba1bcbf1c65b.jpg)](/tangos-al-bardo/images/20d95800514d.jpg)En la vereda arbolada
 cabecea algún vecino,
 es un fogón, el camino
 ardiendo en la resolana,

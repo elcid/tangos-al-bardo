@@ -21,7 +21,7 @@ El Quinteto grabó el CD “Tangos” editado en 1997 por el sello Epsa. En 1999
 
 Han realizado presentaciones en el Teatro Municipal San Martín, en ciclos de las Secretarías de Cultura del Gobierno de la Ciudad de Buenos Aires y en el interior del país. En 1999 el Quinteto Argentino de Cuerdas formó parte de las agrupaciones seleccionadas para participar del *Festival Buenos Aires* en Porto Alegre.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgX6tLm_T5zQLpPcoDHkbPXY6KsksjxvHOAEjWzId3Wx0s-LI_FVNAWUHN_Fs3a2lRTVRGGY6awciL7pFvxx2DrqkPiDnsB6U2YYS80Xa8DiSR4PLYEDtRGX-zS8yS5TnTQOPFziEcuDy4/s1600/jose_votti.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgX6tLm_T5zQLpPcoDHkbPXY6KsksjxvHOAEjWzId3Wx0s-LI_FVNAWUHN_Fs3a2lRTVRGGY6awciL7pFvxx2DrqkPiDnsB6U2YYS80Xa8DiSR4PLYEDtRGX-zS8yS5TnTQOPFziEcuDy4/s1600/jose_votti.jpg) José Votti. Tocó con Demare, Troilo, Piazzolla
+ [![](/tangos-al-bardo/images/29f10a864d38.jpg)](/tangos-al-bardo/images/29f10a864d38.jpg) José Votti. Tocó con Demare, Troilo, Piazzolla
 Y para que se relajen y se les evaporen los efluvios de estas festicholas pasadas, les dejo dos temas del primer CD grabado por estos muchachos sabios. En primer lugar va el tango de Peregrino Paulos: **Inspiración**. Y a continuación, el tema de Vicente Greco: **Ojos negros**.
 
 [09- Inspiración - Quint. Argentino de cuerdas](http://1drv.ms/13MPOAW)

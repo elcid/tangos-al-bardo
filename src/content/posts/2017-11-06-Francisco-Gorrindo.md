@@ -10,7 +10,7 @@ Este poeta que afincó su obra en el tango, dejó páginas de verdadero impacto 
 
 El caso de **Las cuarenta**, un tango atado al palenque de las obras de larga duración, por la polenta de sus versos y la emoción y experiencia que aflora en los mismos. El guitarrista Roberto Grela, le puso música a la poesía de Gorrindo en 1936 y a comienzos del 37, Azucena Maizani con su potente voz dramática lo estrenaba entre grandes aplausos en el teatro Nacional. Francisco Lomuto con su cantor Jorge Omar también lo instaló rápidamente en el gusto popular.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgBhE0x9726RvjoXh0xfO0nlRPSygm0epdc-Rf8NV_1xB7CXQyR7NZC0O0liscr8lGdVQQxTN0h9oR20xsWvTkTXH66JhDS5EI309NK6NqELNzowoc8h5DrdvINfo3I4bVk4bZto9NGrYXA/s320/FRANCISCO+GORRINDO.JPG)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgBhE0x9726RvjoXh0xfO0nlRPSygm0epdc-Rf8NV_1xB7CXQyR7NZC0O0liscr8lGdVQQxTN0h9oR20xsWvTkTXH66JhDS5EI309NK6NqELNzowoc8h5DrdvINfo3I4bVk4bZto9NGrYXA/s1600/FRANCISCO+GORRINDO.JPG) Francisco Gorrindo
+ [![](/tangos-al-bardo/images/9a312a12714e.jpg)](/tangos-al-bardo/images/9262924304d3.jpg) Francisco Gorrindo
 
 Julio Jorge Nelson, con quien tuve una linda relación luego que fuera mi jurado en el programa *"Odol pregunta*", contaba cierta historia sobre este tango, que hablaba de un incesto entre hermanos, con el embarazo de la chica y la tragedia familiar que ello desencadenó, en La Plata. Según esta versión, Nelson se la transmitió a Gorrindo y éste lo llevó al verso que haría furor. Es posible, dado que en todo cancionero, muchos temas llevan una historia real escondida en los mismos.
 

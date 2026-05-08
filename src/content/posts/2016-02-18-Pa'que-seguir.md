@@ -41,7 +41,7 @@ más que una angustia dolorosamente atroz.
 
 Después de esta confesión, poco puedo aportar yo, más que admiración por estos versos difíciles de musicalizar. Y eso sirve para valorar en toda su justa dimensión, el trabajo de Fiorentino, no sólo en su hermosa interpretación del tema. sino en la melodía que le agregó a los mismos, convirtiéndolo en un tango para el recuerdo permanente.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiWrt52ybVRTwWdM9xTDGkvvwEC2FAlmsfSya6QwNdM387gWYHoVEEbZpGQSoJZet5nEFI55ZxF7iu2Vpi8L2IHzIVxIHmikDlKkzcJwDQh7jzu8aKhvRKnZ4R3iKU-vc_9wovRVWT35CsL/s400/img079.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiWrt52ybVRTwWdM9xTDGkvvwEC2FAlmsfSya6QwNdM387gWYHoVEEbZpGQSoJZet5nEFI55ZxF7iu2Vpi8L2IHzIVxIHmikDlKkzcJwDQh7jzu8aKhvRKnZ4R3iKU-vc_9wovRVWT35CsL/s1600/img079.jpg) Francisco Fiorentino con José Martínez en los años veinte
+ [![](/tangos-al-bardo/images/bfbaeeba0d7d.jpg)](/tangos-al-bardo/images/e3c5f726e932.jpg) Francisco Fiorentino con José Martínez en los años veinte
 
 Fiorentino comenzó su carrera como bandoneonista, formado con Minotto Di Cicco, su maestro y alentado por su hermano Vicente, que era violinista. Fiore tocaría en un trío con el *gallego* José Martínez, se alistó en el cuarteto de su hermano Vicente, que completaban los negros Plácido Simoni Alfaro en piano y Joaquín Mora en fueye. Actuaría en la orquesta de Francisco Canaro y en una gira por el sur del país se enfermó el cantor y él lo suplantó con bastante fortuna.
 

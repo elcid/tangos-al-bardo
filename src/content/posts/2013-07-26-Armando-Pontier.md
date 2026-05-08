@@ -26,7 +26,7 @@ Lo mismo haría un ya consagrado Aníbal Troilo que lanzó su instrumental *Milo
 Con su gran amigo Enrique Mario Francini, se fueron de la orquesta de Caló para intentar la aventura propia y el debut de esa formación, fue todo un suceso, el 1 de setiembre de 1945. Supieron rodearse de muy buenos músicos y de vocalistas de primera línea como Raúl Berón, Roberto Rufino, Alberto Podestá y el descubrimiento de Pontier: Julio Sosa. La sociedad Francini-Pontier se disolvió diez años más tarde y cada uno emprendió rumbos nuevos bajo el prestigio de sus nombres, aunque volverían a unirse circunstancialmente para viajar a Japón.
 
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjwLYm8bjbjR3cpQ8mDzKgdy6IF0RIMSOTLwt-f8StLjZ7pQGsf8mN8jPYgTzJxyN0WEwk5ReSwsxbFoKaHtZTthZJdsE9goGjNdNJgxG2Yj_6hJieOJlxA3WkfjHuuU3hZtSX2qTfTsBY/s1600/Claveles_blancos.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjwLYm8bjbjR3cpQ8mDzKgdy6IF0RIMSOTLwt-f8StLjZ7pQGsf8mN8jPYgTzJxyN0WEwk5ReSwsxbFoKaHtZTthZJdsE9goGjNdNJgxG2Yj_6hJieOJlxA3WkfjHuuU3hZtSX2qTfTsBY/s1600/Claveles_blancos.jpg)
+[![](/tangos-al-bardo/images/3c36448c1871.jpg)](/tangos-al-bardo/images/3c36448c1871.jpg)
  El 25 de diciembre de 1983, Pontier era un hombre todavía joven y con proyectos, pero por problemas íntimos y bajo una fuerte depresión, resolvió poner fin a su vida, con el tiro del final.
 
 Yo lo recuerdo con su orquesta en dos temas instrumentales creado en 1916 y 1919 respectivamente:: **El africano**, de Eduardo "El Chón" Pereyra, grabado el 29 de nobiembre de 1966. Y **Pura clase,** de Adolfo Rosquellas, realizado en el disco el 31 de agosto de 1954.

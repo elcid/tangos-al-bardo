@@ -8,7 +8,7 @@ tags: ["Horacio Salgán"]
 
 en el Prólogo de su "Curso de Tango" 2001:
 
-![Horacio Salgán en la opinión de sus colegas](https://www.clarin.com/1999/03/23/HJ4WYChFVl_340x340.jpg)
+![Horacio Salgán en la opinión de sus colegas](/tangos-al-bardo/images/add5d081f0d9.jpg)
 
 *-**Escribir este Cusro de Tango es para mí una obligación y un gran placer.*
 

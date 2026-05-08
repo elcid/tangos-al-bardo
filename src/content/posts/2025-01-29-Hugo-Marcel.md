@@ -6,7 +6,7 @@ labels: ""
 tags: ["Leopoldo Federico", "Osvaldo Fresedo", "Carlos Di Sarli", "Cátulo Castillo", "Roberto Rufino", "Miguel Caló", "Charlo"]
 ---
 
-![Hugo Marcel](https://www.magicasruinas.com.ar/revistero/argentina/hugomarcel.jpg)
+![Hugo Marcel](/tangos-al-bardo/images/4a7a0653aa3d.jpg)
 
 **CARNET DE SU ARTISTA PREFERID**O
 

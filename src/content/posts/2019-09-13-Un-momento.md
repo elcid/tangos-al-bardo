@@ -13,7 +13,7 @@ En algunos de estos temas compartió la parte musical con su gran amigo-hermano 
 Al respecto vale la pena personalizarlo en lo que Chupita Stamponi le decía a mi amigo, *el alemán* Jorge Gottling:
 -*Hay frases musicales tristes, frases de felicidad, frases ambiguas de simple unión o amalgama. El vocabulario, la intención, el idioma poético debe estar montado correctamente sobre cada frase musical. Esa es la magia.*
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg-mlL3KGwl7MhBoSSHKwkpAVR6XP6x2YEyEhfnRHIAWXDELLw-fG2QXs68b7_aH9LXF-N844rzEsu-ITrSAz6eBOt6gCcEDViQAqutpTHSaQWPYQSu7atyUZz8xuzskiOtP5lOMlnSF0FI/s1600/Con+stamponi.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg-mlL3KGwl7MhBoSSHKwkpAVR6XP6x2YEyEhfnRHIAWXDELLw-fG2QXs68b7_aH9LXF-N844rzEsu-ITrSAz6eBOt6gCcEDViQAqutpTHSaQWPYQSu7atyUZz8xuzskiOtP5lOMlnSF0FI/s1600/Con+stamponi.jpg) Acá estoy con Chupita Stamponi en Madrid en 1996
+ [![](/tangos-al-bardo/images/97f3880d6cac.jpg)](/tangos-al-bardo/images/97f3880d6cac.jpg) Acá estoy con Chupita Stamponi en Madrid en 1996
 ¡Y tan mágico!. Cuando estuvimos charlando, en una oportunidad que Stamponi estuvo en Madrid, le hablé, entre otros temas de **Un momento** y de la sorpresa al comprobar que podía escribir semejantes versos. A la vez, tiré un poco el anzuelo para saber si era una historia personal. Y Chupita, me miró, hizo un gesto , encogiéndose de hombros y desvió la pelota al corner:
 *-Es... un momento..*. -respondió.
 
@@ -33,7 +33,7 @@ fatal...
 
 ¿Tal vez la historia del desamor que padeciera su amigo y compañero de páginas geniales, Homero Expósito, le sirviera de idea para escribir semejantes versos y ponerle música? Lo cierto es que este manantial de estribaciones amorosas, con todo el cromatismo que lo dibuja, sugiriendo la atmósfera, le sirve para demostrar la capacidad alegórica del padecimento en imágenes poéticas.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhctoefoP8ahI0hPDpIX4nnxGON4iRz-o4L5_EOK5MxCfhpugxOxWUJoALD0eBIq4U63wrMRmrrL5f1ZGQCyF418YovvV-R9DeChVx1EIRRWqsfLNhzqRglQd45pQQ8DjA6qbP_ALFeqQr6/s200/Z320.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhctoefoP8ahI0hPDpIX4nnxGON4iRz-o4L5_EOK5MxCfhpugxOxWUJoALD0eBIq4U63wrMRmrrL5f1ZGQCyF418YovvV-R9DeChVx1EIRRWqsfLNhzqRglQd45pQQ8DjA6qbP_ALFeqQr6/s1600/Z320.jpg)Y otra vez junto al río, muy juntos.
+[![](/tangos-al-bardo/images/79aa8a1dbf55.jpg)](/tangos-al-bardo/images/da310a728d66.jpg)Y otra vez junto al río, muy juntos.
 tu boca y mi boca, tu pelo y mi pelo
 y la luna, tu luna, mi luna,
 que ayer nos vestía, hoy tiende su velo.

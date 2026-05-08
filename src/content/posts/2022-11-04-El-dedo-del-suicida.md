@@ -10,7 +10,7 @@ El pobrecito Zanata era uno de esos hombres condenados al fracaso, un derrotado 
 
 La vida le había cambiado los guantes: el de la mano izquierda tenía que usarlo en la derecha y el de la derecha en la izquierda. ¡Siempre le sobraba un dedo! Por eso ¡todo le salía mal!... Hay muchos hombres así, que llevan "la contra" en la sangre: hombres que si instalan una lechería, las vacas dejan de dar leche.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjQ9KLhEvhIFUbyUfk5Cz8qbxk6D6B_BD94X6fp9OayDBaU1vgLNYLwrDsGUC9sPh2JqDtwzkmlzPZX71DKxSewkeB0qSYfwj_-FXmssZH_QqSR3tb8WO6xeAGgjyfpNLsgYcylqqYFVGbWNK4MFjl5Q8a6srEbkFsPMDvQXC79sB_JQWMDPXT7OsFkFA/w318-h400/iFACIOmages.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjQ9KLhEvhIFUbyUfk5Cz8qbxk6D6B_BD94X6fp9OayDBaU1vgLNYLwrDsGUC9sPh2JqDtwzkmlzPZX71DKxSewkeB0qSYfwj_-FXmssZH_QqSR3tb8WO6xeAGgjyfpNLsgYcylqqYFVGbWNK4MFjl5Q8a6srEbkFsPMDvQXC79sB_JQWMDPXT7OsFkFA/s252/iFACIOmages.jpg)Facio Hebequer, gran artista de la pintura
+[![](/tangos-al-bardo/images/8c8fd8acad20.jpg)](/tangos-al-bardo/images/6e37b30c1899.jpg)Facio Hebequer, gran artista de la pintura
 
 Frecuentaba nuestra bohemia donde, si bien el aire no era muy limpio, se hablaba de arte, de música, de pintura, de poesía... , de todas esas cosas en las que Zanata había fracasado o "zanateado", como decíamos nosotros.
 
@@ -26,7 +26,7 @@ Zanata se pasaba doce horas detrás de un mostrador, pero con el cuerpo, nada m�
 
 No sé si ella le correspondía, no sé cómo hacían para entenderse (si es que se entendían); no sé nada. Pero todos nosotros presentimos el drama... ¿Cómo decírselo?... A un hombre se le pueden aconsejar muchas cosas: que deje el cigarrillo, que no beba, que no juegue... Son consejos que no sirven para nada, pero que pueden darse...
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgH9tAhLIf4AulHGWBKnnxEZhmPhFza-8ktVLNfoX8nc4w5lQdYWbhe7Y_1l_QeIEuSFBtb9CNMUMS8SDNZrm_yI1EJJQ7WKF0yZ2BoIgVNw2vZUMBWT4CNa1ngMMcY-pZ9TmtTT16YW-jI2qFxWaw4lPOFBrcKXn2QXLgUfvKuCyE6Gg4LnFvaTQ8AnQ/w400-h301/FACIO-HEBEQUER_Guillermo-Foto-3-300x226.png)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgH9tAhLIf4AulHGWBKnnxEZhmPhFza-8ktVLNfoX8nc4w5lQdYWbhe7Y_1l_QeIEuSFBtb9CNMUMS8SDNZrm_yI1EJJQ7WKF0yZ2BoIgVNw2vZUMBWT4CNa1ngMMcY-pZ9TmtTT16YW-jI2qFxWaw4lPOFBrcKXn2QXLgUfvKuCyE6Gg4LnFvaTQ8AnQ/s300/FACIO-HEBEQUER_Guillermo-Foto-3-300x226.png)Una de las tantas reuniones en el atelier de Facio Hebequer
+[![](/tangos-al-bardo/images/fb638e4e7e5f.png)](/tangos-al-bardo/images/3b58a5d9c330.png)Una de las tantas reuniones en el atelier de Facio Hebequer
 
 ¿Pero cómo decirle a un hombre que no se enamore de tal o cual mujer? Es lo mismo que aconsejarle que se cambie el color de los ojos... ¡Imposible!... Lo vimos..., mire: lo vimos revolverse como una fiera...
 

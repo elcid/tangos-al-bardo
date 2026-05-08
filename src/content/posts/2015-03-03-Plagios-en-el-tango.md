@@ -24,7 +24,7 @@ En su día ya traté en este Blog, el caso de *Comme il faut *(1918) de Eduardo 
 
  Podría hablar un rato largo de estas cuestiones que suelen ocurrir en todos los géneros, especialmente en la etapa iniciática, pero hoy traigo estos ejemplos a la palestra para que jueguen a comparar y a descubrir esas semejanzas que señalara Aiello.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh6CKHYOYAV03iim5odLTMSPhml9euSwo3ZxUwgn4BGyfOmEPJds0Et_MTVDyyQgDoa1STNhwhNjQBHNHIE6AafXb8uyE6V7iDfkrOXHCMsRgMwKlesLwU2RW6hGL5ks2XttXK212XfwHg/s1600/Comparsa_Criolla.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh6CKHYOYAV03iim5odLTMSPhml9euSwo3ZxUwgn4BGyfOmEPJds0Et_MTVDyyQgDoa1STNhwhNjQBHNHIE6AafXb8uyE6V7iDfkrOXHCMsRgMwKlesLwU2RW6hGL5ks2XttXK212XfwHg/s1600/Comparsa_Criolla.jpg)Y les pongo un par de ejemplos para que afinen la oreja: En este caso les dejo **Viejo smoking**, de Guillermo Barbieri y Enrique Cadícamo, por la orquesta de Juan Maglio *Pacho*, grabado en 1930. Y **Te aconsejo que me olvides**, de Pedro Maffia y Jorge Curi, registrado por la orquesta de Francisco Lomuto en 1928, ambos temas en versión instrumental.
+[![](/tangos-al-bardo/images/55cc1306d7be.jpg)](/tangos-al-bardo/images/55cc1306d7be.jpg)Y les pongo un par de ejemplos para que afinen la oreja: En este caso les dejo **Viejo smoking**, de Guillermo Barbieri y Enrique Cadícamo, por la orquesta de Juan Maglio *Pacho*, grabado en 1930. Y **Te aconsejo que me olvides**, de Pedro Maffia y Jorge Curi, registrado por la orquesta de Francisco Lomuto en 1928, ambos temas en versión instrumental.
 
 [19- Viejo smoking- Juan Maglio *Pacho*](http://1drv.ms/1zDGqb4)
 

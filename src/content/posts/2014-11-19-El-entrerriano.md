@@ -14,7 +14,7 @@ El propio Mendizábal lo estrenó con el piano en la casita de María la vasca (
 
 Porque la anécdota dice que Rosendo estaba tocando una noche en que se festejaba el éxito de un pingo en Palermo y varios de los agraciados, incluidos jockeys y cuidadores, concurrieron esa madrugada a la casa de María la vasca, donde se bailaba y se tomaban copas. Y fue allí donde Rosendo estrenó su tango que no tenía título. Finalmente la misma vasca aconsejó que se lo dedicara a un señor de la provincia de entre Ríos, apellidado Segovia y admirador de Mendizábal. Y por eso lleva dicho título, que el aludido agradeció con una suculenta propina para el músico.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh7e7he-zIr8sYiQBIAZC8VeHaGWCu5151FE_-y1R5c8mb8CIQBgdGjU8aRkHKMcCKhrKXdaMmmQFKShL4UJGew3WD5Nl26a8xhZXgBDhnz7VzhtwpsJceibebVVUkLYhQ1Wnjekj0CC0A/s1600/rosendo+mendizabal.gif)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh7e7he-zIr8sYiQBIAZC8VeHaGWCu5151FE_-y1R5c8mb8CIQBgdGjU8aRkHKMcCKhrKXdaMmmQFKShL4UJGew3WD5Nl26a8xhZXgBDhnz7VzhtwpsJceibebVVUkLYhQ1Wnjekj0CC0A/s1600/rosendo+mendizabal.gif) Rosendo Mendizábal
+ [![](/tangos-al-bardo/images/35d7b5e16317.gif)](/tangos-al-bardo/images/35d7b5e16317.gif) Rosendo Mendizábal
 
 Por eso la letra que creó Expósito, pinta aquel ambiente y aquellas noches de tango y parranda.
 

@@ -15,4 +15,4 @@ Dos grosos juntos produciendo algo groso.
  [**
 **](http://www.blogger.com/goog_117037860)  [**Nubes de humo.mp3**](http://www.mediafire.com/?kdci25tm7r44je4)
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjKqfqgWNh1sYR6xGI8cE9WwyEkByvNvirUHxLdo3uHqfGT57yKbx-vttDOMyAgU1hcti-trcLbJ8X8zq2CnTs4JP-JAZZYx4xjfvZTaZE0eRDRqyAjewi0Zhn6TXue1soCH7GGu_b9WFz9/s320/Di+Sarli.bmp)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjKqfqgWNh1sYR6xGI8cE9WwyEkByvNvirUHxLdo3uHqfGT57yKbx-vttDOMyAgU1hcti-trcLbJ8X8zq2CnTs4JP-JAZZYx4xjfvZTaZE0eRDRqyAjewi0Zhn6TXue1soCH7GGu_b9WFz9/s1600/Di+Sarli.bmp)** **
+[![](/tangos-al-bardo/images/21854a03ed70.bmp)](/tangos-al-bardo/images/6a100b4efa8f.bmp)** **

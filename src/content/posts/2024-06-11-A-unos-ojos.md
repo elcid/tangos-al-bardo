@@ -8,7 +8,7 @@ tags: ["Edmundo Rivero"]
 
 Calos Montbrun Ocampo dejó su Albardón natal (Provincia de San Juan) y junto a su amigo Hernán Videla Flores, también de Albardón, viajaron a Buenos Aires donde formaron el dúo Ocampo -Flores. Este dúo tuvo mucho éxito, grabó para el sello Odeón y actuó en las principales radios del país. Después de 10 años de gran éxito se separan.
 
-![EL DANDY DEL FOLK CUYANO - La Melesca](https://www.lamelesca.com.ar/wp-content/uploads/2017/10/Carlos_Montbrun_Ocampo_G.jpg)Montbrun Ocampo, "El Dandy"
+![EL DANDY DEL FOLK CUYANO - La Melesca](/tangos-al-bardo/images/68577804d9a2.jpg)Montbrun Ocampo, "El Dandy"
 .
 
 Y Montbrun Ocampo comenzó a producir el reconocido programa radial *Las Alegres Fiestas Gauchas*, uno de los sucesos artísticos más importantes de la radiofonía y del teatro argentino, desde LR4 Radio Splendid de Buenos Aires con su cadena de emisoras en casi todas las provincias. Un dato curioso es que el dúo se llamaba Ocampo-Flores pero sus integrantes tenían como primer apellido Montbrun y Videla..

@@ -27,7 +27,7 @@ A la derecha está la sección de cuerdas y el micrófono de su grupo está vola
 
 Jens Ingo
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgR1kH-f_CYAA8w5dO_tS3n-gfDPz7gGvy1ZNVzsN_oi_n06H0xI-koK6OMw5NM7xvBzAtrnW5qMg5rKXvC25XYxsnv6OdemabmG7FDUdtU2BjYLP7ELlR5s8fPNuFnsXtmMjJmXY3s4kN1/s400/DICapture-du-2016-02-05-22-06-56-1.png)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgR1kH-f_CYAA8w5dO_tS3n-gfDPz7gGvy1ZNVzsN_oi_n06H0xI-koK6OMw5NM7xvBzAtrnW5qMg5rKXvC25XYxsnv6OdemabmG7FDUdtU2BjYLP7ELlR5s8fPNuFnsXtmMjJmXY3s4kN1/s1600/DICapture-du-2016-02-05-22-06-56-1.png)  Adelante: Libertella, Plaza y Vardaro. detrás de Vardaro está Galé y al fondo Ledesma.
+ [![](/tangos-al-bardo/images/8f8af38b6c87.png)](/tangos-al-bardo/images/45a328e508c7.png)  Adelante: Libertella, Plaza y Vardaro. detrás de Vardaro está Galé y al fondo Ledesma.
 
 Me parece muy ilustrativo y sumamente interesante el análisis del disco yde la imagen de la contraportada que hace Jens Ingo, y por eso lo traigo al blog. Como complemento del mismo, confirmo que la foto de la orquesta pertenece a la grabación que hiciera Di Sarli con su orquesta, el 3 de febrero de 1956.
 

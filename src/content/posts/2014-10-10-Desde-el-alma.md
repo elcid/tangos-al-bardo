@@ -10,13 +10,13 @@ Página emblemática dentro del vademécum tanguero, este valsecito fue creado p
 
 Rosa era la menor de los hijos y de pequeña sintió una gran atracción por la música. Tocaba el piano de oído a los cuatro años, hasta que la llevaron a estudiar y se recibió de profesora de piano y luego concertista en el Conservatorio Thibaud-Piazzini, con medalla de oro. Nunca dejó de estudiar piano, compaginándolo con el colegio primario.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgzbRNgZhe1YXBYRXw81TbWWuyIcUdAFp77jyXZu_MoH9gOzHv-G_4hlSjtYnRlH2S1bJU0FRqwtRNnXI18iGfmOEdmKFzM9mNCejL0VkaHVb1fZ9wChRwjPPFtkneh8FpYspAjwBbnrXY/s1600/Rosa.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgzbRNgZhe1YXBYRXw81TbWWuyIcUdAFp77jyXZu_MoH9gOzHv-G_4hlSjtYnRlH2S1bJU0FRqwtRNnXI18iGfmOEdmKFzM9mNCejL0VkaHVb1fZ9wChRwjPPFtkneh8FpYspAjwBbnrXY/s1600/Rosa.jpg)
+[![](/tangos-al-bardo/images/c7e8997cc87d.jpg)](/tangos-al-bardo/images/c7e8997cc87d.jpg)
 
 Escribió numerosas piezas, pero a los 14 años, compuso ese Vals Boston, romántico, pegadizo, que entraría en la historia del género, relegando a la infinidad de piezas que compondría a lo largo de su vida con el nombre artístico de Rosita Melo. En 1922 contrajo Matrimonio con Víctor Piuma Vélez, poeta y escritor, que le puso letra a todas las composiciones de Rosa. Aunque, curiosamente, la única que trascendió fue la primera de ellas, ese valsecito juvenil que sigue vigente en todo el mundo.
 
 La primera letra del vals la escribió Piuma, pero tampoco tuvo recorrido. Fue en 1948, cuando Homero Manzi la llamó por teléfono a su domicilio del Bajo Flores, para pedirle que pusieran conjuntamente unos nuevos versos al valsecito, que cantaría Hugo del Carril en la película *Pobre mi madre querida*, donde intervenían la actriz italiana Emma Gramática, el citado Hugo y Aída Luz, entre otros. Esta nueva letra fue firmada por Manzi y Piuma, pero evidentemente está el estro de Homero en esas líneas que pasarían a la historia a partir de dicha fecha.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiK7GpALinEmaQHDcX2RpuklqLz4ZfENX5JskvAgfRVfj8WK8kvmmN-_PJrMDljXO7lplaVfztz4faccX1g2SrZIQEVlzvUWJWqhgpOMCGbFPhmOnt3HNQn3TWpKkf9xJarSfzyYiebUw0/s1600/Desde_el_alma_tapa.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiK7GpALinEmaQHDcX2RpuklqLz4ZfENX5JskvAgfRVfj8WK8kvmmN-_PJrMDljXO7lplaVfztz4faccX1g2SrZIQEVlzvUWJWqhgpOMCGbFPhmOnt3HNQn3TWpKkf9xJarSfzyYiebUw0/s1600/Desde_el_alma_tapa.jpg)
+[![](/tangos-al-bardo/images/0f1516f43d4b.jpg)](/tangos-al-bardo/images/0f1516f43d4b.jpg)
 
 Lo cierto es que Roberto Firpo tuvo también una porción de mérito grande en la trascendencia del valsecito, porque lo transformó en el pentagrama dándole un aire inconfundible a vals porteño y así lo grabó con su orquesta abriéndole camino a la fama.
 

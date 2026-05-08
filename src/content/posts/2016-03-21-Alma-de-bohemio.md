@@ -54,9 +54,9 @@ quiere acariciar
 y como una flor
 perfumar.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj65vCrbkr31uDt09GmR-lj1JAPdKYCghKEMxBbgHkBXMCUwnfeiISZgYp8Csb8g5ob13kAlt7G-dGzFIidt5lzPt-q_ZinIAysBi6t0ySvWcCZTpr0PZWXX8HduM7mDgC5y7jJqX_R2amf/s320/Alma+de+bohemio1.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj65vCrbkr31uDt09GmR-lj1JAPdKYCghKEMxBbgHkBXMCUwnfeiISZgYp8Csb8g5ob13kAlt7G-dGzFIidt5lzPt-q_ZinIAysBi6t0ySvWcCZTpr0PZWXX8HduM7mDgC5y7jJqX_R2amf/s1600/Alma+de+bohemio1.jpg)Juan Andrés Caruso sufrió el final de su enfermedad a los 41 años, en el Hospital Fernández, acompañado de su amigos Alberto Vaccarezza y Enrique Muiño, e incluso de su esposa a quien le dijo unas amargas palabras de despedida.
+[![](/tangos-al-bardo/images/294a1132a033.jpg)](/tangos-al-bardo/images/ac128bfd9cfa.jpg)Juan Andrés Caruso sufrió el final de su enfermedad a los 41 años, en el Hospital Fernández, acompañado de su amigos Alberto Vaccarezza y Enrique Muiño, e incluso de su esposa a quien le dijo unas amargas palabras de despedida.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg8KFDHQoQCL_T9M95oAJL-og0Io95s7j-882m5wHlAiMSCkinNZ9V0uL6jkH_P7zFkF8RJAr7PefbLuMx_250ACOW33gsDaq0kpdTAYPzI7Bx5EgzP5674IIjkJg3btZIthlIfHsKi6Qn_/s1600/ALMA.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg8KFDHQoQCL_T9M95oAJL-og0Io95s7j-882m5wHlAiMSCkinNZ9V0uL6jkH_P7zFkF8RJAr7PefbLuMx_250ACOW33gsDaq0kpdTAYPzI7Bx5EgzP5674IIjkJg3btZIthlIfHsKi6Qn_/s1600/ALMA.jpg)
+[![](/tangos-al-bardo/images/867fb4841729.jpg)](/tangos-al-bardo/images/867fb4841729.jpg)
 Su tango **Alma de bohemio** fue cantado entre otros por Ada Falcón, Teófilo Ibáñez, Alberto Castillo, Lucho Gatica, Osvaldo Ribó, Nelly Vázquez, Tino García, Alberto Gómez, Ignacio Corsini, pero fue el caballito de batalla de Alberto Podestá, que lo comenzó a grabar en la orquesta de Pedro Laurenz y siguió entonándolo toda su vida con varios acompañamientos, deleitándose con la extensión de su voz, en varios pasajes del mismo.
 
 Yo lo traigo, precisamente, por la orquesta de Pedro Laurenz cantando Alberto Podestá. Tema grabado el 15 de julio de 1943.

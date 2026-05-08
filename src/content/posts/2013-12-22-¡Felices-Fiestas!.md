@@ -10,8 +10,8 @@ A todos los queridos amigos y amigas que visitaron **Tangos al bardo** durante t
 
 NAVIDAD (tango)
 
-[](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgyrm22Ta1wES0htRegcO7xNJcXd60y9cBeZ-kyzJsJcHSIYGWESbj8rBIbIWPCII8e0bx7ZaaFQjg5MoPcGheDdjUNiZpBVet0sh9sutCOVdGRtER65J4f9uUG3pG4HDniJadxWTiY2Bk/s1600/San+Pugliese.jpg)
- [](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgyrm22Ta1wES0htRegcO7xNJcXd60y9cBeZ-kyzJsJcHSIYGWESbj8rBIbIWPCII8e0bx7ZaaFQjg5MoPcGheDdjUNiZpBVet0sh9sutCOVdGRtER65J4f9uUG3pG4HDniJadxWTiY2Bk/s1600/San+Pugliese.jpg)
+[](/tangos-al-bardo/images/8710894e5aca.jpg)
+ [](/tangos-al-bardo/images/8710894e5aca.jpg)
 Navidad, en la casa de mis padres
 canción de Nochebuena
 y escuchando en el patio con malvones

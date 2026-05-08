@@ -10,7 +10,7 @@ Este tango de Cátulo Castillo y Sebastián Piana (dos grosos muy grosos del tan
 
 He contado alguna vez que compartí mesa con ella, cuando ambos trabajábamos en la editorial Perfil. Yo era Jefe de redacción en una revista deportiva y ella escribía su página en una revista, que era especial para damas y traía información de todo tipo para ellas, con firmas destacadas. Fui a tomar un café al Bar-restaurante de la Editorial, en un descanso y ella estaba sentada en una mesa sola.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi-wH2L2KtGZ9wBgfodKaexfwuyNJUefBVXs7SK9ryortEuUriH8OxsXFChgRQDzMdCYQLelFCrCUfiSHRbzl2VIRJlXGVXN3OX1LCxQEFUKjPfUWxk8Q2rIjYf6muY_Iap5Gt0uxwmyD7a3YMGv-fPu4DXPRbRrnFnl2Kxot7GbKbFvVUdZbX78lmp0LZ8/w232-h320/Titaimages%20(21).jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi-wH2L2KtGZ9wBgfodKaexfwuyNJUefBVXs7SK9ryortEuUriH8OxsXFChgRQDzMdCYQLelFCrCUfiSHRbzl2VIRJlXGVXN3OX1LCxQEFUKjPfUWxk8Q2rIjYf6muY_Iap5Gt0uxwmyD7a3YMGv-fPu4DXPRbRrnFnl2Kxot7GbKbFvVUdZbX78lmp0LZ8/s264/Titaimages%20(21).jpg)Laura Ana Merello
+[![](/tangos-al-bardo/images/b78acf11904f.jpg).jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi-wH2L2KtGZ9wBgfodKaexfwuyNJUefBVXs7SK9ryortEuUriH8OxsXFChgRQDzMdCYQLelFCrCUfiSHRbzl2VIRJlXGVXN3OX1LCxQEFUKjPfUWxk8Q2rIjYf6muY_Iap5Gt0uxwmyD7a3YMGv-fPu4DXPRbRrnFnl2Kxot7GbKbFvVUdZbX78lmp0LZ8/s264/Titaimages%20(21).jpg)Laura Ana Merello
 
 La saludé, me saludó y como en ese momento éramos los dos únicos parroquianos , me dijo: *"Sentate aquí... si querés...*". Por supuesto, acepté la invitación, charlamos de nuestras ocupaciones y como yo la había visto en teatro y conocía sus registros con Canaro, le fui nombrando algunos de sus éxitos, que realmente eran pegadizos y exitosos.
 

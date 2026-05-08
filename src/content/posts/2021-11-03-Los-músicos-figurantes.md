@@ -18,7 +18,7 @@ Ricardo Malerba fingía tocar el bandoneón y terminaría aprendiéndolo y forma
 
 Oscar Zucchi, el gran historiador de los bandoneonistas, menciona el caso del violinista Juan Pecci, que integró la orquesta de Eduardo Bianco en Europa, ocupando un lugar en la fila de *fueyes*. Allí recibiría lecciones de Héctor María Artola y terminaría aprendiendo a tañer el instrumento. O Luis Zinkes, que estudió el violín y luego haría de figurante en el conjunto de Francisco Lomuto.
 
-[![](https://blogger.googleusercontent.com/img/a/AVvXsEgETKA4vxGnwgPS5V-Vzmu_AuRghj2OpL0UuDtPRoIVvL2fdQATJdgyXE1sGd9HKnK6xscKTOC40YVsp1AziLgVoTJEJUqH06-reLI8BK3T_PY9cBPsMYNtCU-Mj-WkpaJAzyAB7WMsAsr3zb2gESso1rRDMYfjhnNhZXJ3QcPrXUt6QS_NVnWDKTIc1Q)](https://blogger.googleusercontent.com/img/a/AVvXsEgETKA4vxGnwgPS5V-Vzmu_AuRghj2OpL0UuDtPRoIVvL2fdQATJdgyXE1sGd9HKnK6xscKTOC40YVsp1AziLgVoTJEJUqH06-reLI8BK3T_PY9cBPsMYNtCU-Mj-WkpaJAzyAB7WMsAsr3zb2gESso1rRDMYfjhnNhZXJ3QcPrXUt6QS_NVnWDKTIc1Q=s320)Juan Pecci entre Batistella y Gardel, en Niza
+[![](/tangos-al-bardo/images/3764c400eaf7.jpg)](/tangos-al-bardo/images/3764c400eaf7.jpg=s320)Juan Pecci entre Batistella y Gardel, en Niza
 
 Zinkes estaría en dicha orquesta junto a renombrados bandoneonistas como Daniel *Sardina* Álvarez, Américo Figola (Figazza), Haroldo Ferrero y Jorge Argentino Fernández. A Zinkes le denominaban *Cuchara*, y finalmente sería no sólo un fueye muy respetable, sino incluso hasta estribillista, grabando a dúo dos temas con Jorge Omar: La conga *Para Vigo me voy* y la ranchera *Argentina*.
 

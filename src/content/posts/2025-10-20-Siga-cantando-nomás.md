@@ -10,7 +10,7 @@ En 1985, esta milonga de Héctor Negro y Carmen Guzmán ganó el primer premio d
 
 Carmen Guzmán era mendocina, nació en 1925, aprendió de su hermano (compositor, músico y cantor con "Los Trovadores de Cuyo"), los rudimentos del acompañamiento, antes que éste falleciese prematuramente. Y comenzó su romance con el tango en 1944 participando de un concurso. En 1950 gana por primera vez un premio como compositora, con su tango "*Y ya no estás*".
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiXJ2KwJqEbJ4XvFpFUaQ_14FGZaGoy7NOZWh0Gk_Negs2lNsQ8BILGEYlJLRhLAJbUQYxpg89DxflpDAjajM9CmRBwRJmo9W8IVbzlpYZMXUg9gz8MJwDGoV8e37oBGuhSaevRvrW8SKwyWvUs3HIHEnv7pbk2sSVU9Kde6BLQR5CdLcei8Qc-USVSdzIv/s320/CARMEN%20GUZM%C3%81N%20%202001%20-%20Carnet%20de%20identidad%20Fo.JPG)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiXJ2KwJqEbJ4XvFpFUaQ_14FGZaGoy7NOZWh0Gk_Negs2lNsQ8BILGEYlJLRhLAJbUQYxpg89DxflpDAjajM9CmRBwRJmo9W8IVbzlpYZMXUg9gz8MJwDGoV8e37oBGuhSaevRvrW8SKwyWvUs3HIHEnv7pbk2sSVU9Kde6BLQR5CdLcei8Qc-USVSdzIv/s1250/CARMEN%20GUZM%C3%81N%20%202001%20-%20Carnet%20de%20identidad%20Fo.JPG)· (13 octubre 1925 - 17 mayo 2012)
+[![](/tangos-al-bardo/images/a66d5a0f6ea7.jpg)](/tangos-al-bardo/images/f1e563ae7965.jpg)· (13 octubre 1925 - 17 mayo 2012)
 
 En 1958 graba su primer disco para Philips y se radica en Buenos Aires con su canto y su guitarra, partiendo desde allí a recorrer todo el país y los países vecinos. Casada con otro brillante músico ("pianista, esposo y amigo", lo definiría ella), Pedro Belisario Pérez, comparten el el amor e infinidad de canciones creadas en sociedad, con el lifting que imponen la modernidad y el talento de ambos.
 

@@ -16,7 +16,7 @@ Era una suerte de místico porteño que concebía sus arreglos en el piano -su p
 
 En este sentido estuvo muy influenciado por los arreglos de Francisco De Caro, a quien admiraba profundamente, y la orquesta de su hermano Julio De Caro fue el espejo en el que se reflejaría luego, como Pugliese o Troilo, sus grandes amigos y compañeros de trabajo y de sueños, o su compinche bohemio Orlando Goñi, a quien le dedicó un tango hermoso.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh9-KdyUsAJyxz_QdkREwEMWdImK7MEQDMAS4oPAiMQPnK4djF9CxcLVATUkaa6vmvrjmlZCobvn4oXJZeEwagpyDwZRSHuG5IDgS7mwtm7tZKA8A8Qzgawvn35EVhObMLlrkwGO4gsAdQ6/s320/-alfredo-gobbi-sus-exitos-f-t-postal_MLA-O-3050964339_082012.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh9-KdyUsAJyxz_QdkREwEMWdImK7MEQDMAS4oPAiMQPnK4djF9CxcLVATUkaa6vmvrjmlZCobvn4oXJZeEwagpyDwZRSHuG5IDgS7mwtm7tZKA8A8Qzgawvn35EVhObMLlrkwGO4gsAdQ6/s1600/-alfredo-gobbi-sus-exitos-f-t-postal_MLA-O-3050964339_082012.jpg)Piazzolla decía que "*si pudiera volver a los '40 me gustaría hacerme amigo de Alfredo Gobbi, que fue mi ídolo. A su muerte yo escribí *Retrato de Alfredo Gobbi*. Su triste final me hizo mucho daño".*
+[![](/tangos-al-bardo/images/a05c08a33119.jpg)](/tangos-al-bardo/images/923311d75e4d.jpg)Piazzolla decía que "*si pudiera volver a los '40 me gustaría hacerme amigo de Alfredo Gobbi, que fue mi ídolo. A su muerte yo escribí *Retrato de Alfredo Gobbi*. Su triste final me hizo mucho daño".*
 
 Yo era un ternero y él me cobijó bajo su ala en aquellas noches de tango, bohemia y amigos.
 

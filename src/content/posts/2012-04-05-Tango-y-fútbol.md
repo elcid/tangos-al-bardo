@@ -12,7 +12,7 @@ El fútbol argentino y el tango han convivido fraternalmente por tratarse de dos
  Hoy me voy a dedicar a los dos rivales de Avellaneda: Independiente y Racing. Hay sendas páginas hermosas, de alta calidad milonguera, dedicadas a la “*Academia*” y a “*Los diablos rojos*”, que brillan en este espacio.
  Vicente Greco compuso el tango *Racing Club* en 1913. Agustín Bardi le cantó el retruco con *Independiente Club*, que realizó en 1923.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhyZTxoI7zSy94_GVVFURLXDGonw84qvM5CeKYK6IpimuAoddPlXLGxa3ITioahszKgCwt86ECp6yygaBwWko42hJeF5UcrcMe2_P5XDRZv861r7AV1JitYeW9foFILGp873bXeXnkCqwea/s1600/Independiente+Club.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhyZTxoI7zSy94_GVVFURLXDGonw84qvM5CeKYK6IpimuAoddPlXLGxa3ITioahszKgCwt86ECp6yygaBwWko42hJeF5UcrcMe2_P5XDRZv861r7AV1JitYeW9foFILGp873bXeXnkCqwea/s1600/Independiente+Club.jpg)
+ [![](/tangos-al-bardo/images/540e63b6703c.jpg)](/tangos-al-bardo/images/540e63b6703c.jpg)
 
 El primero de ellos es el más difundido. Firpo lo grabó en el mismo año 1913 y después hay bellos registros de Alfredo Gobbi, Carlos Di Sarli o Ángel D’Agostino, entre otros..
  Alfredo Gobbi también grabó *Independiente Club* el 8 de Septiembre de 1948.

@@ -14,7 +14,7 @@ Todos sus músicos y vocalistas recuerdan lo bien que cantaba Troilo, modulando 
 
 Y hoy quiero hacer hincapié en el milagro que realiza con Fiorentino. Porque así lo califico yo y también alguna gente importante. Es sabido que cuando Pichuco forma su primera orquesta, la idea era llevar como cantor a Antonio Rodríguez Lesende. Lo tenía entre ceja y ceja y era su obsesión, porque quería arrancar con un cantor que se adaptara a lo que él perseguía musicalmente. Y entendía que *el gallego* era justo lo que necesitaba para completar la formación que había planeado.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjDGB1X39C_Vl9BIbdHH3Zb44hslf2wmLWyAV1BwZc4Ls7CTv3w5EVZtHHFPqz7QjOFNfWteMjRD3bpR0DYMULANwhDGCm9GVG7emdAbOAau3m07tdiHZJT9XBz9iqAppdER7LK_gVRMUhG/w448-h640/Fiore98209361_4225692427440958_4130221077898985472_o.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjDGB1X39C_Vl9BIbdHH3Zb44hslf2wmLWyAV1BwZc4Ls7CTv3w5EVZtHHFPqz7QjOFNfWteMjRD3bpR0DYMULANwhDGCm9GVG7emdAbOAau3m07tdiHZJT9XBz9iqAppdER7LK_gVRMUhG/s960/Fiore98209361_4225692427440958_4130221077898985472_o.jpg)Aníbal Troilo y Fiorentino escuchando la reciente grabación
+[![](/tangos-al-bardo/images/1ed88142e84d.jpg)](/tangos-al-bardo/images/4b76487a52be.jpg)Aníbal Troilo y Fiorentino escuchando la reciente grabación
 
 Pero Rodríguez Lesende se excusó, habrá pensado en la novatez de Troilo y no aceptó la proposición. Se venía encima la fecha de arranque de la orquesta y Troilo habló con varios amigos del ambiente intercambió datos, no encontraba la solución y escogió a Fiorentino como solución momentánea. Se conocían, eran amigos, pero el flamante director no terminaba de convencerse de las posibilidades del cantor, elegido un tanto por la premura de la situación.
 
@@ -22,7 +22,7 @@ La historia dice que Fiore era bandoneonista, gracias al regalo de un fueye que 
 
 Con Juan Carlos Cobián dejó 10 grabaciones en 1928. Con D'Arienzo, en 1929, 10 registros, de ellos 4 a dúo con Enrique Carbel. Con Roberto Firpo 1.Con Pedro Maffia entre 1930/31 grabó 17 temas. Con la Típica Victor también llegó a grabar un tema. Pasó por otras orquestas como las de Roberto Zerrillo, Antonio Rodio, Malerba-Vaccaro, la Típica Melin en Rosario y otras. En 1931 viajó a Europa con la orquesta Fogelman-Gorrese. No tuvieron mayor trascendencia, anduvieron por varios países y en 1932 retornó a Buenos Aires.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh7XbmIAG26RLx_WS7H6JpEjnZm5nZffmXxZqMcSLPjQyEDSNQNHHhoXRwYbsteWB-72f9E4hkk8OkR2E5Dje9EO7zvL9XsgUE2YCZfWFYFZSyMfCslcLV33Nligt8Lg_oCrLTuOQBjU9c9/s320/Fiore+cuando+cantaba+con+Maffia.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh7XbmIAG26RLx_WS7H6JpEjnZm5nZffmXxZqMcSLPjQyEDSNQNHHhoXRwYbsteWB-72f9E4hkk8OkR2E5Dje9EO7zvL9XsgUE2YCZfWFYFZSyMfCslcLV33Nligt8Lg_oCrLTuOQBjU9c9/s960/Fiore+cuando+cantaba+con+Maffia.jpg)Fiore cuando cantaba con Maffia
+[![](/tangos-al-bardo/images/fe0d25ce1392.jpg)](/tangos-al-bardo/images/f7b32fc22a9a.jpg)Fiore cuando cantaba con Maffia
 
 Cuando Troilo decide convocarlo, Francisco Fiorentino iba a cumplir 33 años, mientras Pichuco contaba apenas con 24. El hecho de haber sido aprendiz de sastre, le ayudó a elegir y recomendar los trajes que debían utilizar los integrantes de la orquesta para salir bien jailaifes. Troilo siempre reconoció este detalle. Y lo asombroso del caso, es que después de toda la trayectoria que tenía a sus espaldas, con la orquesta de Pichuco comenzamos a descubrir a Fiorentino...
 
@@ -32,7 +32,7 @@ Troilo contaba como transpiraba, se trabucaba, no encajaba bien las estrofas. Sa
 
 Podríamos decir que acababa de nacer el Fiorentino que se consagraría como cantor. Además, sólo con su apellido y sin nombre, caso inusual en el tango. El Fiore que creó Pichuco. El que no tenía nada que ver con el estribillista anterior. El Fiorentino que nos sigue encantando cuando lo escuchamos o lo bailamos. El que entre marzo del 41 y el mismo mes de 1944 dejó 60 registros discográficos con aquella orquesta milonguera al mango.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj7kbm1ZSBKZEwHNk2HgvECHGSXK81Dr2pE9eJ2hnvOILYDxrypLBZ7FmAJ3le5uRCmXjxYoEIt9js4SagvOpDNuebgXGAfntLX4J3a0HEpNeenztoW5q3q3iANO2KaeRGqHI1FB4EiAZzs/w400-h264/Orlado-Go%25C3%25B1i-con-Troilo-y-Fiorentino.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj7kbm1ZSBKZEwHNk2HgvECHGSXK81Dr2pE9eJ2hnvOILYDxrypLBZ7FmAJ3le5uRCmXjxYoEIt9js4SagvOpDNuebgXGAfntLX4J3a0HEpNeenztoW5q3q3iANO2KaeRGqHI1FB4EiAZzs/s497/Orlado-Go%25C3%25B1i-con-Troilo-y-Fiorentino.jpg)Orlando Goñi y Troilo ensayando con Fiore y corrigiendo
+[![](/tangos-al-bardo/images/ad72276c750e.jpg)](/tangos-al-bardo/images/f0f9c77fda5d.jpg)Orlando Goñi y Troilo ensayando con Fiore y corrigiendo
 
 Ni antes ni después alcanzó al Fiore de Troilo, que le puso su orquesta a disposición, le armó un repertorio ideal para su gola y lo encumbró para siempre, aunque se fue desdibujando paulatinamente hasta su fallecimiento en aquel accidente fatal de Mendoza. Estuve en SADAIC, en su velatorio. Y sigo siendo fiel a esos 60 grabaciones que nos empujan en la milonga.
 

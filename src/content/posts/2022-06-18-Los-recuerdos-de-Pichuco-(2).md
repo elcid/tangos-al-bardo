@@ -26,7 +26,7 @@ En el inolvidable Palermo Palace, de Godoy Cruz y la avenida Santa Fe tuve la fo
 
 Homero Manzi fue un poeta de la gran siete. Admiré a Discépolo, porque captó la ironía y la maldad de la gente, pero lo hizo con cariño. A Cátulo Castillo porque sigue la línea de Manzi sin imitarlo para nada. Yo toco como aprendí de Maffia, pero nunca lo imité... Lo de Cátulo es lo mismo. Sigue una guía, un faro... Y también tengo que nombrar a Homero Expósito, un frustrado por la época, cansado de oír estupideces. Tiene un talento extraordinario. Otro que es único es Julián Centeya. Y estas palabras no acreditan su bohemia... Bohemia que no me desagrada pero que siempre luchó en contra de él porque le quitó tiempo para hacer más cosas por el pueblo.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj9ZFAsFRkvYQSYza86t2eJpVjlhaY3cyHMxk0lhZ61xZVyZezay9cO916IO4-PIJgRUtXNPQ5pOqepREi8bJ7qdU6gchQFUXK7XwigDdg4ogT6iUZTz6zz0M24rSUtI2t0lDWbZfoFH3KmKOeteZbmEIB-yQrzSRCMnC4LyypEMqbyyT4t14tSjwUZ1Q/w400-h288/PeronyTroilo-320-MAx.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj9ZFAsFRkvYQSYza86t2eJpVjlhaY3cyHMxk0lhZ61xZVyZezay9cO916IO4-PIJgRUtXNPQ5pOqepREi8bJ7qdU6gchQFUXK7XwigDdg4ogT6iUZTz6zz0M24rSUtI2t0lDWbZfoFH3KmKOeteZbmEIB-yQrzSRCMnC4LyypEMqbyyT4t14tSjwUZ1Q/s320/PeronyTroilo-320-MAx.jpg)Perón, Troilo y Raúl Apold en 1954. Cuando se hizo "El Patio de la morocha".
+[![](/tangos-al-bardo/images/e5abe3d06931.jpg)](/tangos-al-bardo/images/df1df12d0777.jpg)Perón, Troilo y Raúl Apold en 1954. Cuando se hizo "El Patio de la morocha".
 
 ** Perón**
 
@@ -40,7 +40,7 @@ En la calle Corrientes yo trabajé en dos lugares muy distintos: en el *Germinal
 
 Yo soy admirador de uno de los hombres más importantes que tuvo el tango, que fue Carlos Di Sarli. También me gustan Fresedo, Salgán, Pugliese... Me gustaba Alfredo Gobbi.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjDrvA1dKkh2E74BQGwt5ZL4EyFPYdt2oCueKax3wRliDoC1rN9MjMT8eKk19CwPdMpZnrolFXSfor3soFbf1Wmv5gDaOkAAk_Oj1peRekxZJuvoSSE5AFrBYM5Jp_lpjCQ_ylNnvbSQO5XYOLdDc9OF90rmyH-h89yyFHSTh6mhLSWDdaQnCREtge1Gg/w400-h297/Troilo-Di%20sarli-Rivero-%20Pepe%20Corriale.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjDrvA1dKkh2E74BQGwt5ZL4EyFPYdt2oCueKax3wRliDoC1rN9MjMT8eKk19CwPdMpZnrolFXSfor3soFbf1Wmv5gDaOkAAk_Oj1peRekxZJuvoSSE5AFrBYM5Jp_lpjCQ_ylNnvbSQO5XYOLdDc9OF90rmyH-h89yyFHSTh6mhLSWDdaQnCREtge1Gg/s960/Troilo-Di%20sarli-Rivero-%20Pepe%20Corriale.jpg)Rivero, Troilo, Di Sarli, Pepe Corriale, presentados por Julio Jorge Nelson
+[![](/tangos-al-bardo/images/b665e05ea191.jpg)](/tangos-al-bardo/images/cc01717c0842.jpg)Rivero, Troilo, Di Sarli, Pepe Corriale, presentados por Julio Jorge Nelson
 
 ** Evolución**
 

@@ -10,7 +10,7 @@ Víctor Lomuto, calabrés, y Rosalía Narducci, napolitana, llegaron como tantos
 
 Entre los varones de la familia, Francisco fue el primogénito. El padre era peluquero y tocaba el violín de oído, por lo cual se anotó en algunos conjuntos de tango iniciáticos. La madre sabía música, consiguió comprar un piano a plazos y le dio clases a todos sus hijos. Algunos de ellos luego complementarían sus estudios con profesores especializados, en el Conservatorio Santa Cecilia.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjyjgqU9pKTqYEzYTr-w4z3mW9Q0XzEpSAvFUnrl-x5RBZN2PHMJDUjFu7ew97zVvlwRwwTChVowuTXZCPOlUwM56eKTFS7MPsY_HrqphZhuo8_hdlD3bhyphenhyphenRo9PwuqhnOj1o6obxRvzxFA/s1600/Enrique+Lomuto.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjyjgqU9pKTqYEzYTr-w4z3mW9Q0XzEpSAvFUnrl-x5RBZN2PHMJDUjFu7ew97zVvlwRwwTChVowuTXZCPOlUwM56eKTFS7MPsY_HrqphZhuo8_hdlD3bhyphenhyphenRo9PwuqhnOj1o6obxRvzxFA/s1600/Enrique+Lomuto.jpg) Enrique Lomuto
+ [![](/tangos-al-bardo/images/daa274b8569e.jpg)](/tangos-al-bardo/images/daa274b8569e.jpg) Enrique Lomuto
 Al morir tempranamente el progenitor, Francisco tuvo que salir con apenas 13 años, a buscar trabajo obligado a ayudar a la familia. Además, en los momentos libres trataba de colaborar con la sufrida madre -que cosía para la firma Gath & Chaves-, para orientar musicalmente a sus hermanos menores. Enrique, que tenía 13 años menos que Francisco tuvo siempre el ejemplo del mayor de los varones y siguió su camino como pianista.
 
 

@@ -9,7 +9,7 @@ tags: ["Alberto Podestá", "Pedro Laurenz"]
 *Sábado a la tarde, te planchás el traje, *
 *te cortás el pelo, después te afeitás,*
 *con bastante crema te hacés dar masajes.*
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgLHiZmvMD-Pi8OaV0HkY6mxv2yc7DYOWZtUCJ-1GkcE2zkSKy9FkcCim1sajQyTtlecozHb1Nh3TMaynPcdvvg1Owxc_q1POP5ASnFYcJKAgL_fxW-WRwcDInp4COjVIz8TpmsbYzANb8/s1600/D'Agostino-Vargas.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgLHiZmvMD-Pi8OaV0HkY6mxv2yc7DYOWZtUCJ-1GkcE2zkSKy9FkcCim1sajQyTtlecozHb1Nh3TMaynPcdvvg1Owxc_q1POP5ASnFYcJKAgL_fxW-WRwcDInp4COjVIz8TpmsbYzANb8/s1600/D'Agostino-Vargas.jpg)*gomina y colonia, luego te peinás. *
+[![](/tangos-al-bardo/images/bf7cd17a70b0.jpg)](/tangos-al-bardo/images/bf7cd17a70b0.jpg)*gomina y colonia, luego te peinás. *
 *
 * *Lista tu figura, llegada la noche,*
 *te vestís ligero después de cenar,*

@@ -9,7 +9,7 @@ Comencé con este Blog a fines de febrero de 2012 y antes de llegar a cumplir un
 
 Ello me llena de placer porque la familia del Tango es algo especial y hay lazos muy fuertes que nos unen y que vienen trasladados desde los ancestros.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjgAkDFYog6FiA-6EereoHZ6JPsIOCJp3HtTEx0Bx9Ebin8bWRU-E92wyEHFWKAT4YL2aZYHKCDn9Uo_V5ezC1fOGchoIJHJWJJkDa_1PAGOsoe1N8YV6LB6N9cGF4m4za9qjH0ss8cBQv9/s1600/Desde+el+alma_1.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjgAkDFYog6FiA-6EereoHZ6JPsIOCJp3HtTEx0Bx9Ebin8bWRU-E92wyEHFWKAT4YL2aZYHKCDn9Uo_V5ezC1fOGchoIJHJWJJkDa_1PAGOsoe1N8YV6LB6N9cGF4m4za9qjH0ss8cBQv9/s1600/Desde+el+alma_1.jpg)Quiero agradecer a todos los amigos que me han ayudado en la andadura y aunque en el repaso sucinto me deje algunos nombres en el tintero, que sepan que los tengo apilados en el cuore.
+[![](/tangos-al-bardo/images/9d77362957d9.jpg)](/tangos-al-bardo/images/9d77362957d9.jpg)Quiero agradecer a todos los amigos que me han ayudado en la andadura y aunque en el repaso sucinto me deje algunos nombres en el tintero, que sepan que los tengo apilados en el cuore.
 
 Al *gomía* Ricardo García Blaya y la barra fiel de *Todo tango*, a El Tango y sus invitados, a Héctor Palazzo, a Hugo Noé, a Eduardo Sibilin, a Roberto Mancini y su banda, y a todos los que han aportado su granito de arena a la difusión actual del tango y al repaso de su estructura arquitectal, les quiero hacer llegar mi reconocimiento profundo.
 
@@ -23,7 +23,7 @@ Vos no dés bola, qu’el número no es yeta,
 gambeteá como el Leo a los mufetas
 y los cuernitos apuntale al agorero.
 *
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiUQwIDEHawCP-d-QrO8tkNrDVnbtsukmgSvXYJA8r62tML2ty79mcl3SjjzReqqk5_noP9ITvKCQyqAoHL6Y_sUhMSUJWj5LRkIrmDRBsyV4UloFQP2YtLTZc-vbIdcXKOimF2DLEQwT47/s1600/El_trece.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiUQwIDEHawCP-d-QrO8tkNrDVnbtsukmgSvXYJA8r62tML2ty79mcl3SjjzReqqk5_noP9ITvKCQyqAoHL6Y_sUhMSUJWj5LRkIrmDRBsyV4UloFQP2YtLTZc-vbIdcXKOimF2DLEQwT47/s1600/El_trece.jpg)*Vivila de tefrén y sin complejos,
+[![](/tangos-al-bardo/images/ca2ddb2440f8.jpg)](/tangos-al-bardo/images/ca2ddb2440f8.jpg)*Vivila de tefrén y sin complejos,
 a los gratones haceles la mosqueta
 que salga pato o que salga gallareta,
 no podés caminar como el cangrejo.
@@ -37,7 +37,7 @@ que pa’vos el dos mil trece será un año
 redondo, como una gran bola de fraile.*
 JMO
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiChMiFwCmWDz9T13oIYn6sRqbMR8mD13GDdmAKbiznQ4CSt-4l1GkyRcRAOK6nlUTxZd2l6VAeNEs6kIq4_48Lwx8nWCMoyhZcPgK30XI3vu3x7D9JNwqXRHRbsQWYjaas-x7SJIIcN6SG/s1600/San+Pugliese+2.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiChMiFwCmWDz9T13oIYn6sRqbMR8mD13GDdmAKbiznQ4CSt-4l1GkyRcRAOK6nlUTxZd2l6VAeNEs6kIq4_48Lwx8nWCMoyhZcPgK30XI3vu3x7D9JNwqXRHRbsQWYjaas-x7SJIIcN6SG/s1600/San+Pugliese+2.jpg)
+[![](/tangos-al-bardo/images/72bffdd4905a.jpg)](/tangos-al-bardo/images/72bffdd4905a.jpg)
 
 Y no sólo va desde el cuore, sino incluso **Desde el alma**.
 

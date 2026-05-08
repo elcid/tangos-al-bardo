@@ -8,11 +8,11 @@ tags: ["Florindo Sassone", "Aníbal Troilo", "Alfredo Gobbi", "José Bragato", "
 
 Este tema involucra a dos grandes del tango. Por un lado a su autor, Argentino Liborio Galván, conocido en el ambiente como *El Indio* Galván. Nacido y criado musicalmente como violinista en Chivilcoy, un pueblo bonaerense situado en el centro-oeste de la Capital y a 170 kilómetros de la misma.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEicFonY-vRvZuCJsNhELfUqHRkuDvzh6_OBxdgZvyxAw9HSf3PJEP0BIZ5UCxseLbHKJGojP3dC99l6JpioPj_amtJUPtLE8xON2P9rqScsKlZjZ_YByPNOxUcXaZ6jZ3glKsy5V8poitY/s1600/AGalvan.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEicFonY-vRvZuCJsNhELfUqHRkuDvzh6_OBxdgZvyxAw9HSf3PJEP0BIZ5UCxseLbHKJGojP3dC99l6JpioPj_amtJUPtLE8xON2P9rqScsKlZjZ_YByPNOxUcXaZ6jZ3glKsy5V8poitY/s1600/AGalvan.jpg) Argentino Galván
+ [![](/tangos-al-bardo/images/4994f4c28ff6.jpg)](/tangos-al-bardo/images/4994f4c28ff6.jpg) Argentino Galván
 
 Por el otro nada menos que Elvino Vardaro, para muchos el mejor violinista que ha tenido el tango, y a cuya lista me adhiero. Vardarito fue un niño prodigio y pudo haber sido un músico clásico, como lo fue en su etapa final en la provincia de Córdoba. Pero lo atrapó, felizmente, el tango y militó en numerosas orquestas, además de dirigir la suya propia, esa inolvidable: Vardaro-Pugliese.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiiwEYlQXmqmLQzngLdGduWzXnIitoiFIcPHWlLLxRHfTU5C-7Zwehh3xKpRbrkXcH_0IOE5rRbhwRKQnUe9eMlI1NHEW-AxpME8xfSh1SvhNK_wCD-Yloy-0KaeakVCIUF1uPtP-Jzv6o/s1600/Vardaro.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiiwEYlQXmqmLQzngLdGduWzXnIitoiFIcPHWlLLxRHfTU5C-7Zwehh3xKpRbrkXcH_0IOE5rRbhwRKQnUe9eMlI1NHEW-AxpME8xfSh1SvhNK_wCD-Yloy-0KaeakVCIUF1uPtP-Jzv6o/s1600/Vardaro.jpg) Elvino Vardaro en sus últimos años de actuación
+ [![](/tangos-al-bardo/images/2f1f9d7230e7.jpg)](/tangos-al-bardo/images/2f1f9d7230e7.jpg) Elvino Vardaro en sus últimos años de actuación
 
 A Galván lo descubrió Alfredo Gobbi en su pueblo durante unas actuaciones en 1931 y lo persuadió para que se radicara en la Capital, por todo lo que prometía su talento. Así lo hizo y comenzó como violinista de la orquesta de Florindo Sassone, convirtiéndose incluso en arreglador de la misma. Y aunque luego tendría la batuta de varias formaciones y acompañaría a numerosos cantantes, finalmente, el sesgo que lo llevó al éxito fue su enorme capacidad de arreglador.
 

@@ -26,7 +26,7 @@ fantasma febril que se aleja burlón.
 
 Precisamente, aquel alejamiento que despuebla su vida, mientras ambos viven en lugares lejanos uno del otro, y casados -años después- cada uno por su lado, ahonda el costado de tiniebla que inunda al poeta. Debido a ello salpicará de temas redundantes pero hermosos, el vademécum tanguero. Palabras que resabian, solitarias, la raigal belleza de la amada y su inexorable ausencia. El reclamo de la vida en la ciudad soñolienta retratándose con los deslumbramientos de la aventura ...
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjS7v0D9MqkvhPJX2TtmInQ0MiMRty5MEHRqyEvUpsNxy59jxIGMMYqURm595si4YLARVh1WLeyDEqbe2uHyNx-MpIDzYN0R5BI2zkikyAIIf_HaYJFKS6bAjEKY1CYk4ARZGwbcQfGTkhN/s400/GRGRI.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjS7v0D9MqkvhPJX2TtmInQ0MiMRty5MEHRqyEvUpsNxy59jxIGMMYqURm595si4YLARVh1WLeyDEqbe2uHyNx-MpIDzYN0R5BI2zkikyAIIf_HaYJFKS6bAjEKY1CYk4ARZGwbcQfGTkhN/s1600/GRGRI.jpg)
+ [![](/tangos-al-bardo/images/1867d50aff81.jpg)](/tangos-al-bardo/images/3fc4019196ca.jpg)
  La noche que te fuiste
 (más triste que ninguna)
 palideció la luna

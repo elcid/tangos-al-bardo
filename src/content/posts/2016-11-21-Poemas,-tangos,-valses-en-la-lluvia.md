@@ -28,7 +28,7 @@ Y porque en Madrid *llueve-yueve-shueve *desde el domingo a la matina y a va seg
 
 El farol epónimo alumbra.
 
-Al escuadronar las móviles siluetas   [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjD1Kxo8bVf8J0bKEYOad245aH-Oit0X4PtHv0Axf5_dP8r0aSHctNxoLW0ThXD3BZt1kFuk279eXifby2v1gvHqjqRH9fBaVmwpVpeKIGq6SaElgeqAzmCwn4TNe5wN7FwmkqyQmD_Oat6/s400/OK.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjD1Kxo8bVf8J0bKEYOad245aH-Oit0X4PtHv0Axf5_dP8r0aSHctNxoLW0ThXD3BZt1kFuk279eXifby2v1gvHqjqRH9fBaVmwpVpeKIGq6SaElgeqAzmCwn4TNe5wN7FwmkqyQmD_Oat6/s1600/OK.jpg)en el espacio mítico,  un laboratorio de alquimia existencial y emocional   poderoso, contubernal,   descubre el magma de la memoria,  y el nudo de los cuerpos devora la noche,
+Al escuadronar las móviles siluetas   [![](/tangos-al-bardo/images/3e700ddc3927.jpg)](/tangos-al-bardo/images/d3caed07c7c1.jpg)en el espacio mítico,  un laboratorio de alquimia existencial y emocional   poderoso, contubernal,   descubre el magma de la memoria,  y el nudo de los cuerpos devora la noche,
  decenas de vida se entrecruzan  de forma bellamente plástica,  cuando la música, vibrando femenina,   es la arcilla sobre la que se modela el acto coréutico   y tocados por una extraña sensación del abismo,  embriagados de vida  cosquilleando  con los énfasis necesarios del sentimiento personal   donde no existe el qué sin el cómo,  -celebrantes- bailan el eterno tango.
 y el aedo amplifica cantábiles melodías
  que abrevan en el agujero de la nostalgia   Y el afinado engranaje avienta su liturgia   en el viaje del bailarín a la libertad.
@@ -42,7 +42,7 @@ y el aedo amplifica cantábiles melodías
 
     **Nocheando** ** **
 
- Nochear  Con la luz de las estrellas  Iluminando destinos,   Sueños de amor infinito,  Franqueando sombras de vida  Con una insomne ilusión.   Nochear  [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh0TpZZxf2cuf8OyyfEayEsqeeb2j__vSxM78-uPNslp4HA-gLoWk33CJOiDe07SBiBuDl0cjayw1UGvMDsZfGEobNixWtZelQ6qa9UW5ZIzZuv63V1MgYEr7Ycpx7r8R9RBVJM_YkdAsvh/s320/OKA.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh0TpZZxf2cuf8OyyfEayEsqeeb2j__vSxM78-uPNslp4HA-gLoWk33CJOiDe07SBiBuDl0cjayw1UGvMDsZfGEobNixWtZelQ6qa9UW5ZIzZuv63V1MgYEr7Ycpx7r8R9RBVJM_YkdAsvh/s1600/OKA.jpg)Con la música de un tango  Llegando desde el recuerdo  Y hurgando, mágico, un tiempo   Hasta el fueye de Pichuco  Y el fiel compás de Don Juan
+ Nochear  Con la luz de las estrellas  Iluminando destinos,   Sueños de amor infinito,  Franqueando sombras de vida  Con una insomne ilusión.   Nochear  [![](/tangos-al-bardo/images/ef66e75e493f.jpg)](/tangos-al-bardo/images/7a992a19c666.jpg)Con la música de un tango  Llegando desde el recuerdo  Y hurgando, mágico, un tiempo   Hasta el fueye de Pichuco  Y el fiel compás de Don Juan
  En ese paisaje amigo   noctambuleando con vos  Royendo tus labios tiernos,  Envolviéndonos de olvidos  En la inanidad de nochear,  Es pactar con la aventura,  Con dulce avidez de amar,  Con vigilias, luz de luna  Y ese nudo de los cuerpos  Que enmarca la inmensidad.
  Nochear  Junto a nuestra amada en celo,  Abrazados, fantasiosos,  Desparramando piruetas  Imantados por la orquesta  Girando en tiempo de vals.  Nochear  Con los sentidos expuestos,  El umbral del alma un temblor,  Las ansias de las caricias,  Bajo la piel afiebrada Viboreando el corazón.
 

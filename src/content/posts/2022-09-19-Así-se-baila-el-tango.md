@@ -12,7 +12,7 @@ Hace unos años contaba Elías Randal (Elías Rubistein, el menor de cuatro herm
 
 -Un vecino del barrio (Elizardo Martínez Vilas), conocedor de que yo había compuesto algunos temas, me trajo un día una letra para que le pusiera música. Yo lo miré atentamente y le dije que ya lo haría.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgrxuovnbKDOuN40_92G0Qa31KT_ZZJyHgcqsGXRZr1xHWqeuyfR8bHPqhWxjcKjLj_EIw--ZhDdy29O3SABAF57kaaAblZfFhpTsCK_XXlfgE4I8lmFv6B46E8R5hb1V9ZxjudHVOv6IGV3gm1mZ88VawNLKrMR648DWyALB6hYuBdgqDnyNfDo1ZjPA/w144-h200/ELIAS%C3%ADndice.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgrxuovnbKDOuN40_92G0Qa31KT_ZZJyHgcqsGXRZr1xHWqeuyfR8bHPqhWxjcKjLj_EIw--ZhDdy29O3SABAF57kaaAblZfFhpTsCK_XXlfgE4I8lmFv6B46E8R5hb1V9ZxjudHVOv6IGV3gm1mZ88VawNLKrMR648DWyALB6hYuBdgqDnyNfDo1ZjPA/s208/ELIAS%C3%ADndice.jpg)Elías Randal
+[![](/tangos-al-bardo/images/94c9ac900715.jpg)](/tangos-al-bardo/images/f41db605ba44.jpg)Elías Randal
 
 A los pocos días me encuentro con él y me pregunta cómo iba el tema. Le dije -mintiendo-, que iba bien.
 
@@ -26,7 +26,7 @@ El hombre se entusiasmó y me responde:
 
 Curiosamente, a mí también me gustó, la memoricé y al llegar a casa la trasladé al pentagrama. Probamos un par de veces y sonaba realmente bien cuando la completé.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg-CPZyLaPUTgc7YeTQfkuFmJ8ZwRVfc3xfb_Fw_jYoKYtsX9ybeSQ0F_bZVS62CVY_D1KvQD4nmBoVC-vTYsFlX3WgMpdiI44w1Ug1kZbekonnV5pGeOJUrm5F_Fs1fws1K8az14gu6aqADnLMV36oJMy2rdMlz24ahiGmvetolE7dBo8aUuKIgfgxPA/w400-h223/Orquesta%20Tanturi.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg-CPZyLaPUTgc7YeTQfkuFmJ8ZwRVfc3xfb_Fw_jYoKYtsX9ybeSQ0F_bZVS62CVY_D1KvQD4nmBoVC-vTYsFlX3WgMpdiI44w1Ug1kZbekonnV5pGeOJUrm5F_Fs1fws1K8az14gu6aqADnLMV36oJMy2rdMlz24ahiGmvetolE7dBo8aUuKIgfgxPA/s400/Orquesta%20Tanturi.jpg)La orquesta de Ricardo Tanturi con Castillo en radio El Mundo
+[![](/tangos-al-bardo/images/27386cd6be08.jpg)](/tangos-al-bardo/images/32e6703545f8.jpg)La orquesta de Ricardo Tanturi con Castillo en radio El Mundo
 
 Esa misma noche le llevamos el tema a Ricardo Tanturi que actuaba en radio El Mundo. En un café vecino a la emisoria le dí la partitura y la tarareamos.
 

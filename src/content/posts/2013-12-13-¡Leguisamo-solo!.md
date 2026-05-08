@@ -59,7 +59,7 @@ pulso metido y prometido.
 Uno supo que en todo buenosaires,
 en mesas de café, en liados ayeres,
 en desaprovechadas pausas semanales,
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjUNsJbKKdHtRSafRIL9TByEsgGjcnmNcBzob5NvhCh-cKcTOwMcENHkryQUiV0Fo8BCGzDH4gxpH3kCm5o07j75J7zuJheVIzXyXXuwA5aM4XLGWbR3M-RqNtoSUzuOOQ7dSKv7k2I7S0/s320/Leguisamo+y+Gardel.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjUNsJbKKdHtRSafRIL9TByEsgGjcnmNcBzob5NvhCh-cKcTOwMcENHkryQUiV0Fo8BCGzDH4gxpH3kCm5o07j75J7zuJheVIzXyXXuwA5aM4XLGWbR3M-RqNtoSUzuOOQ7dSKv7k2I7S0/s1600/Leguisamo+y+Gardel.jpg) Leguisamo y Gardel en Niza-Francia  se enajenaba el tiempo con su nombre.
+ [![](/tangos-al-bardo/images/ed976634c6a8.jpg)](/tangos-al-bardo/images/84d389a0d5ef.jpg) Leguisamo y Gardel en Niza-Francia  se enajenaba el tiempo con su nombre.
 
 Sabe sus modos de acudir al grito:
 mono, maestro, tuerto, pulpo, eximio.

@@ -7,7 +7,7 @@ tags: ["Carlos Gardel", "Aníbal Troilo", "Miguel Caló", "Raúl Berón"]
 ---
 
 Cuántas veces nos pasa por la cabeza y por el cuore, a los porteños que vivimos lejos de nuestro querido Buenos Aires, esa lejanía. La que que nos impide caminar por nuestros barrios, pisotear la calle Corrientes de aquellos sueños juveniles, las casas familiares, el café de la barra, las milongas inolvidables donde trazamos esos pasos que brotaban del alma tanguera...
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhc1wfwDOLP-DNagauYtmIRA_YUpoBC5wZrf6I7FyE-UxvOsLYGaXF7YFKNuW7Ldal81FvHyK0xHpbRB7M0YJ7JT2SZrAVnzMOImsMtUEJfaj0ou2zduvnSIi8aPjVUn4ISH4to5O6yOSU/w237-h320/Oscar+Rubens.jpg)Oscar Rubens
+![](/tangos-al-bardo/images/d5b4bd6a8bb3.jpg)Oscar Rubens
 
 La nostalgia nos retrotrae a otra época y aunque el país haya cambiado, para bien o para mal, aquellas imágenes tienen un peso profundo en nuestros recuerdos y están albergados en nuestro corazón para siempre. Y todo esto viene a mi mente cuando escucho este tango en el que Oscar Rubens se instala mentalmente en una presunta vuelta a la ciudad que nos espera con los brazos abiertos.
 

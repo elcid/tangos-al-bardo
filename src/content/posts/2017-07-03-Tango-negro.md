@@ -10,7 +10,7 @@ En mis libros, conferencias y escritos diversos, siempre he defendido la negritu
 El jazz en estados Unidos, la guajira en Cuba, la cumbia en Colombia, el frevo, la batucada y otras danzas de Brasil, tienen origen negroide. De hecho, las palabras *Tango, Milonga, canyengue, zamba, mandinga,* son de origen africano. Buenos Aires fue el puerto adonde llegaban barcos con esclavos negros, que se subastaban y se despachaban para diferentes ciudades y países limítrofes. Los esclavos que eran llevados a Argentina, procedían de etnias del Golfo de Guinea y el sur de Sudán. El lugar donde los encerraban antes de embarcarlos se llamaba "*Tangó*", que significa: espacio cerrado.
 
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg9QyJdqeEStH4S5pY1YM3jZycPkddoxZcyqJbJKE0G0h9nRlFgh6ScLcTPTdxSS72qLlZxyfQysX30u6kZ7j0ovf_cxNn_s8nemxz3UAMHsyEl3_V7drDynhC6pzymH-E6QgVdmHpAvbMY/s400/Figari-tango32.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg9QyJdqeEStH4S5pY1YM3jZycPkddoxZcyqJbJKE0G0h9nRlFgh6ScLcTPTdxSS72qLlZxyfQysX30u6kZ7j0ovf_cxNn_s8nemxz3UAMHsyEl3_V7drDynhC6pzymH-E6QgVdmHpAvbMY/s1600/Figari-tango32.jpg) Tango. Pintura de Pedro Figari
+ [![](/tangos-al-bardo/images/203397d7a457.jpg)](/tangos-al-bardo/images/95956fe06736.jpg) Tango. Pintura de Pedro Figari
 
 El diccionario de la Academia Españdola de la Lengua en su edición de 1899, definía al Tango como *"una fiesta de negros y danza o de gente del pueblo en América*", y daba como segunda acepción: "*La música de esa danza*". Repasando libros, encuentro en el Diccionario Gardeliano de mi amigo y compañero José Barcia, firmado junto a Enriqueta Fulle y José Luis Macaggi, estos apuntes al respecto:
 
@@ -38,7 +38,7 @@ El diccionario de la Academia Españdola de la Lengua en su edición de 1899, de
 
 El tango citado por Carlos Vega como el primero del género: **Andate a la Recoleta**, tenía una letrilla anónima que decía:
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi7MXmSLXuoo5xDxfE6oblgQQmPX4OULarcLQkVBgLtlmPSNwLHHPDkFiLPy8H-1c_NVyhKspHMr5hcHQiOIekIhzVKfZ7ewgxV28LfCmCbtgk1uKkOG3xQ4nTg1cda7fk16YhqjunH89ns/s320/Cuarteto+polenta.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi7MXmSLXuoo5xDxfE6oblgQQmPX4OULarcLQkVBgLtlmPSNwLHHPDkFiLPy8H-1c_NVyhKspHMr5hcHQiOIekIhzVKfZ7ewgxV28LfCmCbtgk1uKkOG3xQ4nTg1cda7fk16YhqjunH89ns/s1600/Cuarteto+polenta.jpg)
+ [![](/tangos-al-bardo/images/44f085ff8424.jpg)](/tangos-al-bardo/images/6516bbd74dbc.jpg)
  Andate a la Recoleta  decile al recoletero,   que preparen una bóveda   para este pobre cochero.
   Si... Si... Si...   que Gaudencio se va a fundir,   No... No... No...   si Gaudencio ya se fundió.
  Parados en los estribos,   con un letrero que dice   “Calle de Estados Unidos”

@@ -16,7 +16,7 @@ Fue en 1962 cuando lo llama Piazzolla para integrar su Quinteto Nuevo Tango, suc
 
 Durante unos diez años estuvo enrolado en todas las locuras musicales de Piazzolla y con él se haría conocer en Europa o Estados Unidos. Sus solos de violín le permitieron conquistar seguidores en los distintos donde actuó. El violinista ucraniano -nacionalizado estadounidense- Isaac Stern, considerado uno de los más grandes del Siglo XX, le dedicó unas emocionadas dedicatorias y le dijo personalmente, que para él había sido un enorme placer escucharlo.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg_OAqpGcrwtrzdSA0TaBJqE2Qqc3o-B4oZ8ek4idc24fc6Y0JVfngCHCvGKEY4UNiEmDRs0_V48W53nUMVDo9d4CUqp1iElU5vYnuJQG7nCgpxx44kQWNoR6aarZ2tV3QnwoabvcKEmr4/s1600/escanear0006.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg_OAqpGcrwtrzdSA0TaBJqE2Qqc3o-B4oZ8ek4idc24fc6Y0JVfngCHCvGKEY4UNiEmDRs0_V48W53nUMVDo9d4CUqp1iElU5vYnuJQG7nCgpxx44kQWNoR6aarZ2tV3QnwoabvcKEmr4/s1600/escanear0006.jpg) Chamuyando con otro crack del violín: Hugo Baralis
+ [![](/tangos-al-bardo/images/d29f280e69f8.jpg)](/tangos-al-bardo/images/d29f280e69f8.jpg) Chamuyando con otro crack del violín: Hugo Baralis
 
 A su vez, el virtuoso violinista italiano Salvatore Accardo, reconocido mundialmente, le prestó a Antonio Agri su Stradivarius para que pudiera usarlo en una grabación que hicieron con Piazzolla en Italia. En Londres grabó como invitado solista, con la Royal Philarmonic, y en París ofrecieron un concierto él y Paco de Lucía en guitarra, que arrancó ovaciones interminables en el público.
 

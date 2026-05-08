@@ -16,11 +16,11 @@ Le decía Ástor Piazzolla a mi compañero Natalio Gorín, en el libro que éste
 
 -Yo soy distinto a todos. No digo mejor ni peor que Troilo o Federico. No. Lo que no tiene nadie es mi *toucher*. Esto quiere decir que alguno me puede superar, o no, de lo que estoy seguro es que como Piazzolla no puede tocar ninguno.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgvG77DvdkiBFLdIYqooRcS2BnvtolGsGoqHnQWOJKuYi5N7rAs1PLO8YX80UrrPg1Fqc6AbvXdeAeI4BJtRLFIpQe8OghPFWO0-qI2-qh8Hvozo60Dd0fL4A-OIxPrS531utpEhkza090/s320/maffia_laurenz.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgvG77DvdkiBFLdIYqooRcS2BnvtolGsGoqHnQWOJKuYi5N7rAs1PLO8YX80UrrPg1Fqc6AbvXdeAeI4BJtRLFIpQe8OghPFWO0-qI2-qh8Hvozo60Dd0fL4A-OIxPrS531utpEhkza090/s1600/maffia_laurenz.jpg) Los dos Pedros: Maffia y Laurenz, yunta mágica.
+ [![](/tangos-al-bardo/images/b64a3bcac7c2.jpg)](/tangos-al-bardo/images/c3410da1f3ad.jpg) Los dos Pedros: Maffia y Laurenz, yunta mágica.
 
 -Pero yo no nací en un frasquito ni el sonido de mi bandoneón es una rareza del cielo. Todo está íntimamente ligado. Y yo lo expreso con música. En el primer tema de la *Suite Troileana*, que se llama justamente *Bandoneón*, el Gordo está permanentemente a mi lado, por momentos toco como Piazzolla y de a ratos él me contesta. Lo mismo en *Tristezas de un Doble A*, en la versión del quinteto hay un solo de bandoneón que dura diez o quince minutos, según como me agarre. Ahí me voy de viaje y llevo conmigo a Maffia, a Laurenz, a Di Filippo, a Federico, y tengo la sensación de estar tocando con ellos. No hay cables sueltos, algo nos une.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhE2KpSqf_DfDXp18oB9vhLLOgrpT9NSOcMSvO7mpAHkl9NG7e0uSIN6NLC9ZG00XBsNtu_E6p9UUhcKld9a__qZaWRAEWYEU5oL_cQNlfWTLZ6jSg0ewShyphenhyphenVu1VPNN95slDu8wg0pdIts/s320/Pia-Tr-Lau.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhE2KpSqf_DfDXp18oB9vhLLOgrpT9NSOcMSvO7mpAHkl9NG7e0uSIN6NLC9ZG00XBsNtu_E6p9UUhcKld9a__qZaWRAEWYEU5oL_cQNlfWTLZ6jSg0ewShyphenhyphenVu1VPNN95slDu8wg0pdIts/s1600/Pia-Tr-Lau.jpg) Tres grandes del fueye: Piazzolla-Troilo-Laurenz
+ [![](/tangos-al-bardo/images/83cfe56777dd.jpg)](/tangos-al-bardo/images/d9a4f8b2d55b.jpg) Tres grandes del fueye: Piazzolla-Troilo-Laurenz
 
 
 -Lo peor que le puede ocurrir a cualquier bandoneonista es ser tímido. Lo que nosotros los músicos decimos tocar para adentro. Eso no sirve. No hay que tener miedo. Si uno se equivoca se va a escuchar, pero también se va a escuchar y muy bien lo mejor que uno tiene adentro. Leopoldo Federico y yo tocamos fuerte, en cambio Troilo fue más bien intimista, lo que no significa tener miedo, él tenía una gran personalidad en el escenario.

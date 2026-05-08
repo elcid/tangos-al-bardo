@@ -10,7 +10,7 @@ Está unánimamente reconocido como el gran renovador en la *letrística* del ta
 
 Había llegado de Zárate con aquel ramillete de músicos que se irían incrustando en distintas orquestas de éxito. Homero había estudiado en la Facultad de Filosofía y letras, pero encontró la veta de su talento en la música popular, donde entró con paso ganador, desde aquel tango* *que escribió con su hermano Virgilio, y que entregó a Libertad Lamarque en una visita casual a la radio. Se llamaba *Rodando* y Libertad lo estrenaría en Radio Belgrano, sirviéndole de plataforma al joven poeta.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgvOiP2QnjWapJ8fg_msKQWkaDi9Wy7OmWZqOovWDOpRsmCIcAKtiRiyCtj921ExkNoOo4tHI8S-neeHfhhtCt3ogAPAhHWuDGr5W7ap7auVSQGK5gEyW1MfmtRvuYCCTquudFAhbF4lwwQ/s1600/Homero+exp%25C3%25B3sito.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgvOiP2QnjWapJ8fg_msKQWkaDi9Wy7OmWZqOovWDOpRsmCIcAKtiRiyCtj921ExkNoOo4tHI8S-neeHfhhtCt3ogAPAhHWuDGr5W7ap7auVSQGK5gEyW1MfmtRvuYCCTquudFAhbF4lwwQ/s1600/Homero+exp%25C3%25B3sito.jpg) Homero Expósito
+ [![](/tangos-al-bardo/images/7d232970f263.jpg)](/tangos-al-bardo/images/7d232970f263.jpg) Homero Expósito
 
 Los temas de Homero reflejan pautas de su vida, de sus arrebatos, sus amores jóvenes, su tierra, la bohemia, el carácter ácrata que les transmitiría su padre. Todo ello envuelto en un perfil poético totalmente nuevo que sirvió para darle jerarquía al tango. En 1939, con sus amigos Héctor Stamponi y Enrique Mario Francini, componen un tango: *Bohemio*, para poder afiliarse a SADAIC, ya que exigen 5 obras para aceptar a los autores como socios, en la entidad que defiende los derechos autorales. Y escribía Homero en ese tango que estrenó Hugo del Carril por Radio Splendid.
 
@@ -61,7 +61,7 @@ que escribió con olvido.
 
 A mí me encanta *Yuyo verde*, que compuso con Domingo Federico. Allí está el relato y la síntesis de aquella desventura de su vida, pintada de un modo hermoso, sencillo, vital. Lo cantaba una vecina en el patio, cuando yo era un chiquilín y lo recordaba en todos los veranos: "*Íbamos perdidos de la mano / bajo un cielo de verano / soñando en vano..*.". O *Trenzas*, con Armando Pontier, donde las metáforas poéticas y la genial estructura de los versos merecieron incluso la admiración de Enrique Santos Discépolo que se lo confesó el día en que se conocieron.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiMdD4j2b0GoB7FF6vXnLSSsGmjpA8SWZPWKwu0ntbgsCIQcQZRFbOqy6hQcY2FwrhcIDUjAv3HyzPQ6hAlLGZH_g_EnXt1oddvQZHs3iPuj8unxjKkipOwYJ3HZMg0rSQnCI2SQO9jlglv/s200/trenzas.gif)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiMdD4j2b0GoB7FF6vXnLSSsGmjpA8SWZPWKwu0ntbgsCIQcQZRFbOqy6hQcY2FwrhcIDUjAv3HyzPQ6hAlLGZH_g_EnXt1oddvQZHs3iPuj8unxjKkipOwYJ3HZMg0rSQnCI2SQO9jlglv/s1600/trenzas.gif)
+[![](/tangos-al-bardo/images/06c3ab29e861.gif)](/tangos-al-bardo/images/eef3db7ce899.gif)
 Trenzas,
 seda dulce de tus trenzas
 luna en sombra de tu piel

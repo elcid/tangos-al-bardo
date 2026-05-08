@@ -20,7 +20,7 @@ Guitarrista ecléctico, conoció en Francia a Joaquín Rodrigo, que quedó marav
 
 Estuvo tres años con Ástor Piazzolla desde 1968 al 70 y el tango se le fue pegando. En 1973 grabó un LP con música porteña exclusivamente y viajó con embajadas artísticas numerosas veces por Europa y América. Fue artista exclusiva de la CBS Columbia y en sus recitales en el Teatro Regina o el Coliseo, resultaría ovacionado por sus fieles seguidores.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhoCPxYNZWHXOcKcakCds0CiVuSd9Fqxdijar2kfHg2cSZTUbn-ZRzX2RBV5_HIF6B31MD7xmXnZ5ASZYCXkE402LdZKLVSndgPU5dIsPg_wuCOMCQpbRpcHSKQ9f5NmXh7yjQocioGp1c/s1600/piazzolla0370.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhoCPxYNZWHXOcKcakCds0CiVuSd9Fqxdijar2kfHg2cSZTUbn-ZRzX2RBV5_HIF6B31MD7xmXnZ5ASZYCXkE402LdZKLVSndgPU5dIsPg_wuCOMCQpbRpcHSKQ9f5NmXh7yjQocioGp1c/s1600/piazzolla0370.jpg) Osvaldo Manzi, Cacho Tirao, Kicho Díaz y Agri con Piazzolla
+ [![](/tangos-al-bardo/images/25b7cc41ab30.jpg)](/tangos-al-bardo/images/25b7cc41ab30.jpg) Osvaldo Manzi, Cacho Tirao, Kicho Díaz y Agri con Piazzolla
 Tuvo su propio preograma de televisión y me parece que vale la pena que disfruten con este dúo de grandes instrumentista de la cuerda, como lo fueron Agri y Tirao y cuyos currículos he sintetizado al máximo, porque me llevaría mucho tiempo completarlos. En este caso los vemos primero en el vals de Aníbal Troilo y Homero Manzi: **Romance de barrio. **Les dejo el enlace.
 
 ###  [*Cacho Tirao y Antonio Agri Romance de Barrio* Tango](http://www.google.es/url?sa=t&rct=j&q=&esrc=s&source=web&cd=10&ved=0CF4QFjAJ&url=http%3A%2F%2Fwww.frequency.com%2Fvideo%2Fcacho-tirao-y-a%2F83356378&ei=aN1HU9v4EbGV0QWBooHwAg&usg=AFQjCNERCFUC6OM9NYiQZCbsHg9irnuW2A&bvm=bv.64542518,d.bGE)

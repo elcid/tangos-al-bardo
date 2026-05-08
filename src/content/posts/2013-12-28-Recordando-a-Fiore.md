@@ -25,7 +25,7 @@ Yo le dediqué hace unos años este soneto que hoy traigo al Blog.
 ###  [FIORE](http://www.blogger.com/null)
 
  *“Yo soy un murmullo de barrio”*  Francisco Loiácono
- El fueye lo portabas en la gola  por eso lo amuraste en un rincón;  [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEioB6YYE-fTcJ400BYjlsUtPTq7nfqmOXXSPwbjYpPSB9ZHg2WZL3UUTt78uRI25KTI5pU94OzvE61HQmp4_j3PPHigdGlNxA5QIM6pQuGyDexPDsT6tmTIVJCdgN4balj3YgPpiSXjgJ8/s1600/Milonga_para_Fiore_tapa_72.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEioB6YYE-fTcJ400BYjlsUtPTq7nfqmOXXSPwbjYpPSB9ZHg2WZL3UUTt78uRI25KTI5pU94OzvE61HQmp4_j3PPHigdGlNxA5QIM6pQuGyDexPDsT6tmTIVJCdgN4balj3YgPpiSXjgJ8/s1600/Milonga_para_Fiore_tapa_72.jpg)el dogor se mandó la carambola  y fuiste el eco, cantando, de su son.
+ El fueye lo portabas en la gola  por eso lo amuraste en un rincón;  [![](/tangos-al-bardo/images/310bbd204dfb.jpg)](/tangos-al-bardo/images/310bbd204dfb.jpg)el dogor se mandó la carambola  y fuiste el eco, cantando, de su son.
  Te graduaste con él en un santuario,  engriyando al porteñaje en Marabú;  caía en procesión el nocturnario  y tus tangos rebotaban por Maipú.
  El nopia bohemio picaba cadenero,  vos bien jaileife, ponías la emoción,  con estribillo trinado de jilguero,
  en cada verso refilando el corazón.  Te juro que te escucho y me reitero:  Tu gola es puro arrullo de bandoneón.

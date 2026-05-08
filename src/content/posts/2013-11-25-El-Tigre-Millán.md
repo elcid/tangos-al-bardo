@@ -14,7 +14,7 @@ Francisco Canaro estrenó este tango en la comedia musical "*La canción de los 
 
 Hace muchos años se repasaba por radio la historia de los guapos que alberga la mitología porteña. El autor de las novelitas era un anticuario que conocí porque me aceptó para competir en un famoso concurso de preguntas y respuestas por Televisión, sobre la historia del tango. Y entre otras me contó la historia de *El Tigre Millán*, que olvidé rápidamente.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh0gevcBQUVA2OsXwQm9eP9pnILMqC4e-7IXVVxSSzjeo_rxt-iKzWGI9pLLlVdqC2-LoA8DxWxKxm-XSfnvRro09q5JoA2QInyHruR2ky-A9JU1XZ0i9phS_lB2v8HdsrVzpc9Hl7RNlo/s320/Canaro+y+D%C3%81rienzo.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh0gevcBQUVA2OsXwQm9eP9pnILMqC4e-7IXVVxSSzjeo_rxt-iKzWGI9pLLlVdqC2-LoA8DxWxKxm-XSfnvRro09q5JoA2QInyHruR2ky-A9JU1XZ0i9phS_lB2v8HdsrVzpc9Hl7RNlo/s1600/Canaro+y+D%C3%81rienzo.jpg) D'Arienzo y Canaro en Montevideo
+ [![](/tangos-al-bardo/images/7c935798b263.jpg)](/tangos-al-bardo/images/71dde1aacf39.jpg) D'Arienzo y Canaro en Montevideo
 Desde entonces han surgido varias versiones sobre la personalidad *real* del Tigre, y ya sabemos que la leyenda y el boca a boca en estos casos aguzan la imaginación de mucha gente. Conozco varias versiones del tema que Canaro jamás se esforzó en desmentir, caso contrario, perdería su condición de misterio y de mito. Cuantas más historias al respecto, mayor es su repercusión, al margen de que el tango tiene un gancho bárbaro y la interpretación de D'Arienzo, con Alberto Reynal, Alberto Echagüe o Mario Bustos en 1940, 1952, y 1958, respectivamente fueron todos golazos y los sigo bailando en las pistas.
 
 
@@ -37,7 +37,7 @@ Paraba el coche Ford negro cuadrado del comisario y le gritaba desde adentro del
 
 Real o deformada oralmente, es una historia más que se agrega al mito del *Tigre Millán*, y que como todo lo que tocó Canaro, produjo jugosísimos dividendos. En todo caso, una mancha más , ¿qué le hace al Tigre? Incluso en Valentín Alsina le han hecho un monumento en aluminio, obra de José Pereda un escultor nacido en Madrid en 1948 y radicado en ese partido de Lanús.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiEOkRFRFM7EzRwCJJ6NRE9miXT33FDox1mOAUG0Ls6GV5s93akE2h50e1L6HbNn03AiApGvnXo1F8GMiSrcl6aHRlluskfmQKj96L_QKnfKSbxuJsrbl9s7lNPWiBd1bL1xASC3iLOS7s/s320/El+Tigre+Millan-Francisco-Canaro-GUSTAVO-ORTIZ_CLAIMA20131021_0031_17.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiEOkRFRFM7EzRwCJJ6NRE9miXT33FDox1mOAUG0Ls6GV5s93akE2h50e1L6HbNn03AiApGvnXo1F8GMiSrcl6aHRlluskfmQKj96L_QKnfKSbxuJsrbl9s7lNPWiBd1bL1xASC3iLOS7s/s1600/El+Tigre+Millan-Francisco-Canaro-GUSTAVO-ORTIZ_CLAIMA20131021_0031_17.jpg) El Monumento al Tigre Millán en la bajada del Puente Alsina
+ [![](/tangos-al-bardo/images/4eb6fe515f91.jpg)](/tangos-al-bardo/images/10a25ee86144.jpg) El Monumento al Tigre Millán en la bajada del Puente Alsina
 Podemos escucharlo y recordarlo en la versión que grabara Juan D'Arienzo con Alberto Reynal del 22 de agosto de 1940. Bien milonguero por cierto.
 
 [127- El Tigre Millán - D'Arienzo-Alberto Reynal](http://sdrv.ms/1gb8RWO)

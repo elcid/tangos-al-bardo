@@ -46,7 +46,7 @@ a cara o cruz...
 como una sombra maldita
 que se agita en su infinita luz.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhs5ZBqf74SJvULx5snJ0zIcHNqlaCUu0xnc9Vg_mTQL0CTy_RKWInBcdOCjJfRx3YtACb5wYono7KCR3RUtSs1xZI_2p9CixkWl3fvJpS33MI3oUeyEAAKNn-YZoDWIXTzwMOn5muNaQcT/s400/catulo+y+troilo.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhs5ZBqf74SJvULx5snJ0zIcHNqlaCUu0xnc9Vg_mTQL0CTy_RKWInBcdOCjJfRx3YtACb5wYono7KCR3RUtSs1xZI_2p9CixkWl3fvJpS33MI3oUeyEAAKNn-YZoDWIXTzwMOn5muNaQcT/s1600/catulo+y+troilo.jpg) Cátulo Castillo y Aníbal Troilo afinan detalles para componer juntos
+ [![](/tangos-al-bardo/images/7729ff4ce154.jpg)](/tangos-al-bardo/images/ce1f3c4884ac.jpg) Cátulo Castillo y Aníbal Troilo afinan detalles para componer juntos
 En el colofón, sin énfasis retórico, ni arenisca de los adjetivos, tal vez cabe vislumbrar un sentimiento grave de tristeza, que no empaña los fogonazos líricos que enmarcan al poema. Es un vaivén emocional con la luna de testigo y el crepúsculo fluorescente. La geografía del alma y la vida pausada. La melancolía es un resultado espiritual y vital y este tema de Cátulo Castillo nos demuestra una vez más que el vademécum tanguero contiene páginas de enorme belleza.
 
 La luna mira, callada

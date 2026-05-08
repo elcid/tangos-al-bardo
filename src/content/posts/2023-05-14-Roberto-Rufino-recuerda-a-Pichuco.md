@@ -26,7 +26,7 @@ Con Pichuco aprendí el silencio musical. Algo que es muy difícil. Sabía mucho
 
 Al Gordo lo querían llevar a todas partes del mundo, como representante de la cultura argentina, pero él prefería las luces de la ciudad de Buenos Aires. Era muy común escucharlo decir a Pichuco. "*vuelvo a mi casa, el lugar de donde nunca debí haber salido*". Él fue muy feliz en la casa de su infancia, era muy humilde pero siempre guardó muy lindos recuerdos.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgDhEQkD5vemjNCbpldvbPv45ZVA9uZUwg2ZeGpw97CXrvAzyBF6DMf8oOeaGY66vqGvf9-jVlPLa1Cu1wqruCS0bhB3GCPtEqo55A3LIyPDPRYMihFJLPHqb1jpLJ3Ncb0wqcU7TwGumZ7GKYDvNWE1vraJhukPYL26uIIWK-ck6i23_zS6UXRVHY25Q/s320/3999.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgDhEQkD5vemjNCbpldvbPv45ZVA9uZUwg2ZeGpw97CXrvAzyBF6DMf8oOeaGY66vqGvf9-jVlPLa1Cu1wqruCS0bhB3GCPtEqo55A3LIyPDPRYMihFJLPHqb1jpLJ3Ncb0wqcU7TwGumZ7GKYDvNWE1vraJhukPYL26uIIWK-ck6i23_zS6UXRVHY25Q/s865/3999.jpg)Rufino y Goyeneche cantando con Pichuco
+[![](/tangos-al-bardo/images/7404e6d366f1.jpg)](/tangos-al-bardo/images/201bcd40db6a.jpg)Rufino y Goyeneche cantando con Pichuco
 
 Pichuco no se metía nunca en la vida íntima de nadie. Y pocos conocían los secretos del Gordo. Era muy reservado y todos se lo respetábamos. El que lo conocía al dedillo era su representante, Arturo De la Torre. Él solía quedarse con Pichuco tres o cuatro días por la calle. Le gustaba vivir en la calle. Porque el Gordo vivía de Café en Café. era un verdadero bohemio y se le perdonaba todo.
 

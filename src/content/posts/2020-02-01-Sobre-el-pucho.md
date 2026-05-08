@@ -20,7 +20,7 @@ Me fui a casa y me puse a componer. No como a mí me gustaba componer, sino con 
 -Cuántas obras se presentaron al certamen?
 -Ciento treinta y seis y en su mayoría buenas obras. Así pasó como una semana. Y una tarde en que yo estaba tocando en el cine Park, se viene el adminstrador Averán:
 -*Lo felicito, Piana, ha sacado el segundo premio en el concurso...*
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh39_jspE5aEqbFtTcVnQ638vyksmWZ51i09YehJgYGGnOtfj7v7sLWZMghh77xftrDigtTRinhH8qeaU-bDbVHgVer2Rk6Rv6y2r9hmXgIF-_sh-w0vO6R9XSJOh_CarhkMJXkxZHGMPdT/s200/Jos%25C3%25A9-Gonzalez-Castillo-1929-21.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh39_jspE5aEqbFtTcVnQ638vyksmWZ51i09YehJgYGGnOtfj7v7sLWZMghh77xftrDigtTRinhH8qeaU-bDbVHgVer2Rk6Rv6y2r9hmXgIF-_sh-w0vO6R9XSJOh_CarhkMJXkxZHGMPdT/s1600/Jos%25C3%25A9-Gonzalez-Castillo-1929-21.jpg) José González Castillo
+ [![](/tangos-al-bardo/images/0f1e7de184f8.jpg)](/tangos-al-bardo/images/eed55f7307b9.jpg) José González Castillo
 Poco después me abrazaba con González Castillo que era tan cariñoso, igual a Cátulo. Don José estaba contentísimo. Y me regaló el dinero del premio, quinientos pesos. Con eso y la venta del pianito que yo tenía, compré el *Rashall* que me acompañó el resto de mi vida. El primer premio fue para **El ramito**, un tango de Juan de Dios Filiberto y Luis Teisseire en la música y Gabino Coria Peñaloza en la letra.
 
 Debo aclararle que aparte de la satisfacción por el premio y por el regalo de González Castillo, tuve otra. Los organizadores del concurso habían querido hacer una cosa de jerarquía. Entonces invitaron para integrar el jurado a unos grandes músicos. el presidente era Emérico Fracassi y los otros dos integrantes; Vicente Forte y César Stiatessi.

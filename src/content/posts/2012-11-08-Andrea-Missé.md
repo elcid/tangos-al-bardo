@@ -12,7 +12,7 @@ Cuando apenas despegaba este año que comienza a evanescerse, las filas del tang
 Casada, madre de una hija, era pareja de baile de Javier Rodríguez. Y quiero traerla al Blog con una nota que les hizo a ambos en sociedad, la revista *El Tangauta* y que refleja el espíritu milonguero de ambos. Comparto totalmente los análisis que realizan, y la recuerdo con este** **importante reportaje**.**
 ** **
 ** Tango esencia**
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgoDtRloXTTPo6pXzpJ4fy2Xq4whUqzndArdiJOw4qf4JS-V-9BJ3_RKsjMK49UrGiy9E0fIEqkbQ6FkjxOFNFOqy5TS_9SJvwaOlzjX1ZK5xpKb1BHGlMFD8K4fO1ozB14PhmV1EqjqE8Q/s320/184-Misse-Rodr_01.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgoDtRloXTTPo6pXzpJ4fy2Xq4whUqzndArdiJOw4qf4JS-V-9BJ3_RKsjMK49UrGiy9E0fIEqkbQ6FkjxOFNFOqy5TS_9SJvwaOlzjX1ZK5xpKb1BHGlMFD8K4fO1ozB14PhmV1EqjqE8Q/s1600/184-Misse-Rodr_01.jpg)
+[![](/tangos-al-bardo/images/471ced3e4ec6.jpg)](/tangos-al-bardo/images/ea2b9dc13a3d.jpg)
 **¿S**u estilo reúne los orígenes del tango danza con la improvisación?
 **Javier Rodríguez**: Sí, porque hoy somos bailarines profesionales, pero primero fuimos milongueros. Para que se vea cómo sos verdaderamente en la pista debe haber improvisación, es decir naturalidad. Así como te parás y bailás cuando la pista está llena, debe ser cuando es sólo para vos. Por eso no ensayamos, a lo sumo practicamos alguna secuencia.
 **Andrea Missé**: Nos alejamos de la técnica porque optamos por expresar lo que nos está pasando en el momento.

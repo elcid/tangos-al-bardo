@@ -12,7 +12,7 @@ Sabemos de los errores que cometió el autor, reconocidos por él mismo cuando a
 
 -*Firpo casi se muere cuando vio la obra de mi querida Becha *(su hermana)*, porque me enteré que la música se divide en compases y que los sostenidos y bemoles que tan prolijamente escribió mi hermana delante de cada nota, debería, por una ley conocida por todos menos por mí, ponerse al principio de cada pentagrama. *
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEioEDfJSiAJM3mxP_Y67nUzRLy2s1ljfPIIN29V4eSTDX4HXrlbJrPzB7AkIkfThrkt9lFbifG53c-FpZ27iazh3bB2OW9Zpil5oFmfwnJ5978Y3_OysE6oPEymDDP7akMh60qetGUz91WoeIOkJUgdkVL3gqtNp72dzxoPI6Il7gcGofF6DPSsvGbpYQ/w400-h261/MR600x444_19505.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEioEDfJSiAJM3mxP_Y67nUzRLy2s1ljfPIIN29V4eSTDX4HXrlbJrPzB7AkIkfThrkt9lFbifG53c-FpZ27iazh3bB2OW9Zpil5oFmfwnJ5978Y3_OysE6oPEymDDP7akMh60qetGUz91WoeIOkJUgdkVL3gqtNp72dzxoPI6Il7gcGofF6DPSsvGbpYQ/s600/MR600x444_19505.jpg)Matos Rodríguez en sus paseos por Europa
+[![](/tangos-al-bardo/images/0734fc8e3e79.jpg)](/tangos-al-bardo/images/09c82bea6152.jpg)Matos Rodríguez en sus paseos por Europa
 
 Matos estaba en la capital francesa de paseo y Pirincho actuaba en el cabaret *Florida Dancing *con gran éxito. Allí le contaría que estaba tocando su tango, con el agregado de un contracanto con serrucho, cosa que le agradó múchísimo al autor, pero al enterarse de esa versión de *La cumparsita* y que la hubiera grabado Gardel, creció su indignación y el pleito entre el músico y poetas duraría incluso hasta después de la muerte del autor, y ello, gracias a la mediación de Canaro.
 

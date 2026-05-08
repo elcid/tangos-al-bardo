@@ -20,4 +20,4 @@ La mayoría se radicó definitivamente en la ciudad del tango y Juan Ehlert se c
 
 Como recuerdos de aquellos tiempos de Zárate cuando Hans Ehlert dirigía su orquesta provinciana, va esta foto de *El Diario de Zárate*.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEib2YZdDlzDuOP2-UKyjrEV1vQwf-YU6Cy_KM6_fysSicTcas4fQRq1WFNtuurTT7813MNvLbYHVocncL3yuosO28sJzrTx9idszE7E9cF4Qi-ZRY1TcSMeN46LtfcpsvVL_iW-tgWmz43-/s400/berenguer.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEib2YZdDlzDuOP2-UKyjrEV1vQwf-YU6Cy_KM6_fysSicTcas4fQRq1WFNtuurTT7813MNvLbYHVocncL3yuosO28sJzrTx9idszE7E9cF4Qi-ZRY1TcSMeN46LtfcpsvVL_iW-tgWmz43-/s1600/berenguer.jpg) Ehlert es el primero, parado por derecha. Detrás, con moñito un jovencísimo Héctor Stamponi.
+ [![](/tangos-al-bardo/images/4569cdd626ce.jpg)](/tangos-al-bardo/images/be4a43529c04.jpg) Ehlert es el primero, parado por derecha. Detrás, con moñito un jovencísimo Héctor Stamponi.

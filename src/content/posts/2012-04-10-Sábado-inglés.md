@@ -28,7 +28,7 @@ Y un vídeo de D'Arienzo que descubre cosas desconocidas por la mayoría.
 
 [Sàbado inglés. José Basso ](http://www.mediafire.com/?qtbqd4nxp7j79a3)
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgle7C9oJTjiD2UK2TExeDqFoUdctlolQUGsn_jBxrjMsQnuuEgAeFalYwJtalKu1OdCzxA66tADKdD5Amqs24Fxzl6kl-pjB4wPMKhzhkg6deteXcDzYm43Hao7i_s-ylYAvy0-fjzbQhj/s1600/S%25C3%25A1bado+ingl%25C3%25A9s+-+Firpo.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgle7C9oJTjiD2UK2TExeDqFoUdctlolQUGsn_jBxrjMsQnuuEgAeFalYwJtalKu1OdCzxA66tADKdD5Amqs24Fxzl6kl-pjB4wPMKhzhkg6deteXcDzYm43Hao7i_s-ylYAvy0-fjzbQhj/s1600/S%25C3%25A1bado+ingl%25C3%25A9s+-+Firpo.jpg)
+ [![](/tangos-al-bardo/images/31878f7f90f7.jpg)](/tangos-al-bardo/images/31878f7f90f7.jpg)
 
 
 <iframe src="https://www.youtube.com/embed/ObPU92r8uNo?feature=player_embedded"></iframe>

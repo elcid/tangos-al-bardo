@@ -17,7 +17,7 @@ Vicente fue albacea y propulsor del tango en aquellos años iniciáticos y el m�
 
 Como Aieta o el pianista José Martínez, era autodidacto, y solo tomó un puñado de lecciones. Pese a ello, legiones de hinchas se arremolinaban en la puerta del Café *El estribo*, de la calle Entre Ríos para ovacionarlo. Murió joven, como Aieta o Goñi, pero dejó una gran cantidad de páginas que siguen latiendo en los atriles de los músicos actuales. *Rodríguez Peña, El flete, Racing Club, La viruta, Barba de choclo, Popoff, El pangaré, Montaraz,* y una extensa lista.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjEcLRMdNMrF0GG2Uwh58C49I6nGXLUvmcACQt4Uwc7Tm9iPjrpSVRiGybte1B19pJdo89UOAN8iHlU77DtOhYWVLePE7ye5fk6q7_ipJ0zGaD4YYFgUoLstUfIbG7ueT267qXVF4cmLAI/s320/GRRRRECO.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjEcLRMdNMrF0GG2Uwh58C49I6nGXLUvmcACQt4Uwc7Tm9iPjrpSVRiGybte1B19pJdo89UOAN8iHlU77DtOhYWVLePE7ye5fk6q7_ipJ0zGaD4YYFgUoLstUfIbG7ueT267qXVF4cmLAI/s1600/GRRRRECO.jpg) Greco es el primer bandoneón por izq. Canaro está detras suyo
+ [![](/tangos-al-bardo/images/fa5faaed9d82.jpg)](/tangos-al-bardo/images/f53012484eba.jpg) Greco es el primer bandoneón por izq. Canaro está detras suyo
 Gardel le grabó cuatro temas: *Alma porteña, Argentina y La percanta está triste*, que llevan además letra suya y *Pobre corazoncito*, con versos de Pedro Numa Córdoba.
 
 

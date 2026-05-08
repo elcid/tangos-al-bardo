@@ -18,19 +18,19 @@ Después del afectuoso saludo, me gustaría dejar algunos conceptos con referenc
 
 En otras palabras, ellos *inventaron* cómo se toca el bandoneón en el tango. "Ciriaquito" aportó al tango, y en particular al bandoneón, una modalidad distinta y personalísima, definida por su fraseo entrecortado y su marcada devoción por cantar con claridad la melodía. Como si se tratase de una voz humana semejando un estilo *conversado*, una suerte de parloteo lírico, mucho más locuaz desde su teclado derecho que desde el izquierdo, por la menor riqueza armónica, con relación a los otros dos miembros de la trilogía señalada.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjPTI-qAc2Z4NTU4xLfApdL_NGyWubh16vgOoOmXFS_ipqwjFn1cGlkGf5H056l4y6hvdpHiaHbjigoogzV4-uPB_dEDN6OvAG0HusqL4Tc05198ZQAqko9uWp7xdPpaPF6udyV-m6ytiuS/s320/Ciriaco+Ortiz+1.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjPTI-qAc2Z4NTU4xLfApdL_NGyWubh16vgOoOmXFS_ipqwjFn1cGlkGf5H056l4y6hvdpHiaHbjigoogzV4-uPB_dEDN6OvAG0HusqL4Tc05198ZQAqko9uWp7xdPpaPF6udyV-m6ytiuS/s1600/Ciriaco+Ortiz+1.jpg) Ciriaco, con 16 años en la orquesta de Bazán
+ [![](/tangos-al-bardo/images/01b06c38cd91.jpg)](/tangos-al-bardo/images/d64d6dc5d68e.jpg) Ciriaco, con 16 años en la orquesta de Bazán
 Fué además Ciriaco, junto a Laurenz y a Anselmo Aieta, uno de los que impuso la utilización de fraseo octavado, pulsando la misma nota con una y otra mano, pero en distintas octavas. Recurso, éste, que provee a las interpretaciones de un legítimo acento tanguero envuelto en las gratas remininiscencias ancentrales del fueye de Arolas. A quien oyó tocar de muchachito, allá en *El Abrojal* cordobés, habitado por negros, indios y mestizos (los europeos aún no habían llegado hasta allí).
 
 De esa pasta esta hecho "Ciriaquito". Él transmitió mucho de su estilo a "Pichuco", y aunque fueran de semejante velamen, Ciriaco reconocía picarescamente los méritos del Gordo. En cierta oportunidad en que iban a tocar juntos, al sentarse, le dice a Pichuco:
 - *Tocá tranquilo que yo voy a menos...*
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEig3tPxQAU4X8sfQrwv1rZReoD6SU9Z-G89eXt6V87aqy09JZyQJWVsbF5uqun6xROgZSl7kJuCMwS7aYnQ80qfHYGYw-nUYc8YYv5gsJ4jgOfe7OlHqWTxPRVuFlxHDqB8jkF-fr5lue5C/s320/Maffia_Laurenz_Ortiz_Piana_Manzi.gif)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEig3tPxQAU4X8sfQrwv1rZReoD6SU9Z-G89eXt6V87aqy09JZyQJWVsbF5uqun6xROgZSl7kJuCMwS7aYnQ80qfHYGYw-nUYc8YYv5gsJ4jgOfe7OlHqWTxPRVuFlxHDqB8jkF-fr5lue5C/s1600/Maffia_Laurenz_Ortiz_Piana_Manzi.gif) ¡Qué nenes! Laurenz, Maffia, Ciriaco, Marcucci, Piana y Manzi
+ [![](/tangos-al-bardo/images/790f469684a6.gif)](/tangos-al-bardo/images/00996209b7b0.gif) ¡Qué nenes! Laurenz, Maffia, Ciriaco, Marcucci, Piana y Manzi
 
 Además te señalo que en la integración de la orquesta "Los provincianos", se deslizó un error de imprenta en el apellido del bandoneonista Horacio Gollino, que aparece allí como Horacio Molino. Gollino era un excelente instrumentista que formara parte de la *Orquesta Sinfónica* de Francisco Canaro... (Canaro no sabía lo que era una Orquesta sinfónica, pero fué creador de los tangos *Fantasía*).
 
 A Gollino tuve la suerte de tratarlo, ya muy entrado en años, y había perdido toda la movilidad de uno de sus brazos; pero aún así continuaba enseñando música, cambiando el bandoneón por un modesto piano. En el sector violinístico también intervenieron Benjamín Holgado Barrio y Manlio Francia. La alineación de "Los Provincianos" era muy cambiante.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEihKj4U18JMdzTwzUzLpol5briEzFx2j77cAih7Rp0PE2DsqcsmQENDc7tCWjUYcuwXF0_1yBfqldE5XC0VKV7TLq0uHBKBxkuC0pAEcAS1RlcgGhwKlQ6vVlLVlUyuWXu3v-vSYNj0zA8g/s320/_Orq_Tipica_Los_Provincianos.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEihKj4U18JMdzTwzUzLpol5briEzFx2j77cAih7Rp0PE2DsqcsmQENDc7tCWjUYcuwXF0_1yBfqldE5XC0VKV7TLq0uHBKBxkuC0pAEcAS1RlcgGhwKlQ6vVlLVlUyuWXu3v-vSYNj0zA8g/s1600/_Orq_Tipica_Los_Provincianos.jpg) Típica Los Provincianos. Pichuco a la derecha de Ciriaco
+ [![](/tangos-al-bardo/images/48103e0087cb.jpg)](/tangos-al-bardo/images/a90fa61e1e8f.jpg) Típica Los Provincianos. Pichuco a la derecha de Ciriaco
 Aquí corto y te hago llegar un fuerte abrazo.
 Oscar D. Zucchi - 24 de febrero de 2016.
 

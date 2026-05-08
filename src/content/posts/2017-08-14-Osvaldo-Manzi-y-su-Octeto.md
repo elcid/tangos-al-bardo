@@ -16,7 +16,7 @@ Fue precisamente Pichuco quien lo convocó en 1954 para militar en su exquisito 
 
 Estaría unos tres años con Pichuco. Lo suficiente para actuar en clubes, salas céntricas, radio y participar en 29 registros con la orquesta. El último tema que grabaría en dicho conjunto, sería *Retirao*, un tango antiguo de Carlos Posadas, donde muestra todo su talento. Saldría de dicha formación para enrolarse en la de su admirado Osvaldo Pugliese, reemplazándolo en aquellos años de persecución política que sufría el pianista de Villa Crespo.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiJi5y0bGJ8Z0Fec434_ETCJK6nAq8s6KmdD8wwDySk4LH0EXyVR1QRcp-Uub5b7KSYz0Mlh0qiyY2cs4GJ1CMAf34daFBtrjUESh_JJ-BQ_7R-9sYPtuF7rrGaSGah6E1dW010XFjP3lSw/s400/Manipu.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiJi5y0bGJ8Z0Fec434_ETCJK6nAq8s6KmdD8wwDySk4LH0EXyVR1QRcp-Uub5b7KSYz0Mlh0qiyY2cs4GJ1CMAf34daFBtrjUESh_JJ-BQ_7R-9sYPtuF7rrGaSGah6E1dW010XFjP3lSw/s1600/Manipu.jpg) Osvaldo Manzi. en color gris, con la orquesta de Osvaldo Pugliese
+ [![](/tangos-al-bardo/images/8e31b891c420.jpg)](/tangos-al-bardo/images/310de55c9016.jpg) Osvaldo Manzi. en color gris, con la orquesta de Osvaldo Pugliese
 Lo vi varias veces en aquellos años y recuerdo la frase de Mario Demarco, bandoneonista de la orquesta por entonces.
 -*Manzi sabe y mucho. Adaptarse a la orquesta tan rápido y sucediendo al director por las razones que todo el mundo conoce, no están al alcance de cualquiera. Manzi está muy bien preparado y consustanciado con el estilo de la orquesta. Y el resultado es muy satisfactorio para todos nosotros. *
 

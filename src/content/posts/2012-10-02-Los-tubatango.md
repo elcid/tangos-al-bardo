@@ -18,7 +18,7 @@ Inchausty era, además de Director, compositor y arreglador del conjunto.
 
 En 2005 surgió una nueva agrupación, que ha intentado revivir el espíritu de* Los Tubatango*, y a manera de homenaje la bautizaron como *La Tubatango.*
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEieqQmGsguJoT3Cyjhlol-_U3tSLm4R01zatGfeDxGhVLYw08sUAnAywXXRKlWQVD15x7b6AQUIpaF8__UygMqtWr0gg915Wn6vr8vme7hqNlhmcAUUoFCVoh6qnDgtJKEx_bYxa8iVQDqP/s320/la-tubatango-16-10-10.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEieqQmGsguJoT3Cyjhlol-_U3tSLm4R01zatGfeDxGhVLYw08sUAnAywXXRKlWQVD15x7b6AQUIpaF8__UygMqtWr0gg915Wn6vr8vme7hqNlhmcAUUoFCVoh6qnDgtJKEx_bYxa8iVQDqP/s1600/la-tubatango-16-10-10.jpg)La integran Lucas Kohan en guitarra, dirección y arreglos, Leo Heras en clarinete, Hugo Satorre al bandoneón y José Plaza en la tuba.
+[![](/tangos-al-bardo/images/b604aae5069b.jpg)](/tangos-al-bardo/images/86de12139740.jpg)La integran Lucas Kohan en guitarra, dirección y arreglos, Leo Heras en clarinete, Hugo Satorre al bandoneón y José Plaza en la tuba.
 
 Y su performance ha demostrado haber merecido la pena porque es muy requerida para espectáculos y para giras por varios países de América.
 

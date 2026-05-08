@@ -10,7 +10,7 @@ En estos días de verano tórrido, las playas del sur y del norte me han dado la
 
 Sus cantores, especialmente Roberto Ray y Ricardo Ruiz se identificaron plenamente con el estilo de la orquesta y sembraron junto a ella páginas de gran valor, cuya calidad ha quedado garantizada* ab initio*. Todo construido alrededor de un tono y eso es importante. Preludia el punto vélico, el centro justo de la interpretación musical-poética.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEha_feBcxAP6Nu_W7q5QlIyXibflPOhlwRmMrUSwO1go57EvMIWWc20Da7YMtPIeEYPzCS_WItOhgI-4JnoGzIspkHtiGwcZixlITB3it4uJaeZNagEvmP1QETE6f_zZhjzYexcXz1ei5xe/w400-h208/FRes%25C3%25ADndice.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEha_feBcxAP6Nu_W7q5QlIyXibflPOhlwRmMrUSwO1go57EvMIWWc20Da7YMtPIeEYPzCS_WItOhgI-4JnoGzIspkHtiGwcZixlITB3it4uJaeZNagEvmP1QETE6f_zZhjzYexcXz1ei5xe/s311/FRes%25C3%25ADndice.jpg)Osvaldo Fresedo y Ricardo Ruiz
+[![](/tangos-al-bardo/images/e925284a1c40.jpg)](/tangos-al-bardo/images/71a6b04b680e.jpg)Osvaldo Fresedo y Ricardo Ruiz
 
 Esa mezcla de gravedad y ligereza tan fresediana aún perdura en la memoria sentimental de muchos porteños, aunque haya sido adoptado especialmente por las clases altas. Bailar Fresedo se convierte en un encuentro sutil, estético y profundo en la pista. Las voces de Ray y Ruiz son ricas en las imágenes que cantan y los ecos musicales que las acompañan. La pasión es el filón creativo.
 

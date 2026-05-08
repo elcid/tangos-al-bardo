@@ -23,10 +23,10 @@ En aquella noche fría del 1º de julio de 1937, con mucha gente del ambiente ex
 
 La Guardia nueva entra en la vía de la historia. Pichuco comienza a escribir su leyenda.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg8dJcFMMZZNNRJ4nUA2TX1FDoWq3iNinPCYVSo5KDRpeePDvCpRmHkNuH0y9LJa5B4jGuJKRzHlc55v6VALVdOIPR3RIgrWL-NnoSo3ubzbrB02bO8bA235pzF5lTSkisc7Li3TAVa5di5/s200/Comme+il+faut+y+Tinta+verde.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg8dJcFMMZZNNRJ4nUA2TX1FDoWq3iNinPCYVSo5KDRpeePDvCpRmHkNuH0y9LJa5B4jGuJKRzHlc55v6VALVdOIPR3RIgrWL-NnoSo3ubzbrB02bO8bA235pzF5lTSkisc7Li3TAVa5di5/s1600/Comme+il+faut+y+Tinta+verde.jpg)[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjdrUpS2U3Sd1U8nyLdMiRrPp3zML5wX_kv98T22hJB5sboBNb4KPU7hLUVN3FY_IkCLf7-e_ARrm_Hky_wtznUSKN_cBFtiMq6QfKCNjw5_V-Wb6fIe3XMf5VQdh3QEFfa_zzn_MJ8YNfK/s200/tinta+verde.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjdrUpS2U3Sd1U8nyLdMiRrPp3zML5wX_kv98T22hJB5sboBNb4KPU7hLUVN3FY_IkCLf7-e_ARrm_Hky_wtznUSKN_cBFtiMq6QfKCNjw5_V-Wb6fIe3XMf5VQdh3QEFfa_zzn_MJ8YNfK/s1600/tinta+verde.jpg)
+[![](/tangos-al-bardo/images/9214f9b599a2.jpg)](/tangos-al-bardo/images/db915ef3ab63.jpg)[![](/tangos-al-bardo/images/5c0ab6aa6e7d.jpg)](/tangos-al-bardo/images/39d3ca017310.jpg)
 
 El 7 de marzo de 1938, Odeón registra una placa de 78 rpm con las dos primeras grabaciones de la orquesta. De un lado: **Tinta verde**, en la otra cara: **Comme il faut**. Pichuco mostraba su fino paladar tanguero.
 
-   [](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg8dJcFMMZZNNRJ4nUA2TX1FDoWq3iNinPCYVSo5KDRpeePDvCpRmHkNuH0y9LJa5B4jGuJKRzHlc55v6VALVdOIPR3RIgrWL-NnoSo3ubzbrB02bO8bA235pzF5lTSkisc7Li3TAVa5di5/s1600/Comme+il+faut+y+Tinta+verde.jpg)[Tinta verde](http://sdrv.ms/UVUeQ0)
+   [](/tangos-al-bardo/images/db915ef3ab63.jpg)[Tinta verde](http://sdrv.ms/UVUeQ0)
 
 [Comme il faut](http://sdrv.ms/SanGyO)

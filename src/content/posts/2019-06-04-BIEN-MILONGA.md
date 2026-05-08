@@ -6,7 +6,7 @@ labels: ""
 tags: ["Enrique Cadícamo", "Francisco Canaro", "Osvaldo Pugliese", "Juan D'Arienzo", "Agustín Bardi"]
 ---
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgpFVDwk6Z1zLJs-vFli4M9BsUZPVslg7HkR9_LsjnhVRTftGyPuC-Y50Rnr8g358bkJk9_nWLdSjXGlAIp7YlbQTX677jMR3xvRCSNAEFk5J8CDIuMpLqf6HsBijI29ZJIJCZTi5s5Apwf/s200/Piernasas.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgpFVDwk6Z1zLJs-vFli4M9BsUZPVslg7HkR9_LsjnhVRTftGyPuC-Y50Rnr8g358bkJk9_nWLdSjXGlAIp7YlbQTX677jMR3xvRCSNAEFk5J8CDIuMpLqf6HsBijI29ZJIJCZTi5s5Apwf/s1600/Piernasas.jpg) * Marcando una candombeada*
+[![](/tangos-al-bardo/images/d9462c333a87.jpg)](/tangos-al-bardo/images/4a9fc082ecf6.jpg) * Marcando una candombeada*
 * fue luciendo medias lunas*
 * y entre cortes y quebradas*
 * iba el tango provocador...*

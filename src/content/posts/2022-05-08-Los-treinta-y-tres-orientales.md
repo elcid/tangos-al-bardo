@@ -10,7 +10,7 @@ Los Treinta y Tres Orientales es el nombre con el que se conoce a los hombres qu
 
 Dada la indefinición de la guerra entre las Provincias Unidas del Río de la Plata y el Imperio del Brasil, ambos estados acordaron establecer un nuevo país, el actual Uruguay, por lo que el objetivo original de la lucha (esto es, la reincorporación de la Banda Oriental a las Provincias Unidas del Río de la Plata) mutó en la independencia uruguaya y su ruptura definitiva respecto de las demás provincias argentinas.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjkw3HP09ctEti051nxQGNmewMPwRi1Rj4AzN0vwNBZoJFTjo7AodsgdFdgYkGPI2D2kp0KEfhfwQFE4uzeAr-e-cJVy6pdyIFx-TR4O2-qxpjli58XthC4-eGRGSElUzZM6je9yd08CQP9m_E5C0LaiCX2dr9iR_-Psx7B2kfStSb22dZ_MYNUAh2H6A/s320/Juan_Antonio_Lavalleja.png)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjkw3HP09ctEti051nxQGNmewMPwRi1Rj4AzN0vwNBZoJFTjo7AodsgdFdgYkGPI2D2kp0KEfhfwQFE4uzeAr-e-cJVy6pdyIFx-TR4O2-qxpjli58XthC4-eGRGSElUzZM6je9yd08CQP9m_E5C0LaiCX2dr9iR_-Psx7B2kfStSb22dZ_MYNUAh2H6A/s325/Juan_Antonio_Lavalleja.png)Juan Antonio lavalleja
+[![](/tangos-al-bardo/images/0f3ef678a977.png)](/tangos-al-bardo/images/f6e4bd69e13d.png)Juan Antonio lavalleja
 
 El 19 de abril de 1825 un grupo de hombres liderados por Juan Antonio Lavalleja y por Manuel Oribe, cruzaron desde Argentina, el Río Uruguay y desembarcaron en la Playa de la Agraciada, ubicada en lo que actualmente es el departamento de Soriano.
 

@@ -6,7 +6,7 @@ labels: ""
 tags: ["Alberto Castillo", "Alberto Echagüe", "Ricardo Tanturi", "Juan D'Arienzo"]
 ---
 
-[![](https://blogger.googleusercontent.com/img/a/AVvXsEjPSowoj5ztkRsJN8ZHdLBhu1-C1azHPDSHk62Omm7IZGkpkvIFFDKzNskOkzK-I8TcflGZ9G4JodJqanQxtUnq7LCkwyrexmDjABP3ZzJxcaGBtTLYAPAbZFgMqn673UtbSdrHw5YNkChCUpk16bXtivRpi-Geed_ArkZiRWyIlIQfP1CPpvM_ogC2lA=w200-h200)](https://blogger.googleusercontent.com/img/a/AVvXsEjPSowoj5ztkRsJN8ZHdLBhu1-C1azHPDSHk62Omm7IZGkpkvIFFDKzNskOkzK-I8TcflGZ9G4JodJqanQxtUnq7LCkwyrexmDjABP3ZzJxcaGBtTLYAPAbZFgMqn673UtbSdrHw5YNkChCUpk16bXtivRpi-Geed_ArkZiRWyIlIQfP1CPpvM_ogC2lA=s564)
+[![](/tangos-al-bardo/images/f40b537d87b6.jpg)](https://blogger.googleusercontent.com/img/a/AVvXsEjPSowoj5ztkRsJN8ZHdLBhu1-C1azHPDSHk62Omm7IZGkpkvIFFDKzNskOkzK-I8TcflGZ9G4JodJqanQxtUnq7LCkwyrexmDjABP3ZzJxcaGBtTLYAPAbZFgMqn673UtbSdrHw5YNkChCUpk16bXtivRpi-Geed_ArkZiRWyIlIQfP1CPpvM_ogC2lA=s564)
 
 Al compás dormilón
 de nuestro tango con mi brazo ciñendo tu cintura, murmurando mil frases de cariño, entreviendo mil cielos de ventura.

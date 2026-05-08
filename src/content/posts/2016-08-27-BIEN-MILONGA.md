@@ -10,7 +10,7 @@ Se acerca septiembre y en este mes que está por llegar, recomenzamos las clases
 
 Murat y Michelle han sido pareja de vida y de tango durante 11 hermosos años, en los que nos han dejado muestras de su creatividad y capacidad de enseñanza. Han transmitido a sus alumnos de todo el mundo que esta danza es un arte, promoviendo la creatividad de los mismos, dejando una fecunda huella que es muy de agradecer, sobre todo cuando uno comprueba las enseñanzas negativas que se advierten en tantos aprendices que no salen nunca de esta primera fase y perjudican los movimientos del resto de bailarines en la pista.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjLg_P0gdUBHawu0K0d9Gx4aj4ZFsOnzQ3CccrIu5f6mMBZ7Ly_p-aPMNO-8BUInn8Vmqod4qKCXAHnGi7iXhThwICe0t9mmUaIancBzZ2Klab74vwFPktv_c65r3kV1cWNGeusGkHui35j/s320/murat_sigrid.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjLg_P0gdUBHawu0K0d9Gx4aj4ZFsOnzQ3CccrIu5f6mMBZ7Ly_p-aPMNO-8BUInn8Vmqod4qKCXAHnGi7iXhThwICe0t9mmUaIancBzZ2Klab74vwFPktv_c65r3kV1cWNGeusGkHui35j/s1600/murat_sigrid.jpg) Murat Erdemsel y Sigrid Van Tilbeurgh
+ [![](/tangos-al-bardo/images/103e5ff625d2.jpg)](/tangos-al-bardo/images/cc653a1b8d2e.jpg) Murat Erdemsel y Sigrid Van Tilbeurgh
 
 Fueron defensores a ultranza de la correcta interpretación de cada tema y orquesta y en este sentido, tanto el uno como la otra se afanaron en la recreación y consiguieron lucir tanto el papel del hombre como el de la mujer, para ejemplo de todos aquellos que sólo buscan su lucimiento personal y olvidan lo importante que es convertir a la mujer en reina y foco de atención.
 

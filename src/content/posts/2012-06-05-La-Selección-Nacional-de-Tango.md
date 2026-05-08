@@ -13,7 +13,7 @@ La Selección estuvo integrada así:
 ***<u>Bandoneones</u>*****: Leopoldo Federico, Ernesto Baffa, Rodolfo Mederos, Walter Ríos, Horacio Romo y Pablo Mainetti.**
  ***<u>Violines</u>*****: Mario Abramovich, Eduardo Walckzack, Mauricio Marcelli, Damián Bolotin, Pablo Agri y Miguel Ángel Bertero.**  ***<u>Viola</u>*****: Mario Fiocca.**  ***<u>Violoncello</u>*****: Diego Sánchez.**  ***<u>Contrabajo</u>*****: Horacio Cabarcos.**  ***<u>Piano</u>*****: Nicolás Ledesma.**
  ** **En siguientes encuentros en la Torquato Tasso o en Chile se agregaron Julio Pane y Osvaldo Piro en fueyes. Lo interesante de esta iniciativa es mezclar a músicos de distintas generaciones, de primera línea. Y el resultado no pudo ser más feliz.
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiIZFY4MFoKGiPratvcvKjagC6Oa8kZkROPemt8i0hjjsSkDwwldYEIsNRqmsgwaWtog34x-fsMxIEbkJymUBBi1wgd7vmmkWZImZ58xmYJ09qobMQAXjPC-YQGbXGd957A75O3JmLoDSZ1/s1600/Mainetti,+Federico,+Medero,+tres+gen..JPG)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiIZFY4MFoKGiPratvcvKjagC6Oa8kZkROPemt8i0hjjsSkDwwldYEIsNRqmsgwaWtog34x-fsMxIEbkJymUBBi1wgd7vmmkWZImZ58xmYJ09qobMQAXjPC-YQGbXGd957A75O3JmLoDSZ1/s1600/Mainetti,+Federico,+Medero,+tres+gen..JPG) Mainetti, Federico y Mederos, 3 generaciones de fueyes
+ [![](/tangos-al-bardo/images/9e33104d8202.jpg)](/tangos-al-bardo/images/9e33104d8202.jpg) Mainetti, Federico y Mederos, 3 generaciones de fueyes
 
 
 

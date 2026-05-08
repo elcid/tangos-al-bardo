@@ -16,7 +16,7 @@ tags: ["Enrique Santos Discépolo", "José María Contursi", "Libertad Lamarque"
 
 -Nací musicalmente en los años 40. En el '39 conocí a don Francisco Canaro y me incorporé a su orquesta, pensando que sólo me iba a quedar en ella un par de meses, terminé estando diez años. Realmente no quería permanecer tanto tiempo con él, pero Canaro me trató siempre como a un hijo espiritual. Era tan grande su cariño que me designó heredero de toda su fortuna. Claro que, cuando me fui de su orquesta me quitó la herencia. Fue muy duro el golpe que recibió él con mi abandono.
 
-![Cultura Del Tango on X: "FRANCISCO CANARO, DIANA MAGGI, JUAN D'ARIENZO y MARIANO  MORES Rodaje de "La voz de mi ciudad" (Tulio Demicheli, 1953)  https://t.co/qlaEHFMM2d" / X](https://pbs.twimg.com/media/FAaSGC_VkAIBHtl.jpg)Canaro, Diana Maggi, D'Arienzo y Mores en el filme "La voz de mi ciudad"
+![Cultura Del Tango on X: "FRANCISCO CANARO, DIANA MAGGI, JUAN D'ARIENZO y MARIANO  MORES Rodaje de "La voz de mi ciudad" (Tulio Demicheli, 1953)  https://t.co/qlaEHFMM2d" / X](/tangos-al-bardo/images/e79147735c3a.jpg)Canaro, Diana Maggi, D'Arienzo y Mores en el filme "La voz de mi ciudad"
 
 **- ¿Cómo fue el día en el que le avisó a Canaro que lo dejaba?**
 

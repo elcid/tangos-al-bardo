@@ -8,11 +8,11 @@ tags: ["Leopoldo Federico", "Juan Carlos Copes", "Horacio Malvicino", "Atilio St
 
 Hoy estoy apiazzollado total y encima una bailarina amiga, desde Japón, quiere que le dé máquina a los recuerdos de Ástor. Alguna vez conté que estuvo un domingo a la mañana en el programa: *Dialogando con swing,* que hacíamos con Papaleo de 8.30 a 12.30 y por el que desfilaron tantos grosos del tango, de fútbol, o artistas de mucho calado.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhOEVJlPOop4-NI0Nopg2WMUpph7AZt2XqDe1ol1YV190PwyVUFaSgFRCUCdxoZOmHYemY7Y6h4JilVdE3YTkp5IFSK9JUBbvIuEXKvz2SuYSizFugrNcBk8dNEopPdyqH3iqI8Hf6jLwY/s1600/PIAZZOLLA+504.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhOEVJlPOop4-NI0Nopg2WMUpph7AZt2XqDe1ol1YV190PwyVUFaSgFRCUCdxoZOmHYemY7Y6h4JilVdE3YTkp5IFSK9JUBbvIuEXKvz2SuYSizFugrNcBk8dNEopPdyqH3iqI8Hf6jLwY/s1600/PIAZZOLLA+504.jpg) Aquellos inicios con Fiorentino.
+ [![](/tangos-al-bardo/images/c922c0147a02.jpg)](/tangos-al-bardo/images/c922c0147a02.jpg) Aquellos inicios con Fiorentino.
 
 Piazzolla se cabreaba por cualquier cosa. Por ejemplo, yo ponía, para ilustrar la charleta, algún tema del famoso Octeto que marcó un rumbo, incluso en su carrera, y me replicaba que éso era viejo. Que no pasara más temas del Octeto. El mismo reconocía en privado que había sido en 1955 todo un impacto artístico, pero no tuvieron trabajo con el mismo y tuvieron que ceder las regalías para poder grabar. Yo sabía que, en el fondo, estaba muy orgulloso de aquel paso artístico. Pero Ástor era así.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhttxVWTNVMv3JYi1OdT88sD0F6_rr98mmoAEWhB97sPY4kjSBLocsePUfFvXWG4bX8jCk_WQP2hAWqOonlsAYCADfxFT-AqAq6ACQIn4lETe4eHiqDxa1XqCROjF29A5knCRcB3eiaz0s/s1600/OCHO.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhttxVWTNVMv3JYi1OdT88sD0F6_rr98mmoAEWhB97sPY4kjSBLocsePUfFvXWG4bX8jCk_WQP2hAWqOonlsAYCADfxFT-AqAq6ACQIn4lETe4eHiqDxa1XqCROjF29A5knCRcB3eiaz0s/s1600/OCHO.jpg)
+[![](/tangos-al-bardo/images/d068398e9f58.jpg)](/tangos-al-bardo/images/d068398e9f58.jpg)
 
 -*Hoy ese elepé sigue dando la vuelta al mundo, tiene cientos de reediciones, llenando los bolsillos de los vagos que viven a expensas de los verdaderos dueños de la obra, en este caso los músicos del Octeto: Enrique Mario Francini, Hugo Baralis, José Bragato, Juan Vasallo, Atilio Stampone, Horacio Malvicino, Leopoldo Federico y yo* -decía.
 
@@ -25,7 +25,7 @@ El mismo Ástor nos aseguraba en el programa -allá por 1973- que era el mejor t
 
  -Era una época en que casi todos los temas del repertorio tenían la polenta de "Calambre", Los poseídos", "Lo que vendrá". . Y Adiós Nonino terminaba al revés, como la vida, se iba yendo, se apagaba. A la gente le gustó de entrada. Yo diría porque tiene un misterio especial, la melodía, y en contraste con la melodía, la parte rítmica, el cambio de tono y ese glorioso final con un desenlace triste. Quizá gustó por eso, porque era diferente a todo. Hice alrededor de veinte arreglos del tema. Y si me preguntás cual me gusta más, fijate qué extraño, me gusta mucho el del conjunto electrónico. Ahí tocaban el Zurdo Roizner, Cirigliano, Cevasco, mi hijo Daniel, también estaba Malvicino. Otro arreglo que me gustó fue el que hice para el Noneto.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEirSt68KX44d0ETevHR1CsBFEcwfDeFdk-CxQvXKw4Fpt3EYL5ZnAZmKq-wUA38Ebtb2QTRdDVJFOnbsNx_GnTla3f-W4PwrlKGbpRfjP46rfa-ftkAdCY05zfYTdzpmzBzs3Qn9P3qqLs/s1600/Octeto+Buenos+Aires+en+1956+(Canal%2B7).jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEirSt68KX44d0ETevHR1CsBFEcwfDeFdk-CxQvXKw4Fpt3EYL5ZnAZmKq-wUA38Ebtb2QTRdDVJFOnbsNx_GnTla3f-W4PwrlKGbpRfjP46rfa-ftkAdCY05zfYTdzpmzBzs3Qn9P3qqLs/s1600/Octeto+Buenos+Aires+en+1956+(Canal%2B7).jpg) El recordado Octeto que marcó toda una época.
+ [![](/tangos-al-bardo/images/4a0a34503fa5.jpg).jpg)](/tangos-al-bardo/images/4a0a34503fa5.jpg).jpg) El recordado Octeto que marcó toda una época.
 Yo sentí el primer impacto fuerte con la música del Ástor Piazzolla el día en que estaba en la peluquería, y en el programa de Julio Jorge Nelson, éste pasó su tango "*Lo que vendrá*" por Aníbal Troilo y su orquesta. La primera versión, de 1957, con arreglo del propio Ástor. Me impresionó mucho porque me parecía ver el futuro del tango en ese tema.
 
 

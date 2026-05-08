@@ -10,7 +10,7 @@ Qué hermosa versión de este tango, por la Típica Victor cantando Angelito Var
 
 Y no puedo menos que recordar cuando en los años sesenta/setenta, por ejemplo, yo recorría Sudamérica, México, Estados Unidos, países de Europa, debido a mi profesión periodística, y era muy difícil encontrar a compatriotas en esas ciudades, por distintos lugares. Hoy se los puede ver en toda Europa, en ciudades sudamericanas, de Estados Unidos, México, Australia y demás.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh_a-HUlZXwGJirzSH5MdNnYIHlLAipcE0ioY6HREAInwbQt9RBzvoV3J-QBAWH3VLehbJtNM49pcsGzVogUQV7EOkIQAOxxWcmLSVVoEyR0Z7TnrGgeUHz17kACNSe_Ox8EwOrdj4UWuv7/s1600/Adi%25C3%25B3s+Buenos+Aires.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh_a-HUlZXwGJirzSH5MdNnYIHlLAipcE0ioY6HREAInwbQt9RBzvoV3J-QBAWH3VLehbJtNM49pcsGzVogUQV7EOkIQAOxxWcmLSVVoEyR0Z7TnrGgeUHz17kACNSe_Ox8EwOrdj4UWuv7/s1600/Adi%25C3%25B3s+Buenos+Aires.jpg)
+[![](/tangos-al-bardo/images/8623326a96ef.jpg)](/tangos-al-bardo/images/8623326a96ef.jpg)
 
 
 Quizás por eso, este tango que se estrenó en la película del mismo nombre, con guión y dirección de Leopoldo Torres Ríos, en el mismo 1938, tiene tanto de nostalgia y sentimiento. Los primeros actores del filme eran Tito Lusiardo, Floren Delbene y Amelia Bence, y por sobre todo se trataba de una peli musical, con mucho tango, por supuesto. El propio Torres Ríos escribió la letra del título y Rodolfo Scianmarella se encargó de la música.
@@ -23,7 +23,7 @@ La letra del tango es más bien sencilla, pero la interpretación de orquesta y 
 
 Debo alejarme de mis tierras tan queridas,
 debo alejarme, sangrando el corazón,
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhZvj_qdOy2uOdugZz2JowHtfjXt8madr2AxJSydU-i121iU7g3ScDEMVMKHyjwq-mQqPTKUp7CVr4yVxJD52JZQh_k_mf4KAJOP_u8SrSG09FNkTy5cDbaxwWe5SrU0E0nuknX__oauBb8/s1600/A+VAR.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhZvj_qdOy2uOdugZz2JowHtfjXt8madr2AxJSydU-i121iU7g3ScDEMVMKHyjwq-mQqPTKUp7CVr4yVxJD52JZQh_k_mf4KAJOP_u8SrSG09FNkTy5cDbaxwWe5SrU0E0nuknX__oauBb8/s1600/A+VAR.jpg)como el poeta he de decir en mi partida
+[![](/tangos-al-bardo/images/45f325cfa950.jpg)](/tangos-al-bardo/images/45f325cfa950.jpg)como el poeta he de decir en mi partida
 Adiós Buenos Aires, amigos adiós...
 
 Noches porteñas que supieron de mi dicha,

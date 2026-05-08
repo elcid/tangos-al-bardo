@@ -22,7 +22,7 @@ Mi amigo Lito me manda este apunte que transcribo a continuación y que refleja 
 
 -Escucha a Enrique Alessio, primer bandoneón, en su famosa variación del segundo coro, magistral, sin palabras.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjI6N0_emRaSIhqaWJ8MePzwu6B3edckK6I54OIl4IgkSgIEQaIUj6P_V1wrYGAxIZNfvK9kkyVjw-qUzecZqR8lvGByZAa_CV2BNcAbeDhh7qmuUshpfz7-mVxKRzoEfHKkFSEKQM_mfI/s1600/D'Arienzo-Alessio.gif)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjI6N0_emRaSIhqaWJ8MePzwu6B3edckK6I54OIl4IgkSgIEQaIUj6P_V1wrYGAxIZNfvK9kkyVjw-qUzecZqR8lvGByZAa_CV2BNcAbeDhh7qmuUshpfz7-mVxKRzoEfHKkFSEKQM_mfI/s1600/D'Arienzo-Alessio.gif) D'Arienzo y Alessio
+ [![](/tangos-al-bardo/images/d09157457966.gif)](/tangos-al-bardo/images/d09157457966.gif) D'Arienzo y Alessio
 
 - No dejes de lado la melancolía del final, con el toque impecable del primer violín de la orquesta, Cayetano Puglisi.
 

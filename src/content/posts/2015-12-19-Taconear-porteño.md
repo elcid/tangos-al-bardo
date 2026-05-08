@@ -10,7 +10,7 @@ Esta milonga de Lorenzo Barbero y Ricardo Otero recuerda los comienzos de la mil
 
 En la segunda parte y primera bis de de la misma, habla de la expansión de las milongas por todos los barrios porteños, algo que tantos sobrevivientes de esas épocas podemos recordar con orgullo y pasión.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhPFPzfZjHDPcRXvyr6PrBXLiB8o5cm9ft9W8lBUTRqcvE2FdFliRE5Df-KUDzzM4oZ6qelOdXO9Dv27cbb9WNTxA-4NIV9idTsxxepqu8ee1vcHKiIepm1DRmkZqtQvKNjt_8eUo6SWNA5/s320/00_Fabi%25C3%25A1n+Arce.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhPFPzfZjHDPcRXvyr6PrBXLiB8o5cm9ft9W8lBUTRqcvE2FdFliRE5Df-KUDzzM4oZ6qelOdXO9Dv27cbb9WNTxA-4NIV9idTsxxepqu8ee1vcHKiIepm1DRmkZqtQvKNjt_8eUo6SWNA5/s1600/00_Fabi%25C3%25A1n+Arce.jpg) Sebastián Arce y Mariana Montes  Milonga que en las barriadas
+ [![](/tangos-al-bardo/images/2063a543b289.jpg)](/tangos-al-bardo/images/165ad60bf198.jpg) Sebastián Arce y Mariana Montes  Milonga que en las barriadas
 sin más luz que las estrellas
 viste a la Rubia Mireya
 en brazos del Cachafaz.

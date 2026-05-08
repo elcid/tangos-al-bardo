@@ -8,7 +8,7 @@ tags: ["Libertad Lamarque", "Carlos Di Sarli", "Roberto Rufino", "Alfredo Belusi
 
 Este tango tiene un subtítulo que dice: *Una vez y adiós*. Lo pergeñó el imaginativo e inagotable Héctor Marcó (Marcolongo), que dejó de cantar para escribir versos de tango y en este último rubro fue realmente un portento, alumbrándonos largos ratos con esas letras que dejan rastro. Porque además de su prolificidad, supo pintar situaciones románticas especialmente, pero también de otra índole. Y lo hizo en colaboración con una gran cantidad de compositores -Di Sarli lo eligió especialmente-, que supieron valorar sus pinturas cotidianas transformadas en verso.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgs0v4-XIsOj9waqGZLm1ZTBIpanmUfhf2lUqFIxd1mRX79xtnJ_DvTLz6WP0w8UQFP-jkR0QYAZgmVsJiM1rbWKgO_Vr9XAL7k4TBoyH1XAtoRVNgMXQpJKhgp4j5UVopzaxLXI-bZAMw/s1600/Marc%C3%B3.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgs0v4-XIsOj9waqGZLm1ZTBIpanmUfhf2lUqFIxd1mRX79xtnJ_DvTLz6WP0w8UQFP-jkR0QYAZgmVsJiM1rbWKgO_Vr9XAL7k4TBoyH1XAtoRVNgMXQpJKhgp4j5UVopzaxLXI-bZAMw/s1600/Marc%C3%B3.jpg) Héctor Marcó, cantor, poeta, turfman.
+ [![](/tangos-al-bardo/images/0d399d05017e.jpg)](/tangos-al-bardo/images/0d399d05017e.jpg) Héctor Marcó, cantor, poeta, turfman.
 El tango que traigo hoy como motivo para el blog, lo realizó en sociedad con el pianista Alfredo Malerba, para mayor gloria de Libertad Lamarque que lo cantó en la película *Una vez en la vida*. En este filme la diva tuvo como compañero de rubro a Luis Aldás que poco tiempo después se radicaría para siempre en México, y fue dirigido por el chileno Carlos Borcosque (desde los 12 años residía en Argentina).
 
 

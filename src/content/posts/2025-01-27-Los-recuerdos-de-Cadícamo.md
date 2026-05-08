@@ -18,7 +18,7 @@ En esa época fue cuando el diario "*Última hora*" organizó un concurso de poe
 
 Gardel, asiduo lector de "*Última hora*", famosa por sus pronósticos hípicos, leyó aquella nota de Celedonio flores y resultando tan de su agrado, sin previa consulta al autor, le hace adaptar música con su guitarrista *El Negro Ricardo*, aun cuando la misma siempre figuró a nombre de Gardel-Razzano.
 
-[![](https://blogger.googleusercontent.com/img/a/AVvXsEgTYyoc38PoCdFNkY-f09rSnI0jXezJTRXXI4aVNCh88j2DBO4YzrvQ8_Wis1o0kiwz9HQSCrLowbICVbdgrNqHEwdZ4WxLkIDZlB9NnydXbIUOBWHjpy_kt3PmZJ9jw9JJYCZ8jUvP0fvrmasZLHBkbRC5QhDA11ElqGkSScGTfApKaLZb0PAuHDZ9kWOp)](https://blogger.googleusercontent.com/img/a/AVvXsEgTYyoc38PoCdFNkY-f09rSnI0jXezJTRXXI4aVNCh88j2DBO4YzrvQ8_Wis1o0kiwz9HQSCrLowbICVbdgrNqHEwdZ4WxLkIDZlB9NnydXbIUOBWHjpy_kt3PmZJ9jw9JJYCZ8jUvP0fvrmasZLHBkbRC5QhDA11ElqGkSScGTfApKaLZb0PAuHDZ9kWOp)Celedonio Flores
+[![](/tangos-al-bardo/images/e186d0f322ba.jpg)](/tangos-al-bardo/images/e186d0f322ba.jpg)Celedonio Flores
 
 Lo comenzó a ensayar pareciéndole que era una creación que debía grabar de inmediato. Lo citó a Cele al estudio de grabación el mismo día que iba a realizar el disco, haciéndosela escuchar primero, y aquél al terminar de oírla se emocionó tanto que no hacía otra cosa que agradecerle ese honor. Según me comentó Cele, cuando muchos años después de este episodio, éramos fraternales amigos, en aquel histórico momento Gardel, con ese gracejo tan porteño que tenía al expresarse, le dijo:
 

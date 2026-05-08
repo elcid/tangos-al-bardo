@@ -20,7 +20,7 @@ El muchacho decide independizarse de la mano del gran cantor y entonces empresar
 Roberto Mario Brandy Mancini -su nombre completo- se convierte en el gran ídolo de Colombia, tiene su propio local, lo llaman de todo el país, y tarda en regresar a su Buenos Aires querido, donde lo esperan los aplausos, los amigos ganados en el ambiente y las celebradas actuaciones.
 
 A su vuelta, graba con distintos conjuntos, interviene en programas de Televisión, en radio, en locales tangueros y amplía su enorme número de amigos.
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg0F2Poq913gO52tArd1baUfah-_OY4kf3tECzq89Amp6SwEA7fqhTMXfF4OW0FOmmGONfNCcjU9qOe3CTE5CIQORFi4bl8mcix7ubkVNmQiRiwHyEOMryMOemw9X4_Te-5h1pipjS_Dao0/s320/IMG_2188.JPG)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg0F2Poq913gO52tArd1baUfah-_OY4kf3tECzq89Amp6SwEA7fqhTMXfF4OW0FOmmGONfNCcjU9qOe3CTE5CIQORFi4bl8mcix7ubkVNmQiRiwHyEOMryMOemw9X4_Te-5h1pipjS_Dao0/s1600/IMG_2188.JPG) Roberto Mancini, Otero, Jorge Bocacci y Fabián Bertero  Hoy tiene su propio Foro: El Tango Club, lo conocemos como *El Capi* y nos acompaña con esa calidez humana que le ha granjeado tantas simpatías.
+ [![](/tangos-al-bardo/images/f3ee7e9e20eb.jpg)](/tangos-al-bardo/images/c1dc15a19ffa.jpg) Roberto Mancini, Otero, Jorge Bocacci y Fabián Bertero  Hoy tiene su propio Foro: El Tango Club, lo conocemos como *El Capi* y nos acompaña con esa calidez humana que le ha granjeado tantas simpatías.
 
 Por eso es mi gran amigo.
 

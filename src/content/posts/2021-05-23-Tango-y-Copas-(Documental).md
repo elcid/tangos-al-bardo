@@ -8,7 +8,7 @@ tags: ["Aníbal Troilo", "Jorge Casal"]
 
 Este documental es, realmente, una delicia para los tangueros. . Nos permite recordar una época maravillosa del tango. Los inicios de la orquesta de Aníbal Troilo relatado en directo por sus músicos y compañeros de aventuras tangueras. Análisis de su estilo, de otras orquestas, anécdotas.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhV4g1wAUBOXqCP5wgffPeSxhAP82jWNiQtjdR4XR3mQP0XDLxNdaZ6_ueVy20D7Xox4GtD5dJvySAnqa5gv4hy_KnzJvchFy_THmSJoDibImycIQbwx2Sv9heBOCqSBaoMd0mijKDWO3iu/w400-h293/JORGEykEOHcXEAg1JFP.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhV4g1wAUBOXqCP5wgffPeSxhAP82jWNiQtjdR4XR3mQP0XDLxNdaZ6_ueVy20D7Xox4GtD5dJvySAnqa5gv4hy_KnzJvchFy_THmSJoDibImycIQbwx2Sv9heBOCqSBaoMd0mijKDWO3iu/s941/JORGEykEOHcXEAg1JFP.jpg)Sexteto de Elvino Vardaro con Jorge Fernández, Troilo y Baralis
+[![](/tangos-al-bardo/images/7ed32e3c21a5.jpg)](/tangos-al-bardo/images/b3883ab28ba3.jpg)Sexteto de Elvino Vardaro con Jorge Fernández, Troilo y Baralis
 
 Desfilan personajes importantes y sus relatos se van empinando en la rueda. Hugo Baralis, Jorge Casal, Nito Farace, Jorge Argentino Fernández, Reynaldo Nichele, Angélica Ric. La idea y realización del corto es de Alberto Carpo Cortés. Fotografía y cámara: Juan Flesca. Investigación periodística: Carlos Puente. Y los responsables del mismo: Programa Inter Faces, Universidad Nacional de Tres de Febrero. Centro de Producción Audiovisual.
 

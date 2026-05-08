@@ -12,7 +12,7 @@ Correspondió a Carlos Gardel llevar al escenario del teatro Esmeralda (actualme
 
 Al año siguiente, la compañía Muiño-Alippi incluyó en el acto de cabaret del sainete de José González Castillo y Alberto Weisbach: *Los dientes del perro*, el tango **Mi noche triste**, que alcanzó en los labios de la actriz Manolita Poli una clamorosa dconsagración.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiwKTy4RXIZ7muKC-QjtA6VHmuaXopZsjm1DxKCYLGt0PXvD2woYHdKixv8iyfaq3ao_WgKJpeBhRVVv_h5pyQdr2v9Pv96CF7IZOGRFFCLpiqGG7GkWOOOoHObargOW2bWb9mTnz0oUy1m/s320/Manolita_Poli.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiwKTy4RXIZ7muKC-QjtA6VHmuaXopZsjm1DxKCYLGt0PXvD2woYHdKixv8iyfaq3ao_WgKJpeBhRVVv_h5pyQdr2v9Pv96CF7IZOGRFFCLpiqGG7GkWOOOoHObargOW2bWb9mTnz0oUy1m/s337/Manolita_Poli.jpg)Manolita Poli
+[![](/tangos-al-bardo/images/5fd2ae28e34f.jpg)](/tangos-al-bardo/images/32507a66f872.jpg)Manolita Poli
 
 Y también el tango se había impuesto en los escenarios teatrales desde que Roberto Firpo apareciera con su orqueesta en el sainete *Cabaret Montmartre*, de Alberto Novión. Fue la iniciacvión de toda una época del sainete porteño, en que resultaba imprescindible la aparición de una orquesta típica en escena, y el estreno de algún tango cuya anticipada popularidad aseguraba la permanencia de la obra en cartel.
 

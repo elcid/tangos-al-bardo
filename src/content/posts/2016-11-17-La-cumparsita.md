@@ -11,7 +11,7 @@ labels: ""
 
 Además se utiliza para diferentes actuaciones artísticas que nada tienen que ver con el tango, como vemos reiteradamente en escenarios de música clásica, patinaje, natación, mimos, payasos y otras artes. Cuando uno quiere contestarse esa pregunta inicial, como respuesta, no tiene más que remitirse a estas actuaciones tan dispares, como en unos juegos Olímpicos.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiLqI7RGCdgF8g0bHL6G6Q0x7-z12EeO-LHchiQ2IpKNC-ti2y0rJerSFRaYG8-2HhK3DwPbzzoee4lM3IVL3T2c6uBB1tAMMwbHozo8qwZXyQgj0Bcq55XzSSFDKb7jPDvqUN-xoRFYlkk/s320/La+cum.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiLqI7RGCdgF8g0bHL6G6Q0x7-z12EeO-LHchiQ2IpKNC-ti2y0rJerSFRaYG8-2HhK3DwPbzzoee4lM3IVL3T2c6uBB1tAMMwbHozo8qwZXyQgj0Bcq55XzSSFDKb7jPDvqUN-xoRFYlkk/s1600/La+cum.jpg) El prodigio del baile
+ [![](/tangos-al-bardo/images/d9d2f25e658f.jpg)](/tangos-al-bardo/images/232aa846ae85.jpg) El prodigio del baile
 
 Y, en este rubro podemos gozar con la pareja española de natación sincronizada, integrada por Andrea Fuente y Ona Carbonell, que en la Olimpiada de Londres 2012, se llevaron la medalla de plata, bailando bajo el agua, **La cumparsita**, el tango inmortal. Dicen que el tango da para todo, pero éste aguanta uso y abuso...
 

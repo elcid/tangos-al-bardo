@@ -18,7 +18,7 @@ Como canta Angelito Vargas en *Bailarín de contraseña*, la milonga siempre fue
 
 Es una de las cosas más lindas que nos han pasado, nos volverán a pasar y sentiremos siempre esas cosquillitas en el pecho, al salir a la pista a dibujar. Y cuando estás bailando con la acompañante ideal, ésa que te incita a crear, te empuja en la improvisación constante, sentís que tocás el cielo. Aprendí a bailar tango a los catorce años, a los quince, los muchachos más grandes me empujaron al rodeo, en la milonga, y nunca termino de saciar mis ganas de bailar.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhXKJtXnd7SCTGHkMt5SYzl7AuxvZ5gwvJ9Rl4OjDIFW0WxyvHznJtKo79rXqh8sybTzM-TyxDp6SV_-Y5y9WqSQ31hkzm6HeB9bzb_OokLORdjeKQDF6mUfU21-iQMb9OQECfQrznR6_E/s1600/Eladia+Blazquez.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhXKJtXnd7SCTGHkMt5SYzl7AuxvZ5gwvJ9Rl4OjDIFW0WxyvHznJtKo79rXqh8sybTzM-TyxDp6SV_-Y5y9WqSQ31hkzm6HeB9bzb_OokLORdjeKQDF6mUfU21-iQMb9OQECfQrznR6_E/s1600/Eladia+Blazquez.jpg) Eladia Blázquez
+ [![](/tangos-al-bardo/images/31a098e5c232.jpg)](/tangos-al-bardo/images/31a098e5c232.jpg) Eladia Blázquez
 Como dice Eladia Blázquez en su *Milonga en el viento, *que lleva música de Pablo Ziegler:
 
 *Y a fuerza de soñar,*
@@ -64,7 +64,7 @@ Esos versos, como casi todos los de Eladia, tienen una polenta y una sutileza on
 
 No sé porque, repaso esta maravilla de versos y pienso en Alejandra Mantiñán. La imaginación se despliega y la veo volando, empujada por el viento y encajada en el poema.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi7W0g9UCLKf4LAxIwNm2lwwPgchdnYG_ntiMsi5kauAB5vpVsZ-dvgqT2Wg3gLgKvXRqMZ4hm3CIoesI7dPpKda2GXHG8-JMoYzufJRPLDSG7r5KFQ6kJW4f9-pzYs20fpCSoy9PYm-u0/s1600/Manti.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi7W0g9UCLKf4LAxIwNm2lwwPgchdnYG_ntiMsi5kauAB5vpVsZ-dvgqT2Wg3gLgKvXRqMZ4hm3CIoesI7dPpKda2GXHG8-JMoYzufJRPLDSG7r5KFQ6kJW4f9-pzYs20fpCSoy9PYm-u0/s1600/Manti.jpg) Alejandra Mantiñán y Leandro Palou
+ [![](/tangos-al-bardo/images/de0fa24fd75c.jpg)](/tangos-al-bardo/images/de0fa24fd75c.jpg) Alejandra Mantiñán y Leandro Palou
 Podemos gozar viéndola bailar con Leandro Palou en un Festival en Italia, el tango de Maruja Pacheco Huergo y Virgilio San Clemente: *El adiós*. Por la orquesta de Osvaldo Pugliese y el cantor Jorge Maciel.
 
 ¡Qué de cositas lindas!

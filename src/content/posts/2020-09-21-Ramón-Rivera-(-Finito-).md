@@ -12,7 +12,7 @@ Aquel jovencito que llegó con su tango añejo, de Villa Pueyrredón al barrio d
 
 Doble mérito, porque dejó pasar veinticinco años para mostrarse, ya que crió a sus dos hijas (ambas abogadas) y a un hijo comerciante, para después salir a la palestra. La compañera, su señora esposa (María Teresa) lo acompañaba como una sombra, así podía decir su mensaje, que era un sueño, al decir parafraseando, refiriéndome a su tango danza, ese monumento de ideas hecho movimientos.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhyEnNbYCSpu5UU-Cfa1TSjFspepk5JeYES_Uyb5an_ITJV4nuVbqfyaScA8xQhzWHuWt6FbBRyDPmXNTlCEEKx5xFK-EtCDTJbq05ZLF4uPAVieHvutAx61GovfGSnTSj-yW-W78QSy8bt/s0/fino+Ribera.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhyEnNbYCSpu5UU-Cfa1TSjFspepk5JeYES_Uyb5an_ITJV4nuVbqfyaScA8xQhzWHuWt6FbBRyDPmXNTlCEEKx5xFK-EtCDTJbq05ZLF4uPAVieHvutAx61GovfGSnTSj-yW-W78QSy8bt/s301/fino+Ribera.jpg)Finito Rivera y su esposa María Teresa
+[![](/tangos-al-bardo/images/3d5e96f3d4cc.jpg)](/tangos-al-bardo/images/de6cdfe7e7a4.jpg)Finito Rivera y su esposa María Teresa
 
 Su baile era una conjunción de formas en busca de la belleza, hecha con un accionar de recursos naturales, ora se deslizaba "sin tocar el suelo", otras veces lo acariciaba, hasta que irrumpía en el giro, que lo describía dándole un sentido egocéntrico, como si fuese el mago del equilibrio en persona. en la emoción del tango, era el tango viejo y el nuevo acrisolado, como fundido en uno solo.
 

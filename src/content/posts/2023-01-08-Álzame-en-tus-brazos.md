@@ -8,7 +8,7 @@ tags: ["Mario Battistella", "Alberto Podestá", "Carlos Di Sarli", "Roberto Firp
 
 Este valsecito contiene unos ingredientes realmente conmovedores en sus versos y creo que Mario Battistella, el autor de los mismos, encontró la historia en una realidad cercana, que viene envuelta en emociones atrapadas por las palabras de otros. Y así vemos cómo el nihilismo de la muerte aleja al personaje de la mujer que amaba, y lo deja sin opciones, sin ideales ni sueños.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgJfjm1TgDw-8N-FEi4v8XN1AORxfVSPR4ZFQnEedqNS6ZZvfUhkD7KqOcPOsn0IRkTWJ8A395_MoXORSAMqUFNCBq0Aw3GO8U987uw4VoR7kgTKw7bYjlx8Cz3Pv0OO8MjwWgyo8VPjFCNprtkEbQ5aKfygaMtkRCx1sYvaistGW2fT0dxEe1kE01iHA/w305-h320/Mario-Battistella.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgJfjm1TgDw-8N-FEi4v8XN1AORxfVSPR4ZFQnEedqNS6ZZvfUhkD7KqOcPOsn0IRkTWJ8A395_MoXORSAMqUFNCBq0Aw3GO8U987uw4VoR7kgTKw7bYjlx8Cz3Pv0OO8MjwWgyo8VPjFCNprtkEbQ5aKfygaMtkRCx1sYvaistGW2fT0dxEe1kE01iHA/s213/Mario-Battistella.jpg)Mario Battistella
+[![](/tangos-al-bardo/images/5ea0b326d602.jpg)](/tangos-al-bardo/images/56989c235681.jpg)Mario Battistella
 
 Siente un peso de lápida sobre su corazón desangrado ante la adversidad. Se fue de pronto el tiempo dilatado de las caricias, el tiempo del éxtasis amoroso y la espita de la melancolía lo sumerge en profundas reflexiones. Su égloga casi parece un determinismo cuando insta a su amada a volver a la tierra desde su imaginario cielo, para llevarlo con ella.
 

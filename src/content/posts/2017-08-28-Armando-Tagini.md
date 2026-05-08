@@ -8,7 +8,7 @@ tags: ["Francisco García Jiménez", "José María Contursi", "Enrique Rodrígue
 
 Por una razón cultural y lógica, para que llegaran al tango poetas de la envergadura de Homero Manzi, Cátulo Castillo, José María Contursi, Homero Expósito o Eladia Blázquez, por ejemplo, antes tenían que haber tallado los adelantados para explotar la fuerza mineral de la palabra, los costumbrismos de la ciudad feérica, el substrato que crece en los suburbios afiliándose a la raíz de la música popular por excelencia.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjERDLHS8-Zr_yXkt-tEWSZbhpzRGPFc0MAB54Q3E9jN-V59RTk2ffYjRwNi_SDfYgVDCqQO6NUhn2gGMBnVoCXSodzBmUg0bwPndxFIm_hd5wBIDGW1XsvsoliBRy1iJ3G6wzLDnwOpwKl/s320/Tagini.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjERDLHS8-Zr_yXkt-tEWSZbhpzRGPFc0MAB54Q3E9jN-V59RTk2ffYjRwNi_SDfYgVDCqQO6NUhn2gGMBnVoCXSodzBmUg0bwPndxFIm_hd5wBIDGW1XsvsoliBRy1iJ3G6wzLDnwOpwKl/s1600/Tagini.jpg) Armando José María Tagini
+ [![](/tangos-al-bardo/images/b30453c1924f.jpg)](/tangos-al-bardo/images/c51326e107ec.jpg) Armando José María Tagini
 
 Y uno de los pilares de aquella avanzada fue precisamente Armando José María Tagini, nacido en el barrio del Abasto en junio de 1906, que se prometía cantor como el malogrado Gardel, pero que conseguiría finalmente el éxito en las páginas que le grabaría precisamente el cantor eterno, al estar metido de lleno en la composición. Sus dos grandes pasos hacia la cumbre los da cuando apenas tiene 21 años y lanza esos dos primeros temas que Gardel lleva al disco con las guitarras de Barbieri y Ricardo: **Gloria** y **La gayola** (ambas el día 20/8/1927). Nada menos. El primero con música de Humberto Canaro y el segundo compuesto con Rafael Tuegols . Dos golazos.
 
@@ -18,7 +18,7 @@ Su padre italiano le pedía siempre que trabajara y así lo haría en las oficin
 
 En 1927, precisamente, participa en los célebres concursos de Max Glücksmann, con su tango **Perfume de mujer**, compuesto en colaboración con el pianista Juan José Guichandut, y obtienen el segundo premio, detrás de *Noche de Reyes*. Belleza de tema que Gardel lleva al disco el 22 de octubre de aquel año 1927, y en cuyos versos románticos ya se perciben al poeta que perfila un estilo distinto.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjpfAVgUuIF_PLMAcmUOWTPyUVMCbhGpfmokYNKgIClaivowZhHJLlV-lIOSo8a6YZlM4ZxtyHA5L6SN-dIGDq7vsw_hSK50ey5ba8jzWmiM7zY5MU-GAj6hKGu703f91uG6OfSCFP-DQJZ/s320/perfume_de_mujer.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjpfAVgUuIF_PLMAcmUOWTPyUVMCbhGpfmokYNKgIClaivowZhHJLlV-lIOSo8a6YZlM4ZxtyHA5L6SN-dIGDq7vsw_hSK50ey5ba8jzWmiM7zY5MU-GAj6hKGu703f91uG6OfSCFP-DQJZ/s1600/perfume_de_mujer.jpg)*Mujer, ¿te acuerdas de mí?*
+[![](/tangos-al-bardo/images/c4e45edaf165.jpg)](/tangos-al-bardo/images/32039ee898de.jpg)*Mujer, ¿te acuerdas de mí?*
 **Yo soy aquel muchacho soñador **
 *que hallaste tú, cargando con la anemia*
 *de su vida bohemia, de ensueño y de dolor. *

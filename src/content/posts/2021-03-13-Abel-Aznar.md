@@ -10,7 +10,7 @@ Es de justicia volver a aquellos años cincuenta, cuando el tango iba atravesand
 
 En esa feliz conjunción de fondo-forma, el arte de cincelar versos que logren expandirse con la música adecuada, el talento de los compositores y la interpretación de orquestas y voces tangueras, apareció allá por fines del cuarenta este hombre nacido y criado en una localidad de Merlo, en el gran Buenos Aires. Un hijo de aragonés e irlandesa que enganchó de voleo un tema y prendió en la oreja de los tangueros con la ristra de todos los que vendrían detrás..
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgufW9Odo5xal2a9nSZfFTjg5Wrl9SDN9ahV1DH0VRSbgfOqQlqn-XPGBH5fW7V4gR2unbaQrV6efXpZPOk7gM_K6prRzCLlmHGN0ZgJ4Cb8mBBXufYHzMGjunwecGVBx8L4IXLEXBAkDiF/w180-h320/Abel+aznar157191479_2858773597773599_149199278904556280_o.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgufW9Odo5xal2a9nSZfFTjg5Wrl9SDN9ahV1DH0VRSbgfOqQlqn-XPGBH5fW7V4gR2unbaQrV6efXpZPOk7gM_K6prRzCLlmHGN0ZgJ4Cb8mBBXufYHzMGjunwecGVBx8L4IXLEXBAkDiF/s936/Abel+aznar157191479_2858773597773599_149199278904556280_o.jpg)Abel Mariano Aznar
+[![](/tangos-al-bardo/images/53e8b8659ec1.jpg)](/tangos-al-bardo/images/950c85204796.jpg)Abel Mariano Aznar
 
 Era un tema musical del bandoneonista, director y compositor Luciano Leocata, y Aznar , por intermedio de Reynaldo Yiso -que se lo acercó-, le agregó los versos. Lo titularon: **Y volvemos a querernos**. Lo estrenaría Florindo Sassone con la voz de Jorge Casal en la Confitería *La Armonía *y fue todo un impacto. El 25 de enero de 1949 lo grabaron y ante el éxito del tema, también lo llevaría al disco, cuatro meses más tarde Pugliese con la voz de Morán redondeando el suceso del tango.
 

@@ -67,6 +67,6 @@ Esta maravillosa interpretación de la segunda y definitiva Fundación de Buenos
 
 ###
 
-###   [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhJMtPQnIOsjpa9OHKZI-rqvnQCPanTUGhGSc6EcNbgPNnIJKSYHjGYKJ1cz8SPIWlae_fabUlqzI5vkNIpWgfa6kwkb-zedR5dQIBqJJORlTTVQKr64x0BeGDMsAIHHsaHv0VmeqlJlwru/s400/Segun.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhJMtPQnIOsjpa9OHKZI-rqvnQCPanTUGhGSc6EcNbgPNnIJKSYHjGYKJ1cz8SPIWlae_fabUlqzI5vkNIpWgfa6kwkb-zedR5dQIBqJJORlTTVQKr64x0BeGDMsAIHHsaHv0VmeqlJlwru/s1600/Segun.jpg) Segunda Fundación de Buenos Aires
+###   [![](/tangos-al-bardo/images/bae1d1306689.jpg)](/tangos-al-bardo/images/fe3a56c3e4ae.jpg) Segunda Fundación de Buenos Aires
 
 ###

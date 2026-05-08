@@ -10,7 +10,7 @@ Con 31 grados de calor al mediodía, las calles de Tokio -más que largarse a re
 
 El monzón cargado de penetrante perfumes de las especies arrastradas a su paso desde las selvas asiáticas o de los oasis de África, trae además un soplo de fragua que de alguna manera nos ordena buscar la temperatura artificial del hotel.
 
-[![](https://blogger.googleusercontent.com/img/a/AVvXsEhfPWJ4_mVPRTZd_-txG7A-9d3906k-qJtbI-BEySC8ROjp8kcEwStMwxYMhtFOG8c2WFoH7b92pWXZlznf3WWrwQnirmbHN6hX1CzHZd2841pbR-HLt3wwzHKElJXfNQa-nT1nSChclciZ3nqE-9mG1aie2jAj16-U9JDjBRFqtMu3mfiNbMTpjp-aYfuE)](https://blogger.googleusercontent.com/img/a/AVvXsEhfPWJ4_mVPRTZd_-txG7A-9d3906k-qJtbI-BEySC8ROjp8kcEwStMwxYMhtFOG8c2WFoH7b92pWXZlznf3WWrwQnirmbHN6hX1CzHZd2841pbR-HLt3wwzHKElJXfNQa-nT1nSChclciZ3nqE-9mG1aie2jAj16-U9JDjBRFqtMu3mfiNbMTpjp-aYfuE)Enrique Cadícamo
+[![](/tangos-al-bardo/images/28c79a9fbe1c.jpg)](/tangos-al-bardo/images/28c79a9fbe1c.jpg)Enrique Cadícamo
 
 Agregado a esto, demás está decir que con una sombrilla, deambular por la *city* para balconear vidrieras consteladas de hermosas y tentadoras chucherías, se corre el mismo peligro que salir a la calle sin sombrilla y ligarse una fastidiosa insolación, por los precios tan altos que hacer tambalear los *travel-check's *de cualquier generoso que se aventure a comprar algún presente para los amigos que esperan en Buenos Aires.
 

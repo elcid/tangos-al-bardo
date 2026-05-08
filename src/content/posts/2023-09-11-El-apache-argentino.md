@@ -12,7 +12,7 @@ Los hermanos Bates lo presentan debutando en 1912, en el café *El Maratón*, de
 
 Algo significan estos nombres franceses. *Apache* es el nombre de una tribu aborigen norteamericana. Cuando, a fines del siglo pasado, la guerra contra los apaches difundió los apelativos de algunos caciques, los hampones de París dieron en usar esos apelativos como alias. Fue entonces cuando los periodistas de *Matin* y de *Journal *comenzaron a llamar apaches a los hampones de *Paname* (así llaman ellos, los hampones, a París.)
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi8zKn3gmC8GsG5Uh7w3ogTnN_IjNgwEC8XV57L6naVAyEHxwM1MzYa72iYNGfXa4P-WgtdgRXAz1xzhSi0nC6DWexDKPjGRFA9Ammxdazwmtgao-xpZ4rvpT5EKXS2PoNfty5x2i6MLvOjYItKSRXlBuCLA3hQzdGmJrLXJyAHT2KtEkP7Muql6cmFgfZl/w268-h320/Aroztegui%20--2977542-1431788675-6536.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi8zKn3gmC8GsG5Uh7w3ogTnN_IjNgwEC8XV57L6naVAyEHxwM1MzYa72iYNGfXa4P-WgtdgRXAz1xzhSi0nC6DWexDKPjGRFA9Ammxdazwmtgao-xpZ4rvpT5EKXS2PoNfty5x2i6MLvOjYItKSRXlBuCLA3hQzdGmJrLXJyAHT2KtEkP7Muql6cmFgfZl/s186/Aroztegui%20--2977542-1431788675-6536.jpg)Manuel Aróztegui
+[![](/tangos-al-bardo/images/e8fdf334ff74.jpg)](/tangos-al-bardo/images/e0a045d0b97a.jpg)Manuel Aróztegui
 
 En cuando a* gigolette*, es término anterior a *gigoló*: designó a ciertas jovencitas más alegres que tristes, precisamente porque *gigottaient*, es decir, bailan con frenesí. Por fin, con respecto a **Champagne Tangó,** debe recordarse que la palabra *tangó* se puso se moda en París hacia 1912 y 1913. Hubo entonces un color *tangó*, *thes tangó* y *champagne tangó*. Los títulos de estos tangos de Aróztegui testimonian aquel triunfo parisino del tango.
 

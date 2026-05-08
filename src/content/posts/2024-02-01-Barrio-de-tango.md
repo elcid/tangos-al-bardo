@@ -10,7 +10,7 @@ tags: ["Francisco Fiorentino", "Eduardo Del Piano", "Roberto Goyeneche", "Albert
 
 Alberto Castillo cantaba en aquel valsecito de Petit y Scianmarella: "*Cien barrios porteños / cien barrios de amor..*.", aunque en realidad son 48, los barrios porteños. Y en todos ellos ha prendido el tango y en cada uno de esos barrios han nacido y han vivido personajes destacados del género musical nacido en Buenos Aires y que se ha extendido en casi todo el mundo, a lo largo de la historia.
 
-![Orquesta de Tango Franco Iturraspe - Artelista.com](https://artelista.s3.amazonaws.com/obras/big/1/4/9/3097295848723972.jpg)
+![Orquesta de Tango Franco Iturraspe - Artelista.com](/tangos-al-bardo/images/d1ea71984f39.jpg)
 
 Por eso pensaba destacar precisamente el origen barrial de tantos tangueros de peso, o el lugar donde se criaron. Porque, por ejemplo, yo nací en Villa Urquiza, pero desde niño viví con mi familia en Parque Patricios, al que considero mi barrio, aunque haya mudado, incluso de país. Porque allí me he formado, conocí de pibe el tango, lo bailo desde los 17 años y está implantado en mi cuore para siempre.
 

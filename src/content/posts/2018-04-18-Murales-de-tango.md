@@ -17,23 +17,23 @@ Muchos clubes que llevan años sirviendo a su barriada han debido cerrar moment�
 
 Por eso quiero destacar este aspecto difusor que se le ha dado al Tango en los últimos festivales internacionales que se organizan en Buenos Aires y a los que acuden numerosas parejas de distintos lugares del país y del mundo. De paso, como en este caso del año 2016, se exhiben estos hermosos murales en distintos barrios, para publicitar los mismos.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgOxpzwmJbUvdhPO1Y1jONx5uMx-mRtufrC2qT5btWr4D1bP0F4gKf1D-MaIvRbLHRCm8K7G-2zCMwBK_YvyClsf2izay0MidplMF0RPqK2OY8zJ-N4ivuVt7-IorgfsSZBZGnjRIHhw0oI/s400/M2.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgOxpzwmJbUvdhPO1Y1jONx5uMx-mRtufrC2qT5btWr4D1bP0F4gKf1D-MaIvRbLHRCm8K7G-2zCMwBK_YvyClsf2izay0MidplMF0RPqK2OY8zJ-N4ivuVt7-IorgfsSZBZGnjRIHhw0oI/s1600/M2.jpg) Di Sarli y D'Arienzo en la pared de la calle Maure 3410 del barrio Colegiales
+ [![](/tangos-al-bardo/images/5841cd7325cd.jpg)](/tangos-al-bardo/images/ca84551b7929.jpg) Di Sarli y D'Arienzo en la pared de la calle Maure 3410 del barrio Colegiales
 
 
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg40aHUpVjb8bf1iasErsv5yyPgANVJjd-Pzayx7_qlRx-r0Ng0TCZly8xrled8kpiSQoOWQQebsjqzkf_XGKRHObRMOgSotdyebu7gTghbJlx3f-4NZgfScl5UMvt5NVRJsg19m3WX5H3E/s400/M5.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg40aHUpVjb8bf1iasErsv5yyPgANVJjd-Pzayx7_qlRx-r0Ng0TCZly8xrled8kpiSQoOWQQebsjqzkf_XGKRHObRMOgSotdyebu7gTghbJlx3f-4NZgfScl5UMvt5NVRJsg19m3WX5H3E/s1600/M5.jpg) El recuerdo de Julio Sosa en la céntrica 25 de mayo 806. Barrio San Nicolás
+ [![](/tangos-al-bardo/images/6d84f59b188e.jpg)](/tangos-al-bardo/images/53eb245344a0.jpg) El recuerdo de Julio Sosa en la céntrica 25 de mayo 806. Barrio San Nicolás
 
 
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEie-RGEdGA0fsKOwzDTvYYwlBqHaC8HvTtx8TTJrZ9Zd0P8fKV4vvp6M-sRJ3m5rFrK1f97nR_Og9xWhT8F6yNzFjej7IBpFRjjreOop8WAuFkKDnq3U9ibOEjRC7liblEw0pLK0dhPVPb0/s400/M4.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEie-RGEdGA0fsKOwzDTvYYwlBqHaC8HvTtx8TTJrZ9Zd0P8fKV4vvp6M-sRJ3m5rFrK1f97nR_Og9xWhT8F6yNzFjej7IBpFRjjreOop8WAuFkKDnq3U9ibOEjRC7liblEw0pLK0dhPVPb0/s1600/M4.jpg) En Estados Unidos al 1500 el inolvidable recuerdo de D'Agostino-Vargas
+ [![](/tangos-al-bardo/images/bd72956e8b7c.jpg)](/tangos-al-bardo/images/cb72bed72570.jpg) En Estados Unidos al 1500 el inolvidable recuerdo de D'Agostino-Vargas
 
 
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh_BhPLcNxsC1G2YUPdEpYv1RbqGT-bWn95fwdSI639v13dy05ZHM9bJQuuTLcfEyOH4zuDrWEfkcxYpKEoNVLrpmf-XH66t40lJeqE1bWQkJ5MY48CuAOoIlha9k12fq8U8FtdHh7H3ntU/s400/M3.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh_BhPLcNxsC1G2YUPdEpYv1RbqGT-bWn95fwdSI639v13dy05ZHM9bJQuuTLcfEyOH4zuDrWEfkcxYpKEoNVLrpmf-XH66t40lJeqE1bWQkJ5MY48CuAOoIlha9k12fq8U8FtdHh7H3ntU/s1600/M3.jpg) Pichuco no podía faltar. Está en la esquina de Alsina y Santiago del Estero
+ [![](/tangos-al-bardo/images/fc200dfee970.jpg)](/tangos-al-bardo/images/63e48c0f2538.jpg) Pichuco no podía faltar. Está en la esquina de Alsina y Santiago del Estero
 
 
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEglrqO3MexX9GsBp24uzse05yLarBc3ehkzmSnW9oJpM9X7mNZRlYpXReaLxLIu-OVmeg1Rt4ojG9NIStGSmsfJVRwgvirrgKdA5UT1wJY4_8PB1D5kWJTUkHfBJRQCp8eGBOG6ulB-S8gO/s400/M1.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEglrqO3MexX9GsBp24uzse05yLarBc3ehkzmSnW9oJpM9X7mNZRlYpXReaLxLIu-OVmeg1Rt4ojG9NIStGSmsfJVRwgvirrgKdA5UT1wJY4_8PB1D5kWJTUkHfBJRQCp8eGBOG6ulB-S8gO/s1600/M1.jpg) Pugliese, Alberto Morán y Tita Merello en Mahatma Gandhi 749, Villa Crespo
+ [![](/tangos-al-bardo/images/1fa21e3228ad.jpg)](/tangos-al-bardo/images/338436272b9f.jpg) Pugliese, Alberto Morán y Tita Merello en Mahatma Gandhi 749, Villa Crespo
 
 
 Me parece un hermoso homenaje y una publicidad de mucha pegada. Esta es mi ciudad porteña y tanguera. ¡Sí señor!

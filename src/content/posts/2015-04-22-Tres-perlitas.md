@@ -7,7 +7,7 @@ labels: ""
 
 El tiempo corre y el blog ya cuenta con 999 páginas, incluida ésta de hoy. Me encanta hacer este trabajo -hobby, afición, pasión tanguera-, y como preludio a la página número mil, que será la próxima, les dejo estas tres perlitas. La primera está interpretada por Gregorio Barrios, un barítono vasco que iba para clásico y terminó anclando en Argentina - luego en Brasil donde fallecería-, como afamado cantor de boleros y temas románticos. Incluso filmó cuatro películas en la que lucía su porte y su gola.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgBcYbRg7CKDIP7yTo3KKTZTwR7aLwQicoOE33npHXk833KiaDbQDAu-OAXSi2zmuhriUZBJIQAUejY6wBi1TE5okOdTzDct37vY7IXjR6hDWL5l18_qkhwVLGWd8yjy17j8RORbOji8Xk/s1600/Hoy_canto_para_t%C3%AD.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgBcYbRg7CKDIP7yTo3KKTZTwR7aLwQicoOE33npHXk833KiaDbQDAu-OAXSi2zmuhriUZBJIQAUejY6wBi1TE5okOdTzDct37vY7IXjR6hDWL5l18_qkhwVLGWd8yjy17j8RORbOji8Xk/s1600/Hoy_canto_para_t%C3%AD.jpg) Gregorio Barrios con Pola Alonso en la película: "Hoy canto para tí"
+ [![](/tangos-al-bardo/images/48370fb1001b.jpg)](/tangos-al-bardo/images/48370fb1001b.jpg) Gregorio Barrios con Pola Alonso en la película: "Hoy canto para tí"
 
 Fue el que estrenó el hermosísimo bolero de Mario Clavell: *Somos*, y grabó infinidad de temas de este género, luciendo su voz tan apropiada para ello. Había nacido en Bilbao y su debut en radio, ya en Buenos Aires, le fue tan propicio, que incluso la gente le pedía aquellos boleros en una época propicia para ello y comenzó a grabar numerosos títulos que se exportarían a diversos países de toda América, abriéndole la puerta de los mismos, y así recorrió diversos lugares desde Argentina a México.
 

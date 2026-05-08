@@ -27,7 +27,7 @@ Y para redondear, con su orquesta en la milonga que compuso homenajeando a mi ba
 [Corrales viejos.mp3](http://www.mediafire.com/?9803uh25yabcj25)*
 *
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhr43Mp5GYksPY0Isnzipr4Ufkzu3oqA8ku8pB5Ll2R1dblimzThO1s3byKwhuYH1f8PKTUiXelhQm-qhvQil0J6jRRDPj8yzxbpk4eFHbXtdB55QsEDQEDTteQHFt6sNiLeeHg95MgUh8h/s1600/Aieta+II.bmp)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhr43Mp5GYksPY0Isnzipr4Ufkzu3oqA8ku8pB5Ll2R1dblimzThO1s3byKwhuYH1f8PKTUiXelhQm-qhvQil0J6jRRDPj8yzxbpk4eFHbXtdB55QsEDQEDTteQHFt6sNiLeeHg95MgUh8h/s1600/Aieta+II.bmp)[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi3IBWqBvAWeOBnmh__nSKHXu1qKGVhikJ_3jq6yH3Twn7BNe7cDCFFiB5RB9B8UnCg_Ynv1hOixwVR0OWBXBP6JRpSTe0KH085MNdqv_2x_3bI7B2DqRGtFK9s_cCexN8ATzVCCeIMTqys/s1600/Aieta+I.bmp)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi3IBWqBvAWeOBnmh__nSKHXu1qKGVhikJ_3jq6yH3Twn7BNe7cDCFFiB5RB9B8UnCg_Ynv1hOixwVR0OWBXBP6JRpSTe0KH085MNdqv_2x_3bI7B2DqRGtFK9s_cCexN8ATzVCCeIMTqys/s1600/Aieta+I.bmp)
+[![](/tangos-al-bardo/images/b8a94dde1f7b.bmp)](/tangos-al-bardo/images/b8a94dde1f7b.bmp)[![](/tangos-al-bardo/images/3b1ae4b87455.bmp)](/tangos-al-bardo/images/3b1ae4b87455.bmp)
 
 *
 *

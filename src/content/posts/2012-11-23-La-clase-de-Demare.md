@@ -10,7 +10,7 @@ Por pinta, por preparación, por gusto, Lucio Demare merece estar en el sitial d
 
 En esa época ya ganaba dinero tocando romanzas, trozos de óperas y Mozart o Beethoven. Claro que "*hijo'etigre, overo tenía que ser*", como reza la máxima gaucha. Porque su padre, Domingo, había sido alumno de violín del maestro Galvagni, nada menos, y le pasó la posta al muchachito que terminaría en la escuela de Scaramuzza y nunca paró de crecer.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhqZYCoBXI0Y2oe-XV5T3-D2cqSLytO1pihsY8JdjlxlqOZMILxt6CZe-saYcG2NbP8oDTkop-TSgQC5BmGPVkyeq1qjPao7QhXu1_9yuRrgiTzw0U8_UMn4fD4nWurX_lc0rH2Y4skGWM3/s1600/LucioDemare-a.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhqZYCoBXI0Y2oe-XV5T3-D2cqSLytO1pihsY8JdjlxlqOZMILxt6CZe-saYcG2NbP8oDTkop-TSgQC5BmGPVkyeq1qjPao7QhXu1_9yuRrgiTzw0U8_UMn4fD4nWurX_lc0rH2Y4skGWM3/s1600/LucioDemare-a.jpg)
+[![](/tangos-al-bardo/images/5c614b4824e4.jpg)](/tangos-al-bardo/images/5c614b4824e4.jpg)
 
 Fue de los músicos más dotados que tuvo el tango y por sobre todas las cosas mantuvo siempre ese halo romántico que lo distinguió entre sus pares, y que escarba en la huella de Delfino y Francisco de Caro.
 

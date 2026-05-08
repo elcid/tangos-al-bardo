@@ -19,7 +19,7 @@ Ayer cenamos los ñoquis del 29 y hoy nos preparamos para la milonga del sábado
 
 ¿Qué te cerepa? Lo cierto es que sólo pensar en la milonga, en escuchar esa música que nos eleva y nos hace olvidar de todo, y bailar corazón a corazón al compás de las grandes orquestas rompedoras, es un placer mayúsculo. Además de encontrarte con amigos, gente conocida, la vida social que se mueve en el circuito y alguna sorpresa agradable que siempre se produce.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiXamq9CdlwyR7VmF8AYKT0O4Zh7bGnIXmHnWbgKkK-zC11TJhyVx-W8wETFjDRAhfLrLvuFG94N-95pFeuxX0TVUBAJTurpBR5F3-uL_KWDXpAe8wvsK2Ot5SIVlSMj6BdlfVzcuH3tAQ/s400/casa-aragon.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiXamq9CdlwyR7VmF8AYKT0O4Zh7bGnIXmHnWbgKkK-zC11TJhyVx-W8wETFjDRAhfLrLvuFG94N-95pFeuxX0TVUBAJTurpBR5F3-uL_KWDXpAe8wvsK2Ot5SIVlSMj6BdlfVzcuH3tAQ/s1600/casa-aragon.jpg) Casa de Aragón de Madrid, donde desarrollamos BIEN MILONGA en un salón
+ [![](/tangos-al-bardo/images/5d2db970e0de.jpg)](/tangos-al-bardo/images/21fc13a7770d.jpg) Casa de Aragón de Madrid, donde desarrollamos BIEN MILONGA en un salón
 
 En **BIEN MILONGA** estamos a full. Hoy tenemos clases de 20 a 21 hs. y luego la milonga.meta y ponga. Ya hice la selección *for* *this night* y el carrusel no se detiene nunca. Han llegado los calorcitos a Madrid y te dan más ganas de salir de la cueva y bañarte en el sol que inunda la ciudad. Bueno, ya te conté la historia, ahora como siempre, vamos a darnos una vueltita por las distintas milongas del mundo y vemos en acción a algunas parejas para ver cómo las gastan en distintos lugares.
 

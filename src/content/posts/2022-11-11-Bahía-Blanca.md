@@ -38,7 +38,7 @@ De su hermano Domingo recibió las primeras lecciones de música; las más adela
 
 Su tango** Bahía Blanca**, nació así, en la hora de su plena consagración, sentado al pìano y recordando sus tiempos de adolescente en la ciudad atlántica, cuando ya reunía hinchas de su teclado, y estaba en vísperas de su primera escapada de ejecutante a una confitería o biógrafo de La Pampa, alimentando sueños con las luces de Buenos Aires.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhGyDU8_w5IbdJdUzOjWSSmuDFAjkOkowC1RTUEJ5pWIF4lD7jpMM5vSAFOkYLDN8hB3T7sIM_ZzB6YGK-FGYQf3yxVk5QN90dm28JMFnyKJ33XweEp88Oqgn1mszM3KnAzmhkz8zKAYDR14jU52Zcn9QZo_E39Qoe7upUrGep2yg1DlfpU3j1V4MDCJQ/w400-h400/Roberto-Rufino-with-Di-Sarli-sq%20(3).jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhGyDU8_w5IbdJdUzOjWSSmuDFAjkOkowC1RTUEJ5pWIF4lD7jpMM5vSAFOkYLDN8hB3T7sIM_ZzB6YGK-FGYQf3yxVk5QN90dm28JMFnyKJ33XweEp88Oqgn1mszM3KnAzmhkz8zKAYDR14jU52Zcn9QZo_E39Qoe7upUrGep2yg1DlfpU3j1V4MDCJQ/s1200/Roberto-Rufino-with-Di-Sarli-sq%20(3).jpg)Di Sarli y su gran descubrimeinto: el pibe Roberto Rufino
+[![](/tangos-al-bardo/images/492c3e4c82a1.jpg).jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhGyDU8_w5IbdJdUzOjWSSmuDFAjkOkowC1RTUEJ5pWIF4lD7jpMM5vSAFOkYLDN8hB3T7sIM_ZzB6YGK-FGYQf3yxVk5QN90dm28JMFnyKJ33XweEp88Oqgn1mszM3KnAzmhkz8zKAYDR14jU52Zcn9QZo_E39Qoe7upUrGep2yg1DlfpU3j1V4MDCJQ/s1200/Roberto-Rufino-with-Di-Sarli-sq%20(3).jpg)Di Sarli y su gran descubrimeinto: el pibe Roberto Rufino
 
 **La música sedante**
 

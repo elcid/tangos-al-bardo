@@ -10,7 +10,7 @@ Ya tienen sus estatuas en San Telmo estos dos próceres del tango. Y Marianito c
 
 La estatua del gran cantor (1911/1986), está ubicada desde este sábado 12 de diciembre, en la plazoleta de la avenida Independencia y Balcarce. Y numerosos tangueros se hicieron presentes en la ceremonia que da lustre a ese entrañable y porteñazo barrio de tango.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg2_rOg-E_tyElys6bKDym1p8HufeG0yW-bbuTp3Bw6P6A5hwXJMviwaAHd15hgfjAXfrOriSNgEtrSmDRPVPrYBY3rVKvHUUGd68hXNUxFypWcYIlvrk1LJrnBujxCLa3ngpL2VAUfH14/s1600/1982088_895448593807372_1212769434039880019_n%5B1%5D.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg2_rOg-E_tyElys6bKDym1p8HufeG0yW-bbuTp3Bw6P6A5hwXJMviwaAHd15hgfjAXfrOriSNgEtrSmDRPVPrYBY3rVKvHUUGd68hXNUxFypWcYIlvrk1LJrnBujxCLa3ngpL2VAUfH14/s1600/1982088_895448593807372_1212769434039880019_n%5B1%5D.jpg) Oscar Del Priore. Muni Rivero y Luis Alposta rodean la estatua del cantor
+ [![](/tangos-al-bardo/images/d019191986b7.jpg)](/tangos-al-bardo/images/d019191986b7.jpg) Oscar Del Priore. Muni Rivero y Luis Alposta rodean la estatua del cantor
 
 
 Y aprovecho para recordarlo en unas palabras suyas cuando se vino abajo su creación personal del Viejo Almacén, aunque luego con gran empeño lograrían ponerlo nuevamente en pié.
@@ -19,7 +19,7 @@ Y aprovecho para recordarlo en unas palabras suyas cuando se vino abajo su creac
 
 -Han sido muchas las noches en que mi actuación se ha extendido porque el público y yo lo necesitábamos, porque "sentíamos" esa especial comunicación que no puede explicarse. Y otras veces, no pocas, ya cerradas las puertas me he quedado cantando por placer, como un aficionado, para un pequeño auditorio de amigos y gente del propio Almacén: músicos, mozos y hasta empleados que postergan con gusto su propio horario de limpieza. Es un boliche raro el Almacén, como un hogar que en pocos años se ha ido llenando no sólo de fantasmas queridos sino de nuevos hijos, de hermanos recuperados, de amigos sin apuro...
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEigxazeTJHFy5sws_bdglVogEvx_97Aript9PcNKQyrFrjXRowfA_gHPxIxN4bocCSBc7RTYXSDzRrrP3yVUPPl5qZsIxBZSnO6OiUr9w1UX0vdLBi74OkJO7jh_P8ASm4Z4Yo17fFrVJ8/s1600/11108_895452737140291_3583011081779220674_n%5B1%5D.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEigxazeTJHFy5sws_bdglVogEvx_97Aript9PcNKQyrFrjXRowfA_gHPxIxN4bocCSBc7RTYXSDzRrrP3yVUPPl5qZsIxBZSnO6OiUr9w1UX0vdLBi74OkJO7jh_P8ASm4Z4Yo17fFrVJ8/s1600/11108_895452737140291_3583011081779220674_n%5B1%5D.jpg) Gabriel Mores y Muni Rivero con la estatua de Mariano Mores
+ [![](/tangos-al-bardo/images/1e36d53c9e0c.jpg)](/tangos-al-bardo/images/1e36d53c9e0c.jpg) Gabriel Mores y Muni Rivero con la estatua de Mariano Mores
 
 
 A cien metros del emplazamiento de la estatua de Rivero, se colocó la de Mariano Mores. Está en la esquina de Balcarce y Chile, dando incio a un circuito tanguero que dará lugar a muchas visitas por el barrio, tanto de tangueros porteños como de extranjeros que acuden a Buenos Aires a bailarlo.
@@ -28,7 +28,7 @@ Marianito, como le hemos llamado siempre, ha sembrado de partituras maravillosas
 
 De su vasta y bella producción extraigo algunos títulos como *Tanguera, Taquito militar, Por qué la quise tanto, Uno, Sin palabras, Gricel, La calesita, Cristal, Frente al mar, El firulete, Tu piel de jazmín, Oro y gris, Cada vez que me recuerdes, El patio de la morocha, Linda, Adiós Pampa mía, Déjame no quiero verte más, Una lágrima tuya, Yo tengo un pecado nuevo*, o los dos tangos que compuso sobre letra previa de Enrique Cadícamo:* A quién le puede importar *y *Copas, amigos y besos.*
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjwY62nBC1CM9WQ1XKETD7oie-j9Lzqw0MZsCoazW2-ixNney2yuLIIIwwitvysc2H5tJ4lbzuK-dtxfyIYTn8sSkUbA-QQm_x6ycRMvwsLGBOF-UdUMoO4W2AegMqWDZ9Dyo5crXl6dGI/s1600/Mariano+y+Gabriel.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjwY62nBC1CM9WQ1XKETD7oie-j9Lzqw0MZsCoazW2-ixNney2yuLIIIwwitvysc2H5tJ4lbzuK-dtxfyIYTn8sSkUbA-QQm_x6ycRMvwsLGBOF-UdUMoO4W2AegMqWDZ9Dyo5crXl6dGI/s1600/Mariano+y+Gabriel.jpg) Mariano con su nieto Gabriel, cantante, músico y compositor.
+ [![](/tangos-al-bardo/images/883d250cfdac.jpg)](/tangos-al-bardo/images/883d250cfdac.jpg) Mariano con su nieto Gabriel, cantante, músico y compositor.
 
  A Mariano siempre le atrajo un tango más bien internacional, muy efectista, como me lo confesó en una oportunidad y sus actuaciones recibieron siempre los plácemes del público porque les daba esa espectacularidad que siempre mantuvo con la orquesta, en sus presentaciones. Hace tres años que se retiró de los escenarios pero su nombre sigue vigente junto a sus hermosas melodías.
 
@@ -38,7 +38,7 @@ Al recordarlo por este acontecimiento que nos alegra, y mucho, lo vemos interpre
 
 Y en un día así, no puede faltar ese tango enorme de Aníbal Troilo y Homero Manzi: **Sur**, cantado por su gran creador, Edmundo Rivero. Una vez le preguntaron si no le aburría cantar siempre este tango, que le pedían continuamente. Y con su sencillez habitual, respondió: "*No, siempre lo canto como si fuera la primera vez. Cierro los ojos y me instalo en esa belleza de letra y música".*
 
-*  [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgixUzJyJSsutoIPhKw0bCIL7nZf1YQUpHyzRGedRrGjpfGidsT1-nK793358gLr8BxRKV0sBCMRtfq-gpR0KVeE7VCmP3D2bJ8XZt8BNUrG2bAEFGxtSz4FExdlz7NIYGXIqddbVnkIWY/s1600/COPES.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgixUzJyJSsutoIPhKw0bCIL7nZf1YQUpHyzRGedRrGjpfGidsT1-nK793358gLr8BxRKV0sBCMRtfq-gpR0KVeE7VCmP3D2bJ8XZt8BNUrG2bAEFGxtSz4FExdlz7NIYGXIqddbVnkIWY/s1600/COPES.jpg) Juan Carlos Copes, Aníbal Troilo, Alba Solís y Edmundo Rivero.  *
+*  [![](/tangos-al-bardo/images/97e0b5f1b969.jpg)](/tangos-al-bardo/images/97e0b5f1b969.jpg) Juan Carlos Copes, Aníbal Troilo, Alba Solís y Edmundo Rivero.  *
 
 Yo tampoco de canso de escucharlo porque para mí es EL TANGO. Me emociona esa pintura magistral que hicieron dos genios. Pichuco y Homero, que retrata la Pompeya de la infancia del gran poeta..
 

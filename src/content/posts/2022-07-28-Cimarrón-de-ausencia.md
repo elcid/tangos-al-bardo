@@ -10,7 +10,7 @@ Considero que vale la pena refrescar la memoria con esta milonga que basa sus ve
 
 Hay tangos/milongas que están dedicados al entrañable cimarrón que reúne a amigos y familiares junto a la pava caliente y la charleta distendida. Entre otros:** El mate amargo**, la milonga **Tomá mate**, la frase genial de Homero Expósito en su tango: **Trenzas de color de mate amargo**. Gardel grabó la canción: **El cimarrón del estribo**. Incluso Canaro también llevó al disco en forma instrumental el tango **Cimarrón**, por citar algunos.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgcxxdwkKkhQSTTkO0J8t1lKwJHjQFeRISn76tPUOhgShX233JJ-LE8IsTcTgB8odIobi1GAqqZUbVlzYLUJjME8qNfHGZ0kideJI4w6G2KqUL9ZrScLnepN0mLxFaIKfVI-WNMy-BayuTY39hjUJTzPIm4q1bzR-8iRbLXcJQZ7MEQhDKgKupfCA-8rQ/w400-h318/E_vVR_vX0Aks-Dx.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgcxxdwkKkhQSTTkO0J8t1lKwJHjQFeRISn76tPUOhgShX233JJ-LE8IsTcTgB8odIobi1GAqqZUbVlzYLUJjME8qNfHGZ0kideJI4w6G2KqUL9ZrScLnepN0mLxFaIKfVI-WNMy-BayuTY39hjUJTzPIm4q1bzR-8iRbLXcJQZ7MEQhDKgKupfCA-8rQ/s720/E_vVR_vX0Aks-Dx.jpg)Marsilio Robles, 1º izq. cuando acompañaba a Oscar Alonso
+[![](/tangos-al-bardo/images/2b4d3a1b4f22.jpg)](/tangos-al-bardo/images/a887b86e1d11.jpg)Marsilio Robles, 1º izq. cuando acompañaba a Oscar Alonso
 
 Pero estos versos del guitararista, compositor y poeta Marsilio Robles, merecen una lectura y consideración especial. Porque su poesía relaciona al *cimarrón* o mate amargo con las peripecias de la vida diaria. Y arranca con una sentencia realmente genial que le da color desde el comienzo a todo lo que viene después: "*Cimarrón sos más amargo /que el amor que viste ausencia / y sos polvo de querencia que llevó el camino largo..*."-
 
@@ -26,7 +26,7 @@ tu savia es aroma incierta
 de tristes evocaciones,
 y es sangre que a borbotones
 pierdo de una herida abierta.
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjw02n2UuWrhU8B5J0EM0HNVxx2oDjvrYNUmAxpBBddJfEiCY6uhFyiSykLaZpassu_RtFimieYVkMBoA4k2sM4z-yZI2ogk2zpy1LymDbMRcs_LbDn1Dpj11nj5BztCtdRpygEgvebo5mOHhr10MfHHzlmpiAx_nPrFduKApsc70j6lm-H4CNgOY5_rQ/w400-h208/Larenza_y_otros.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjw02n2UuWrhU8B5J0EM0HNVxx2oDjvrYNUmAxpBBddJfEiCY6uhFyiSykLaZpassu_RtFimieYVkMBoA4k2sM4z-yZI2ogk2zpy1LymDbMRcs_LbDn1Dpj11nj5BztCtdRpygEgvebo5mOHhr10MfHHzlmpiAx_nPrFduKApsc70j6lm-H4CNgOY5_rQ/s400/Larenza_y_otros.jpg)Juan Larenza, segundo por derecha, junto a Lito bayardo
+[![](/tangos-al-bardo/images/bde8346c09a4.jpg)](/tangos-al-bardo/images/9c01e6fae7ae.jpg)Juan Larenza, segundo por derecha, junto a Lito bayardo
  Siempre me llamó la atención cómo pueden armarse unos versos tan llegadores, que dan motivo para releerlos, reescucharlos, cantarlos y ver como la existencia diaria de una persona encuentra en el mate amargo o cimarrón, el vehículo imaginario para transmitirla a través de él. Con sus pensamientos, sus dolores existenciales, sus fracasos sentimentales. Y el diálogo mental, imaginario, las formas que usa para definir al mate
 Sos atrancao por momentos
 como lágrima enredada...

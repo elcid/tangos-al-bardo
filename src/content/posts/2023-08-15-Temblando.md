@@ -10,7 +10,7 @@ Este valsecito gaucho, o criollo en su alma campera, se ha ganado un lugar en la
 
 Se trata precisamente de unos versos que firma Charrúa, un poeta nacido en Uruguay, aunque residió en Buenos Aires desde niño hasta el final. Se llamaba Gualberto Gregorio Márquez y gracias a sus amigos llegó a editar cuatro libros de versos suyos donde muestra su capacidad retórica, aunque no tuvo una escuela donde formarse poéticamente.
 
-[![](https://blogger.googleusercontent.com/img/a/AVvXsEi0EXXXJQDjSPYY6ZHN82N_kFXVmOVlT8_FaclBF4JUx-QvUt-YzegsKRtkjQPdZYUOxLDq0x00qVtCskMV_P0bgzwzdSY32KyRrx5m2Ni3wZfjzTdofE65giD86EF33H6eiQ5m5CTr0q_xYsOYjJAs1vDVi6ZapGIXMwkYmvv0TVW4oBF3i4hdAhxOxUzm)](https://blogger.googleusercontent.com/img/a/AVvXsEi0EXXXJQDjSPYY6ZHN82N_kFXVmOVlT8_FaclBF4JUx-QvUt-YzegsKRtkjQPdZYUOxLDq0x00qVtCskMV_P0bgzwzdSY32KyRrx5m2Ni3wZfjzTdofE65giD86EF33H6eiQ5m5CTr0q_xYsOYjJAs1vDVi6ZapGIXMwkYmvv0TVW4oBF3i4hdAhxOxUzm)Charrúa
+[![](/tangos-al-bardo/images/2673d35f738b.jpg)](/tangos-al-bardo/images/2673d35f738b.jpg)Charrúa
 
 Radicado con sus padres en la localidad bonaerense de General las Heras, a unos 70 kilómetros de la Capital, se dedicó tempranamente a la administración de establecimientos rurales. Pero siempre tenía tiempo para apuntar estrofas poéticas en la libreta, que luego devendrían en versos para sus libros. Se dieron a conocer varios valsecitos suyos que pasaron a formar parte del repertorio de diversos cantantes.
 

@@ -16,7 +16,7 @@ Ahora también bailamos Tango los martes, porque la vida es una milonga.
 Se empilchaba despacio, casi lerdo,
 y enfilaba silbando para afuera,
 la milonga se abría en su recuerdo
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgmR1DUt7d20rTnmxq2wFBc8Xbgm8nRK8fRL1FyDeJ93PD0W4u1gZFXAIxmJsmISLbcn-Jg0XyhfQ7uhY8GVRyf8mmh28TVBZ0D2fWEYaXgllrOT98p1-uLTGUbEq3Ly31ZSsrFv00XdmQ/s1600/petroleo.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgmR1DUt7d20rTnmxq2wFBc8Xbgm8nRK8fRL1FyDeJ93PD0W4u1gZFXAIxmJsmISLbcn-Jg0XyhfQ7uhY8GVRyf8mmh28TVBZ0D2fWEYaXgllrOT98p1-uLTGUbEq3Ly31ZSsrFv00XdmQ/s1600/petroleo.jpg) Petróleo milongueando  y era el espacio de su pasión tanguera.
+ [![](/tangos-al-bardo/images/07b62331cb75.jpg)](/tangos-al-bardo/images/07b62331cb75.jpg) Petróleo milongueando  y era el espacio de su pasión tanguera.
 Destacaba imponente su figura
 entre pibes de arito y pelo atado,
 las mujeres confiaban su cintura

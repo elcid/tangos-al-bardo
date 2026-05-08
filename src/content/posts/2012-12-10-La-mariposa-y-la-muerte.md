@@ -11,7 +11,7 @@ Pertenece esta obra a aquel armado de tangos que realizó el infatigable Ben Mol
 
 Sábato-Troilo; Petit de Murat-D'Arienzo; Mujica Láinez-Demare; Córdova Iturburu-Piana; Benarós-Mores; Fernández Moreno-Piazzolla; o Nalé Roxlo-De Angelis.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg28vWU_ZdIKa70gTrbUWAIJNLE133C7XV-gyiivliRP_FVSPyoWvq6fBzkTAK8d-FOJlFtJd-0spp6EjfMQ-bfU7lrQ2WfCAX4BcJG2R-ctRXCNNjmKgKUlBfoGgoD9FU6sM_Mst07sYCe/s1600/Ben+Molar+con+Ernesto+S%C3%A1bato+y+Julio+De+Caro.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg28vWU_ZdIKa70gTrbUWAIJNLE133C7XV-gyiivliRP_FVSPyoWvq6fBzkTAK8d-FOJlFtJd-0spp6EjfMQ-bfU7lrQ2WfCAX4BcJG2R-ctRXCNNjmKgKUlBfoGgoD9FU6sM_Mst07sYCe/s1600/Ben+Molar+con+Ernesto+S%C3%A1bato+y+Julio+De+Caro.jpg) Sábato, Ben Molar y De Caro  El sello Fermata editó los 14 temas en 1966 y la orquesta de Alberto Di Paulo fue la encargada de darles vida definitiva junto a diversos cantantes.
+ [![](/tangos-al-bardo/images/ded53faf8eeb.jpg)](/tangos-al-bardo/images/ded53faf8eeb.jpg) Sábato, Ben Molar y De Caro  El sello Fermata editó los 14 temas en 1966 y la orquesta de Alberto Di Paulo fue la encargada de darles vida definitiva junto a diversos cantantes.
 
 Había mucha expectativa por conocer los resultados del producto que reunía a tanto talento, aunque lo cierto es que algunos de los temas no tuvieron la temperatura deseada, pese a que William Blake asegurara que "*Toda exhuberancia es belleza". *
 *
@@ -29,7 +29,7 @@ Y éste es el trabajo suyo que acompañó al tango de Pontier y Marechal.
 I **
 
 Una vez mi corazón
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjWJVPaJrSL0GNgpFDEYfY26MIM9zRo4xC9DTMLh8OSaEZqglC4QJ3nqd-Pwua6miwHdqYJmRANKUg1YAbY95P-0M46Fz7JkCnmWpIIGBc8B2ZTssQ9z6LuoZwfha8im_KKW4GOvTNvcevw/s400/lamariposaylamuerte.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjWJVPaJrSL0GNgpFDEYfY26MIM9zRo4xC9DTMLh8OSaEZqglC4QJ3nqd-Pwua6miwHdqYJmRANKUg1YAbY95P-0M46Fz7JkCnmWpIIGBc8B2ZTssQ9z6LuoZwfha8im_KKW4GOvTNvcevw/s1600/lamariposaylamuerte.jpg)dijo en son de profecía
+[![](/tangos-al-bardo/images/997f5f9498f7.jpg)](/tangos-al-bardo/images/6f80d705d1d1.jpg)dijo en son de profecía
 cuando yo empecé a quererte,
 que sobre tu mediodía
 puede, girar la canción

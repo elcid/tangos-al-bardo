@@ -25,7 +25,7 @@ Fue un artista destacado que tuvo su propio *Salón para orquesta,* en Berlín, 
 
 Con la llegada de los nazis al poder, y debido a su origen judío, se fue de gira por algunos países de Europa y en 1935 recibió una invitación de Argentina para trabajar en Radio Splendid. De allí pasaría a Radio El Mundo donde durante varios años tuvo su propio programa y en su orquesta militaban músicos que viajaron con él y ayudó a escapar de las garras de Hitler. Además actuaba en salones donde se iba a tomar el té por las tardes y escuchar música, como la* Richmond* o *El Galeón*.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh6NAqa27LfItEcATXjlc-jL0acHBcn3zBXSYmdBEfl3MkMr6WmuICPycD8ZfKEmfr4twHyJR5Fvi-RHZc69kpCtSdFQguY8WykeiCPI2d0VPEGiZ70xE7E_qnqIj4uW9KHNh7iwYYaC14/s1600/DAJOS.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh6NAqa27LfItEcATXjlc-jL0acHBcn3zBXSYmdBEfl3MkMr6WmuICPycD8ZfKEmfr4twHyJR5Fvi-RHZc69kpCtSdFQguY8WykeiCPI2d0VPEGiZ70xE7E_qnqIj4uW9KHNh7iwYYaC14/s1600/DAJOS.jpg) Dajos Béla con su violín, al frente de su gran orquesta
+ [![](/tangos-al-bardo/images/3b5661df7f6e.jpg)](/tangos-al-bardo/images/3b5661df7f6e.jpg) Dajos Béla con su violín, al frente de su gran orquesta
 
 Este músico de formación clásica, sólo volvió en los años setenta a Alemania para recibir el reconocimiento del Senado, en Berlín, pero radicaría en Argentina hasta su muerte en la Falda, Provincia de Córdoba en 1978.
 

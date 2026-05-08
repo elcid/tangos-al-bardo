@@ -8,7 +8,7 @@ tags: ["Osvaldo Pugliese", "Cátulo Castillo", "Homero Manzi"]
 
 Nació en Paraná, Entre Ríos, pero se crió en el barrio porteño de Palermo, cuando prevalecían las calles de tierra en la vieja casaquinta de Rosas, y algunas arterias estaban precariamente asfaltadas. Su casa de la calle Honduras le permitió disfrutar el paisaje del barrio, los personajes y situaciones que reflejaría en sus versos, como la amistad temprana con caudillos políticos de peso y el taita de acero fácil conocido como Juan Muraña con quien llegó a mantener una relación cordial.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjYIlRjALtp31tDJuRgMlNGqaJZ-PqxnpO0HpGJyX7VzsuasJwqxs5HMUV1VHW0IjeGd5fVMU6GpCzLUqVA8ishHT7R_A-wd9sx5iPGC8Q2WcM3oA13W-s7CumexrkUcP2MKCUbGzUQPyu-/s1600/EvaristoCarriego.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjYIlRjALtp31tDJuRgMlNGqaJZ-PqxnpO0HpGJyX7VzsuasJwqxs5HMUV1VHW0IjeGd5fVMU6GpCzLUqVA8ishHT7R_A-wd9sx5iPGC8Q2WcM3oA13W-s7CumexrkUcP2MKCUbGzUQPyu-/s1600/EvaristoCarriego.jpg) Evaristo Carriego
+ [![](/tangos-al-bardo/images/cb03d723e621.jpg)](/tangos-al-bardo/images/cb03d723e621.jpg) Evaristo Carriego
 
 Publicó un solo libro de versos en su corta vida, pero también los fue esparciendo en periódicos como La Tribuna y otros. Su obra es vital como antecesora de las letras de tango que habrán de navegar en todas sus creaciones y observaciones minuciosas del barrio. Fundamentalmente, los personajes de la noche, la muchachita que dió aquel mal paso y volverá con el tiempo a su casa, cambiada.
 
@@ -30,7 +30,7 @@ gemía a la luna de invierno:
 Con tu voz gangosa dirás en la esquina
 la canción ingenua, la de siempre, acaso
 es la preferida de nuestra vecina
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhVnilvZSu6zgQOvKfhOrrHE2qQQs2itz0SbSY9EI7C_Olx8VNwg1H3Wq6MyPe4bRUE6PdURIprsUUU9tmTVqNA2FT6Nd7dh21YRioO35y9j889y7BBO12w97yNnjM0EBXqWVUt1W18oKVU/s320/BORGE.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhVnilvZSu6zgQOvKfhOrrHE2qQQs2itz0SbSY9EI7C_Olx8VNwg1H3Wq6MyPe4bRUE6PdURIprsUUU9tmTVqNA2FT6Nd7dh21YRioO35y9j889y7BBO12w97yNnjM0EBXqWVUt1W18oKVU/s1600/BORGE.jpg)la costurerita que dio aquel mal paso.
+[![](/tangos-al-bardo/images/d50d3da68422.jpg)](/tangos-al-bardo/images/a8a7308623d4.jpg)la costurerita que dio aquel mal paso.
 Y luego de un valse te irás como una
 tristeza que cruza la calle desierta,
 y habrá quien se quede mirando la luna

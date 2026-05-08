@@ -10,7 +10,7 @@ Fue uno, en realidad: una, de los personajes que reinaban en los cafés porteño
 
 El nombre proviene de la victrola o vitrola, creada por la Victor Talking Machine Co., norteamericana. Se trataba del gramófono. Los primitivos se movían a cuerda. Sobre el fieltro de la caja abierta, se colocaba el disco, se accionaba la manivela para que durara aproximadamente lo mismo que el tema musical y a continuación se colocaba una manija con la púa de acero en su punta, sobre el disco, al inicio, se destrababa el freno, y salía la música.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjS0cHJqECAyWrdC8kHc5OGNvgxKxGR8yFZcGxqEjsILX0OSi-kRIfpxb7T6kam50QMVAGDWFQIYSRm4CY0w-lQ6V7QvgWl9OMy_117yYwjVQKXpqt4cmlpf87zgQ9VYLj3deSCIDGFRszy/s320/carlos-torrallardona-la-victrolera-pintores-latinoamericanos-juan-carlos-boveri.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjS0cHJqECAyWrdC8kHc5OGNvgxKxGR8yFZcGxqEjsILX0OSi-kRIfpxb7T6kam50QMVAGDWFQIYSRm4CY0w-lQ6V7QvgWl9OMy_117yYwjVQKXpqt4cmlpf87zgQ9VYLj3deSCIDGFRszy/s1600/carlos-torrallardona-la-victrolera-pintores-latinoamericanos-juan-carlos-boveri.jpg) La victrolera pintada por Carlos Torrallardona
+ [![](/tangos-al-bardo/images/c0d9454acf1c.jpg)](/tangos-al-bardo/images/81041f481e4c.jpg) La victrolera pintada por Carlos Torrallardona
 
 Había veces en que algún tema arrancaba aplausos y exclamaciones entre los parroquianos y fue muy comentado el caso de *Recuerdo*, el gran tango de Osvaldo Pugliese, cuando apareció. Era tan requerido por los presentes, que el disco terminaba irremediablemente rayado por la púa y haciéndose indescifrable el sonido. Por ello había que tener una buena provisión de discos de *Recuerdo*, para satisfacer a los clientes.
 
@@ -21,7 +21,7 @@ La victrolera ocupaba un pequeño palco y su pollera cortona era la atracción d
 
 Los cafés porteños fueron básicos en el sentido de darle el sitio decisivo al tango en sus concurridos salones y la vitrolera fue la mujer de los sueños de muchos parroquianos. El excelente poeta José Portogalo, cita algunos de aquellos cafés tangueros en uno de sus hermosos versos:
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiCL8ezi5pRA7H61GN_8BzjJXxcNUlHWEOrKXeQRq_dVKeDIPVmc6NnVSSWtwZCyqAVEZnlX-5dM4L2X2HwBLzHZ2ci3OCT9NFEFliJ8tX5EDG8JO0cnrl7fzOS3xCooAlkwJktlTAA3SkJ/s320/Rosita+la+Victrolera.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiCL8ezi5pRA7H61GN_8BzjJXxcNUlHWEOrKXeQRq_dVKeDIPVmc6NnVSSWtwZCyqAVEZnlX-5dM4L2X2HwBLzHZ2ci3OCT9NFEFliJ8tX5EDG8JO0cnrl7fzOS3xCooAlkwJktlTAA3SkJ/s1600/Rosita+la+Victrolera.jpg) La victrolera vista por el dibujante Oskar Grillo
+ [![](/tangos-al-bardo/images/0e3ade0d56d7.jpg)](/tangos-al-bardo/images/571494568f4c.jpg) La victrolera vista por el dibujante Oskar Grillo
 
 En el Café *Domínguez* descifré tus secretos,
 en *La Paloma* dije tus mejores palabras,

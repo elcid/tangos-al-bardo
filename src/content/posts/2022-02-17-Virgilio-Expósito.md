@@ -14,7 +14,7 @@ Apenas se bajó del tren, caminó derecho por Maipú y se encontró con dos casa
 
 -*Yo quiero todo*-, decía.
 
-![](https://blogger.googleusercontent.com/img/a/AVvXsEjf32GmfpRiaSrvdm746ILFJx3nd2CYA1XMaqmo6W8cxIBp0g4z70M06MAu8qnNfC8iux1o_Zj1szoNq4r2tlxPIIHz3kYVBy49sxToGekX4yuazKe_jL69wcYLhyeOM-Xc42WmfdI5SMbTum_ElxYr1c17xZw61aFHnXRWlqsYgLM_M7G8mVPMHEXznQ=w290-h400)
+![](/tangos-al-bardo/images/c65562747cf6.jpg)
 
 Cuando volvió a Zárate, donde vivíamos, traía Gershwing, un álbum de Duke Ellington; traía todo. Esto fue en 1933, yo tenía nueve años. Ahí nos dimos cuenta que la música popular no era como nosotros pensábamos. Yo me puse a estudiar sobre eso. Tardé 23 días en poder tocar una obra del álbum de Ellington porque había mucha extensión de dedos y muchas décimas. Cuando llegué a hacerlo con gusto, le dije a Homero:
 
@@ -28,7 +28,7 @@ Lo que mi hermano dijo en ese tema, a los veinte, es terrible. Está basado en L
 
 Un día, mi hermano me llevó a SADAIC y me presentó a Discépolo dijo: "*Ah, nos vamos a divertir un rato con esta gente. Es fenómeno lo que son capaces de hacer estos tipos*". Con Homero ya se estaban divirtiendo, hacía un tiempo.
 
-[![](https://blogger.googleusercontent.com/img/a/AVvXsEgQPsfAflplMG_nLWGaf7ufwi4fmo7-mQLa4imvmKczHw5oozhPOesHTfU9p0ksxVG5kHPuCdC1vjZxN73Q8wBkKAW1yOuPM_bRRGwQwQv5i_4joUrZ6sTI3L02S2MTEJ38hvFnmn0goRZKlYyB9E8wDpmvUsrI1gsI5O7M0eFhL7utm9thyyUmY4f7Pg=w400-h225)](https://blogger.googleusercontent.com/img/a/AVvXsEgQPsfAflplMG_nLWGaf7ufwi4fmo7-mQLa4imvmKczHw5oozhPOesHTfU9p0ksxVG5kHPuCdC1vjZxN73Q8wBkKAW1yOuPM_bRRGwQwQv5i_4joUrZ6sTI3L02S2MTEJ38hvFnmn0goRZKlYyB9E8wDpmvUsrI1gsI5O7M0eFhL7utm9thyyUmY4f7Pg=s1280)Homero y Virgilio Expósito
+[![](/tangos-al-bardo/images/2cadbd79a53f.jpg)](https://blogger.googleusercontent.com/img/a/AVvXsEgQPsfAflplMG_nLWGaf7ufwi4fmo7-mQLa4imvmKczHw5oozhPOesHTfU9p0ksxVG5kHPuCdC1vjZxN73Q8wBkKAW1yOuPM_bRRGwQwQv5i_4joUrZ6sTI3L02S2MTEJ38hvFnmn0goRZKlYyB9E8wDpmvUsrI1gsI5O7M0eFhL7utm9thyyUmY4f7Pg=s1280)Homero y Virgilio Expósito
 
 Poco después nos estrenaron **Farol**, y más adelante **Naranjo en flor**. En este tema hicimos letra y música al mismo tiempo, y no empezó por la primera parte sino por la segunda. Homero me pidió que le pusiera música a unos versos: *"Primero hay que saber sufrir, después amar, después partir, por fin andar sin pensamiento". *
 

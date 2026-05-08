@@ -29,7 +29,7 @@ con este son.
 
 Qué bien lo dice el poeta. que no era milonguero pero sabía incursionar en ese abanico de pasiones que envolvían a aquella Buenos Aires del cuarenta. Las pinceladas, el buen gusto, esos fogonazos de vida que emanaban de la juventud hedonista y también romántica. Fragmentos, conexiones emocionales, los rituales cotidianos que reviven en color sepia por la magia del tango. El domingo tenía expectativas para los muchachos y muchachas que podían escaparse de la rutina gris y el centro de la ciudad se ofrecía como una tentación por todas las posibilidades que ofrecía. Al alcance, además, de cualquier bolsillo. Aclaro, que yo lo viví años más tarde del nacimiento de este tango.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjLJxMGT8kE_XeZ51frxQ5ZvC7dNY1pPmH87Eoginroq_Bpz9YxCDSbEDGTN45-1dl75hBwfr2a1C_pOxMc87jVeZ6rqvPEF7QqWTzywgIMpFePhedWje5Sv5bodH3o5NSv_GuMI-rhnkwk/s200/135x135cc.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjLJxMGT8kE_XeZ51frxQ5ZvC7dNY1pPmH87Eoginroq_Bpz9YxCDSbEDGTN45-1dl75hBwfr2a1C_pOxMc87jVeZ6rqvPEF7QqWTzywgIMpFePhedWje5Sv5bodH3o5NSv_GuMI-rhnkwk/s1600/135x135cc.jpg)El baile de los domingos
+[![](/tangos-al-bardo/images/1690713fce38.jpg)](/tangos-al-bardo/images/edb9b3bc4930.jpg)El baile de los domingos
 sencillo, criollo y tan lindo,
 encadenado a sus tangos
 hoy vivo cautivo

@@ -13,7 +13,7 @@ Se trata de un pianista de buena formación que a la hora de escoger su camino, 
 
 Después de formarse con su padre en el estudio del piano, a los dieciseis años dirigía su primera formación, un Quinteto que le serviría para ir perfilando su estilo de la guardia vieja. Y optará por la forma del Sexteto, con el cual plasma todas sus intenciones en la música que lo había cautivado desde niño.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjnG9wO-c27cmI0alGREmAo8dCQfBNOQ904A__KJ6ZNQ8chDBqIseRRHVyTgs_QMvob-a-OWQ4qVH5ANX0MqXDxEn9Emy6H4VH9n7x9A0vdz_V3wMUpLS30GguKN1t7gFhdbR4E87tYqy4/s320/Orquesta-Miguel-Villasboas.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjnG9wO-c27cmI0alGREmAo8dCQfBNOQ904A__KJ6ZNQ8chDBqIseRRHVyTgs_QMvob-a-OWQ4qVH5ANX0MqXDxEn9Emy6H4VH9n7x9A0vdz_V3wMUpLS30GguKN1t7gFhdbR4E87tYqy4/s1600/Orquesta-Miguel-Villasboas.jpg) Miguel Villasboas al frente de su sexteto
+ [![](/tangos-al-bardo/images/8b0870f951b7.jpg)](/tangos-al-bardo/images/03ae55889b58.jpg) Miguel Villasboas al frente de su sexteto
 Tal fue su metejón, con esa música, que tres años más tarde, cruzó el charco para conocer al hombre cuya música lo había seducido. Averiguó su domicilio y se plantó en la casa del maestro, en Callao y Corrientes.
 
 Firpo había visto como su época había pasado y le costaba entender a este jovencito que quería poner la marcha atrás en la historia del tango. Lo invitó a presenciar una actuación suya en Radio Splendid y lo invitó luego a tocar juntos en su casa.

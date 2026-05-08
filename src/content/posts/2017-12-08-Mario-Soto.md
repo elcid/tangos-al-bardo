@@ -10,7 +10,7 @@ Ya pasé de largo las ochocientas mil visitas a este blog y ello me empuja para 
 
 Mario Soto, uno de los tantos platenses que destacarían en el tango, ya instalado en la capital, arrancaría en el género siguiendo aquella modalidad de la época que era la de presentador de orquesta. Máxime si era una de las grandes. Los Julio Jorge Nelson, Luis González Rivero, Néstor Rodi, Antonio Cantó, El Príncipe Cubano, Antonio Carrizo, Cacho Fontana, el Negro Mela, fueron algunos de esos personajes, que no sólo presentaban a la orquesta con la cual trabajaban sino que incluso glosaban muchos temas al comienzo de los mismos. En la radio, especialmente y en este sentido, grandes figuras como Homero Manzi o Esteban Celedonio Flores, destacaron especialmente.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjiABMdLtvsLKAlvj38g4laSMSWnetDihIR6gXcrjnN8x6Q_nNPmwhotDdTQl85vs-_gLfnaw4Qp43iXsnEdDrYTLhrJVpgM4OJY0-agT1nZYLbJrYqLYXVyIfp0O8fFvr2PXoqbJ3y-Zec/s320/mariosoto.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjiABMdLtvsLKAlvj38g4laSMSWnetDihIR6gXcrjnN8x6Q_nNPmwhotDdTQl85vs-_gLfnaw4Qp43iXsnEdDrYTLhrJVpgM4OJY0-agT1nZYLbJrYqLYXVyIfp0O8fFvr2PXoqbJ3y-Zec/s1600/mariosoto.jpg) Mario Soto
+ [![](/tangos-al-bardo/images/f67d3b9d4340.jpg)](/tangos-al-bardo/images/8a4d6f0e2356.jpg) Mario Soto
 
 A Mario Soto lo comencé a ver cuando presentaba a la orquesta de Osvaldo Pugliese, que fue con la que más veces he bailado en vivo y en directo. Especialmente en la hermosa sede social del club Atlético Huracán con sus grandes salones que albergaban a los ruidosos hinchas del maestro. Por eso conservo en mis retinas la emoción que sembraba Alberto Morán cuando cantaba **Pasional**, el tango precisamente de Mario Soto y el bandoneonista de la orquesta Jorge Caldara. Era algo impresionante.
 
@@ -28,7 +28,7 @@ Mario Soto se va de la orquesta de D'Agostino para colaborar con Ángel Vargas, 
 *Sonido de un nombre entero...*
 *Se llama: ¡Osvaldo Pugliese!... "*
 
-*  [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhO7Rf199u0zLQYCes-e4NdEGn_NWooBP6WvsnrLhv2MHCJxSOCMjr1rAgahzHp3AJXoCv0Vvwov0I8cUGBBqVwHiQ3ZJaCPvsEGW8pF7dqpc9jpd_ULjBBS7S7WJDABJmgbIDDtJDXtnjU/s400/Pugliesero-SOTO.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhO7Rf199u0zLQYCes-e4NdEGn_NWooBP6WvsnrLhv2MHCJxSOCMjr1rAgahzHp3AJXoCv0Vvwov0I8cUGBBqVwHiQ3ZJaCPvsEGW8pF7dqpc9jpd_ULjBBS7S7WJDABJmgbIDDtJDXtnjU/s1600/Pugliesero-SOTO.jpg) Pugliese firma contrato en Splendid. A su derecha Soto, a su zurda Jaime Más. Arriba sus músicos  *
+*  [![](/tangos-al-bardo/images/71ce136c5bcd.jpg)](/tangos-al-bardo/images/2bba25ccc071.jpg) Pugliese firma contrato en Splendid. A su derecha Soto, a su zurda Jaime Más. Arriba sus músicos  *
 
 Será su gran época. Entabla gran amistad con Jorge Caldara, bandoneonista de la orquesta.. Y entre ambos concretan ese gran suceso de Alberto Morán, que tantas veces le vi cantar con Pugliese o como solista con Cupo: **Pasional**. La atmósfera que se montaba alrededor del escenario con las milongueras suspirando, lagrimeando, gritando, mientras el Flaco se desgarraba con los ojos cerrados, apretado al micrófono, fue un espectáculo único. Me tocó una dosis para adultos porque incluso estuvieron las 7 grandes noches 7 de Carnaval, en Huracán, donde íbamos con la barra de Parque Patricios..
 

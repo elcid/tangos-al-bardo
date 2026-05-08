@@ -6,7 +6,7 @@ labels: ""
 tags: ["Alfredo De Angelis", "Francisco Canaro", "Juan D'Arienzo", "Julio Martel", "Carlos Dante"]
 ---
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg8JnR537jSpIAVuhdW4AFSizzcX8ZmB2SST8NNgeRmFZ5RyvqSy_waRu61qAf7vAEfGZyMDaZOfbFXsVAuQyoFZD4O24uWTiq7ELvTSLZc3HhXWC50rEg9QYtCQEoqKivjEMaBT5bWynNM/s320/Pareju.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg8JnR537jSpIAVuhdW4AFSizzcX8ZmB2SST8NNgeRmFZ5RyvqSy_waRu61qAf7vAEfGZyMDaZOfbFXsVAuQyoFZD4O24uWTiq7ELvTSLZc3HhXWC50rEg9QYtCQEoqKivjEMaBT5bWynNM/s1600/Pareju.jpg) *Cuando llegué al fondo del salón*
+[![](/tangos-al-bardo/images/7df068953c8a.jpg)](/tangos-al-bardo/images/e88f1a1f62d3.jpg) *Cuando llegué al fondo del salón*
 *sentí tus ojos tímidos*
 * cruzados con los míos.*
 * Y el corazón, en un loco aletear,*

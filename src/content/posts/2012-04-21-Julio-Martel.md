@@ -19,7 +19,7 @@ La veteranía de Dante y la juventud de Martel se conjugaron en el binomio más 
 En 1946 Radio El Mundo contrata a la orquesta para el **Glostora Tango Club**, programa que estaría 22 años en el aire, patrocinado por un fijador del cabello. De allí saltaron al cancionero popular infinidad de éxitos.
 
 Julio dejó estampada su voz tan imaginativa para tratar la línea melódica y esa simpatía innata que la llevó a ser ídolo, especialmente de las mujeres que acudían a ovacionarlo en Radio El Mundo o en las milongas.
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjw_8UwgYCX-CcEZOdSGfikxJ8kIFUFeXS52Q6pNNw2hxgPMfC8KDl8l-PJCcSQYIwXWaf1CjKagju5nCmf8I5OX20gZxsYcRw7IfZJTtiTeorJ9fMCOxVPaFnjGKheiQ-wPCX2J30dmg6J/s1600/De+Angelis%252C+Dante+y+Martel.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjw_8UwgYCX-CcEZOdSGfikxJ8kIFUFeXS52Q6pNNw2hxgPMfC8KDl8l-PJCcSQYIwXWaf1CjKagju5nCmf8I5OX20gZxsYcRw7IfZJTtiTeorJ9fMCOxVPaFnjGKheiQ-wPCX2J30dmg6J/s1600/De+Angelis%252C+Dante+y+Martel.jpg) Alfredo De Angelis, Carlos Dante y Julio Martel
+ [![](/tangos-al-bardo/images/de6f885cb7c5.jpg)](/tangos-al-bardo/images/de6f885cb7c5.jpg) Alfredo De Angelis, Carlos Dante y Julio Martel
 Se despidió llorando de la orquesta de De Angelis en 1951, en unos carnavales en La Plata, con el último tango que cantó en esa orquesta: *Porque te habré conocido*, de Rodolfo Scalisi y el fueye de la orquesta: Carlos Cubría.
 
 De Angelis le entregó una medalla de oro y le regaló el micrófono y el amplificador que había usado en su debut con la orquesta en el *Marzotto*.

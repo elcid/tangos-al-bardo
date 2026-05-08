@@ -22,7 +22,7 @@ Pero quizás Gagliardi también está en la historia porque compartió el primer
 
 -Cuando estábamos en Mar del Plata, en el *Re-Fa.Si*, escribí un verso para el Gordo. Lo dije una sola vez porque se lo recité de sopresa en el escenario y se puso a llorar. Casi no pudo seguir tocando, entonces no lo hice más.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhU1BHPLMFlyQJppHtSlWPnHiZqNfMu4a1EYlPEGbmUcPXcwp44Ek5QvOZDyfhvIVx3b9FSlNjwhrYk9nmmR440s0Ujdgy0FHibpdG8RRuoL0HSInTJkVw6HDjBhQwOTtY4Tg-CpWfC78s/s320/escanear0001.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhU1BHPLMFlyQJppHtSlWPnHiZqNfMu4a1EYlPEGbmUcPXcwp44Ek5QvOZDyfhvIVx3b9FSlNjwhrYk9nmmR440s0Ujdgy0FHibpdG8RRuoL0HSInTJkVw6HDjBhQwOTtY4Tg-CpWfC78s/s1600/escanear0001.jpg) En Re Fa Si, Pichuco con Gagliardi, su mujer y 3 nietos.
+ [![](/tangos-al-bardo/images/823c1bce57c1.jpg)](/tangos-al-bardo/images/a0daed440254.jpg) En Re Fa Si, Pichuco con Gagliardi, su mujer y 3 nietos.
 Después del lindo recuerdo de *El triste*, como le apodaban a Gagliardi, vale la pena acotar que Pichuco grabó este tema recién en 1950, cantándolo Aldo Calderón pero ese disco nunca salió a la venta y permanece entre los inéditos de Troilo. En cambio grabó el tema del mismo nombre, perteneciente a Eduardo Escaris Méndez y Alberto Tavarozzi, que cantó Raúl Berón en 1952.
 
 

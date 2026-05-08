@@ -10,7 +10,7 @@ Siempre vale la pena recordar a ese contrabajista-guitarrista-poeta llamado Artu
 
 "El señor del tango" le grabaría nada menos que once temas suyos, lo que da una pauta del nivel poético-musical del hombre del barrio de San Cristóbal, que heredó muchas de las virtudes musicales de sus padres, creadores de la troupe "Los Fregolini". También lo copó la bohemia y fue recorriendo los boliches tangueros del centro porteño donde forjó muchas amistades que lo empinarían en su oficio.
 
-![Cómo se hace un tango. Tango (1942)](https://repo.todotango.com/partituras/como-se-hace-un-tango_tapa.jpg)
+![Cómo se hace un tango. Tango (1942)](/tangos-al-bardo/images/6b1aff20ecf2.jpg)
 
 Sobre todo cuando conoció a Carlos Di Sarli quien le brindó de entrada toda su confianza, porque entrevió sus aptitudes y así pudo introducirse en el relumbre de lo esencial. Con él fue forzando sus destrezas y el maestro de Bahía Blanca estrenará y grabará dos temas suyos que le abren el camino al éxito: La milonga "*Yo soy de San Telmo*", que lleva versos de Victorino Velázquez y "**Cómo se hace un tango**", con versos de Enrique Dizeo. La música de Gallucci realza el valor de las letras citadas.
 

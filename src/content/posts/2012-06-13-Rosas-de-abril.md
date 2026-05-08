@@ -6,7 +6,7 @@ labels: ""
 tags: ["Carlos Gardel"]
 ---
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiyeEvGG23hR4rxxtsCxhb4oLaKNw9Xf_n3nsQhzsjvTr3ZAfvDWja0x4YDLPXa9Cxa3C27zh4sVWNr4lcevXshJVIHKtrylNNE7WPc4b9WeWRVjIpmC-lm6cuC_sGEC6Rgn51nd0wbP3Iy/s320/escanear0020.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiyeEvGG23hR4rxxtsCxhb4oLaKNw9Xf_n3nsQhzsjvTr3ZAfvDWja0x4YDLPXa9Cxa3C27zh4sVWNr4lcevXshJVIHKtrylNNE7WPc4b9WeWRVjIpmC-lm6cuC_sGEC6Rgn51nd0wbP3Iy/s1600/escanear0020.jpg) Rafael Rossi con Rosita Valentino en Radio Belgrano.1950  Rafael Rossi era un gauchazo campero trasplantado al tango. Oriundo de Mercedes, provincia de Buenos Aires, a 100 kilómetros de la Capital Federal, tanto podía interpretar con su bandoneón páginas folklóricas como tangos, milongas y valsecitos.
+[![](/tangos-al-bardo/images/09ff70c55049.jpg)](/tangos-al-bardo/images/83646b196d4c.jpg) Rafael Rossi con Rosita Valentino en Radio Belgrano.1950  Rafael Rossi era un gauchazo campero trasplantado al tango. Oriundo de Mercedes, provincia de Buenos Aires, a 100 kilómetros de la Capital Federal, tanto podía interpretar con su bandoneón páginas folklóricas como tangos, milongas y valsecitos.
 
 Tocó con Pacho, con los hermanos De Caro, con Firpo, con Canaro y en varios conjuntos. Recorrió todo el país con su orquesta o cuarteto y frecuentó la radio.
 

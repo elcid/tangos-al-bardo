@@ -10,7 +10,7 @@ tags: ["Francisco Pracánico", "Francisco Lomuto", "Azucena Maizani", "Sebastiá
 
 
 ﻿﻿
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjMeilK2dfZ9YxK84XxFoi4QEOEpPyeA1nra0HD6r4HJ7xfB88wrUxF5YFN9ucYXKlAToozNnBL3sANad2UBSr-no63f46KYVeWnLnRfgwpk6S2sVIvUDnRnH-w5sekdo9JAqWyFmLIencO/s320/Monte+criollo.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjMeilK2dfZ9YxK84XxFoi4QEOEpPyeA1nra0HD6r4HJ7xfB88wrUxF5YFN9ucYXKlAToozNnBL3sANad2UBSr-no63f46KYVeWnLnRfgwpk6S2sVIvUDnRnH-w5sekdo9JAqWyFmLIencO/s1600/Monte+criollo.jpg) Florindo Ferrario, Marcelo Ruggero y Francisco Petrone
+ [![](/tangos-al-bardo/images/8af7ea40ae32.jpg)](/tangos-al-bardo/images/a9e597968332.jpg) Florindo Ferrario, Marcelo Ruggero y Francisco Petrone
 
 La letra de Manzi es una hermosa metáfora sobre los azares de la vida, las trampas y desengaños del amor.
 

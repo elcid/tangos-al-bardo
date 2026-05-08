@@ -19,7 +19,7 @@ Un recorte del diario **Crítica**, sin fecha pero con presumible ubicación a c
 
 El tango comienza a cantarse en los boliches, esos almacenes de bebidas y de todo, que son verdaderos paradores o ventas de los caminos intrazados. No se le encuentra lo que tiene de italiano porque no lo tiene, porque es la superación del italiano, que al llegar a la Argentina abandona la melodía y entra en lo barroco de tipo español -de pelo negro- y por ende en lo criollo, y pega en él porque el italiano quizás desde hace siglos tenía el deseo de lo desparejo, de lo prosaico versificado, del romper la lindura" (Ramón Gómez de la Serna)
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjJlMBHA1DHwcOpjpLbCs2ICc4E_MgeLWHnkZninGXBkBG0W_1GCM7kbguYUd7CFURWGys9sJvbLGJAPqIXO2xkTub7QM0iFcLYfl9SiZnndckzwMBHyFQiKO8OAsPeWgle1n-ad5dEJkA9/s320/035-el-tango.png.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjJlMBHA1DHwcOpjpLbCs2ICc4E_MgeLWHnkZninGXBkBG0W_1GCM7kbguYUd7CFURWGys9sJvbLGJAPqIXO2xkTub7QM0iFcLYfl9SiZnndckzwMBHyFQiKO8OAsPeWgle1n-ad5dEJkA9/s1600/035-el-tango.png.jpg)
+[![](/tangos-al-bardo/images/6701bf0a2ea4.jpg)](/tangos-al-bardo/images/c42a0cf0e5a5.jpg)
 
 **Negritud del tango**
 

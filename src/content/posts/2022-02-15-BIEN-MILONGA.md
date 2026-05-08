@@ -6,7 +6,7 @@ labels: ""
 tags: ["Carlos Di Sarli", "Julio De Caro"]
 ---
 
-[![](https://blogger.googleusercontent.com/img/a/AVvXsEjPT1tqW0WXPlILB62cMgZXM9fAF777lamQHr-7g_WFudH-WQMvyl6PzlEoufNntCtvVGF-bhfW0lEMt3HmcUiK9B24bs7YGJMVSSYYC2tww7EoOxD8kOJQ_Y-4umehVG2U5lHpM9nE7J1nak8CK_64BM4bvHyBL3InURiGLBMr2dT8961003G3z6FTLA)](https://blogger.googleusercontent.com/img/a/AVvXsEjPT1tqW0WXPlILB62cMgZXM9fAF777lamQHr-7g_WFudH-WQMvyl6PzlEoufNntCtvVGF-bhfW0lEMt3HmcUiK9B24bs7YGJMVSSYYC2tww7EoOxD8kOJQ_Y-4umehVG2U5lHpM9nE7J1nak8CK_64BM4bvHyBL3InURiGLBMr2dT8961003G3z6FTLA=s300)
+[![](/tangos-al-bardo/images/8fe0bd0d8461.jpg)](/tangos-al-bardo/images/8fe0bd0d8461.jpg=s300)
 
 Bailen todos, compañeros
 

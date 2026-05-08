@@ -10,7 +10,7 @@ Siento ganas de hablar largo y tendido del autor de estos versos y de tantos otr
 
 Fue incluso muy prolífico, a la manera de un Expósito o un Bahr, pero no escribió al voleo, sino con pluma sabia e incluso con críticas que formulaba mediante el poderoso narcótico de las sensaciones. Su paleta que describe el paisaje con tanto bronce inútil, le permite otear un país desmediado, los mecanismos de la esperanza colectiva, los distintos centros de gravedad emocional y siempre con el tango como telón de fondo, con la temperatura justa de sus palabras.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgt7GRUZxFXtc6vlY79sJoQX3OiwR_1rdoV88roFfS7jfOtxIkGtrqnGGBzVGWhNSce1SVEbiN6UErYQqQsli3BS_pAykfJxx1ligsGY3McO4PWuZHF43GdhCus367B-1ONjAcikL33svV-/s400/Negro.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgt7GRUZxFXtc6vlY79sJoQX3OiwR_1rdoV88roFfS7jfOtxIkGtrqnGGBzVGWhNSce1SVEbiN6UErYQqQsli3BS_pAykfJxx1ligsGY3McO4PWuZHF43GdhCus367B-1ONjAcikL33svV-/s1600/Negro.jpg) Héctor Negro
+ [![](/tangos-al-bardo/images/9fa6022b1c58.jpg)](/tangos-al-bardo/images/76dce8ed6f6a.jpg) Héctor Negro
 
 Se llemaba Ismael Héctor Varela, nació en el barrio de Belgrano, fue publicista y periodista, colaborador en distintas publicaciones. Sus poemas encontraron espacio en diversos medios locales pero también de Estados Unidos, Uruguay, México, Colombia y otros países. Su tango** Esta ciudad**, con música del guitarrista Osvaldo Avena, ganó el Primer premio del concurso Odol 1967. Le editaron tres libros de poemas y colaboró con numerosos compositores en sus tangos y milongas.
 
@@ -43,7 +43,7 @@ su estirpe arrabalera
 y cruza las fronteras
 del mundo sin cesar.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjZ4FSsiodR4A4bvNgPDJdanv-3MOFO86HkmsWH21063SOCbn5bf8fpT3JMJkISgifHXB8WttgpSEzRi2oMnLyp0PJoY65Fy0O7RD57BlaqCKOKhpkGE_vGdTfJpLyAAzal2zxPRCJToAOK/s400/Eladia.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjZ4FSsiodR4A4bvNgPDJdanv-3MOFO86HkmsWH21063SOCbn5bf8fpT3JMJkISgifHXB8WttgpSEzRi2oMnLyp0PJoY65Fy0O7RD57BlaqCKOKhpkGE_vGdTfJpLyAAzal2zxPRCJToAOK/s1600/Eladia.jpg) Eladia Blázquez y Héctor Negro, pilares del tango en los años del bajón
+ [![](/tangos-al-bardo/images/4d38641af091.jpg)](/tangos-al-bardo/images/efaf14b8a258.jpg) Eladia Blázquez y Héctor Negro, pilares del tango en los años del bajón
 
 Versos impactantes que escarban con el idioma de la sensatez y la verificalidad, en la colonialidad del poder. La súbita opacidad de todo. El envés de la vida sin abalorios retóricos. La meliflua historia mal contada. El paso del tiempo demuestra lo ilusorio de muchas convicciones y la gente parece que está siempre muy ocupada con su angustia. La fuerza mineral de la palabra encuentra las sentinas de la posmodernidad. Y Héctor Negro parece radiografiar momentos siempre presentes del país, con la fuerza lírica del tango.
 

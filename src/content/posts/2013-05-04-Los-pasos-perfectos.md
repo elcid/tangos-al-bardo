@@ -16,7 +16,7 @@ Voy a acompañar las viñetas con dos versiones de la orquesta *The Tokio Cuban 
 
 Esta orquesta de 26 músicos fue formada por Tadaaki Misago en 1948 y llegó a grabar una gran cantidad de long-plays, que han sido reeditados en CDs. *La Tokyo Cuban Boys*, que fue alabada por Dámaso Pérez Prado, acompañó a Eri Chiemi en la grabación de dos álbumes. Tocaban diferentes ritmos y viajaron por muchos países gracias a la calidad de su sonido. Misago falleció en 1990.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgJ_h-_JAoPtcg-PFq1NgVNcqk9QXa3uWQWuH-peX0WdyDqcNcoB-sQDMpkh6ujGS3ElYwFtXfk1ld0j46tg4Kr_nWIrP-YwptzrVA2pRaVyO4RUszrkMMdExnheeyzoS2ZwD86FsR2W8A/s320/Tokio+Cuban.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgJ_h-_JAoPtcg-PFq1NgVNcqk9QXa3uWQWuH-peX0WdyDqcNcoB-sQDMpkh6ujGS3ElYwFtXfk1ld0j46tg4Kr_nWIrP-YwptzrVA2pRaVyO4RUszrkMMdExnheeyzoS2ZwD86FsR2W8A/s1600/Tokio+Cuban.jpg) Taddaki Misdago al frente de su gran orquesta
+ [![](/tangos-al-bardo/images/f85e03322876.jpg)](/tangos-al-bardo/images/540ef05d031d.jpg) Taddaki Misdago al frente de su gran orquesta
 
  He seleccionado dos temas del citado CD, para acompañar esta distinta presentación de nuestro querido tango, en una matina de sábado asoleada, antes de largarme a una caminata, para aprovechar la visita del Rey Febo en el luminoso cielo deMadrid.
 

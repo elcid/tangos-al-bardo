@@ -10,7 +10,7 @@ Cátulo Castillo no sólo fue un prolífico y espléndido autor de tangos, sino 
 
 Volvería tres años más tarde, en 1931, a sus 25 años de edad con el elenco de revistas del teatro Sarmiento, acompañando a su padre -José González Castillo- con quien ya se había ido de niño a Santiago de Chile donde Don José trabajaría en la prensa de Valparaíso. Allí comenzaría su rol escolar que continuaría en el regreso a Buenos Aires, junto con sus estudios musicales.
 
-[![](https://blogger.googleusercontent.com/img/a/AVvXsEg82FuAHbsAqc1n3BgeQuAAsbPJbTSpWoq7kZJ7YpE43VXSoYbhJKPiLbL03eqQS923uFZV3ZqhDK4dyUV_ssch0Fc48cou_PJ4PyLiU51m3f2cagoByYfNLOxIlgO8ZUjqiM-xuD_j1jdCqnvU858_xGi8HtmnlU9Wb4GTfZR5lKqFQTVfuZ9LwUt9q5eR=w221-h320)](https://blogger.googleusercontent.com/img/a/AVvXsEg82FuAHbsAqc1n3BgeQuAAsbPJbTSpWoq7kZJ7YpE43VXSoYbhJKPiLbL03eqQS923uFZV3ZqhDK4dyUV_ssch0Fc48cou_PJ4PyLiU51m3f2cagoByYfNLOxIlgO8ZUjqiM-xuD_j1jdCqnvU858_xGi8HtmnlU9Wb4GTfZR5lKqFQTVfuZ9LwUt9q5eR)Cátulo Ovidio González Castillo
+[![](/tangos-al-bardo/images/b44a9b673304.jpg)](https://blogger.googleusercontent.com/img/a/AVvXsEg82FuAHbsAqc1n3BgeQuAAsbPJbTSpWoq7kZJ7YpE43VXSoYbhJKPiLbL03eqQS923uFZV3ZqhDK4dyUV_ssch0Fc48cou_PJ4PyLiU51m3f2cagoByYfNLOxIlgO8ZUjqiM-xuD_j1jdCqnvU858_xGi8HtmnlU9Wb4GTfZR5lKqFQTVfuZ9LwUt9q5eR)Cátulo Ovidio González Castillo
 
 Tenía apenas 17 años cuando compone su primer tango: "*Organito de la tarde*", que lleva versos de su padre. Y el tema pega fuerte en el ambiente. Su vida está llena de salpicones, como la práctica del boxeo, donde destacaría hasta tal punto que gana un torneo importante, como peso pluma, y lo preseleccionan para las Olimpíadas de Ámsterdam.
 

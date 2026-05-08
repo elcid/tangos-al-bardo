@@ -10,7 +10,7 @@ En la película *Mis cinco hijos*, que dirigieron el actor Orestes Caviglia y Be
 
 Mario, que luego tendría una época fructífera con Francisco Canaro, con cuya orquesta grabó 31 temas, canta dos tangos en la película, secundado por la orquesta de Osvaldo Pugliese: *A barquinazos*, de Pugliese y Homero Expósito, y* El encopao*, de Osvaldo Pugliese y Enrique Dizeo. Las escenas se filmaron en el Club Social Villa Crespo, feudo del *troesma*.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEietqFgo5zSUo7FNmXJQksfSWJ_cMbhIeRUBZqBwkcHXUIEOXskFOpYs6fpCocORHFJ3X9l4eHwXzJ18uNeZaZk2-ho06DFALe08kDwRLta5RQoI604tBZVmnYvGLZFJRIyRcpux9dVEkXM/s320/Osvaldo+Pugliese+-+Mis+cinco+hijos.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEietqFgo5zSUo7FNmXJQksfSWJ_cMbhIeRUBZqBwkcHXUIEOXskFOpYs6fpCocORHFJ3X9l4eHwXzJ18uNeZaZk2-ho06DFALe08kDwRLta5RQoI604tBZVmnYvGLZFJRIyRcpux9dVEkXM/s1600/Osvaldo+Pugliese+-+Mis+cinco+hijos.jpg) La orquesta en el filme. Chanel y Morán, con traje claro.  Don Osvaldo, a la vez, toca con la orquesta sus tangos: **La yumba** y **Adiós Bardi**.
+ [![](/tangos-al-bardo/images/e8442ef7f609.jpg)](/tangos-al-bardo/images/541e0ec572b6.jpg) La orquesta en el filme. Chanel y Morán, con traje claro.  Don Osvaldo, a la vez, toca con la orquesta sus tangos: **La yumba** y **Adiós Bardi**.
 
 Es una buena ocasión para volver a 1948 cuando se estrenó *Mis cinco hijos* y ver a Osvaldo Pugliese y su orquesta en aquella época gloriosa y milonguera. Daniel Binelli nos hace el introito.
 

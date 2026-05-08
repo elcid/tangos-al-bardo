@@ -18,7 +18,7 @@ Y fue precisamente dentro de esos límites, sin lugar para la autocomplacencia, 
 
 Algunos llegaron tan lejos, que prefirieron bastarse solos. Cuando Castillo se lanzó como solista, agudizando un estilo diferente y fuertemente escénico que ya estaba pidiendo aire, subrayaba, con un trazo grueso como el nudo de su corbata, el principio del fin de una época.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgMPLGqTb5EcEpouydvR2de-NqEgS1GRmoihhTR1EgCFlTfOJGeacRx8ViUmOXHvh37ebG9OFPDjC3ksrc1LdEI1oFVxqA1j0L5NVfAV421KnHow0fv0zpR1bvHxYZozgq2jGhRYcdQ74Vp/s400/Fiorentino-and-Troilo-b3cef634.jpeg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgMPLGqTb5EcEpouydvR2de-NqEgS1GRmoihhTR1EgCFlTfOJGeacRx8ViUmOXHvh37ebG9OFPDjC3ksrc1LdEI1oFVxqA1j0L5NVfAV421KnHow0fv0zpR1bvHxYZozgq2jGhRYcdQ74Vp/s1600/Fiorentino-and-Troilo-b3cef634.jpeg) Troilo-Fiorentino, el símbolo de una época maravillosa del tango: Los '40
+ [![](/tangos-al-bardo/images/a99959928418.jpeg)](/tangos-al-bardo/images/cba87e0de20d.jpeg) Troilo-Fiorentino, el símbolo de una época maravillosa del tango: Los '40
 
 Las siguientes generaciones no contaron, salvo excepciones, con la oportunidad de la típica, que había comenzado a caer, avanzada la década del 50, en una confabulación alimentada de intereses y fatalidad -y en la que la independización de los vocalistas también había hecho aportes-. En el mismo tren partía el recuerdo de una tradición de voces mesuradas, y extraordinarias de los años 20 y 30, sin que casi nadie apresara sus lecciones.
 

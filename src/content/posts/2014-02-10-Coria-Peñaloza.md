@@ -10,7 +10,7 @@ Gracias a los buenos oficios del amigo Ricardo Schoua, puedo reproducir esta inv
 
 Gabino Coria Peñaloza nació en un pequeño pueblo de la provincia de Mendoza llamado *Acequias*, o *Tres acequias*. Curiosamente las acequias son los sistemas de regadío que construyeron en la época prehispánica ls aborígenes y que proveían de agua potable y riego a sus habitantes. Ellos crearon esa cultura de los oasis que siguen funcionando con enorme eficacia en toda la provincia cuyana.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjixr3eW8RkxWRj-P_SnShOw0-Zij5UK9V3niJbW-nKHn9AGhph5W8Lu-TuaIW0kFGFsflj1tIKxB9fH0gvwrJR2l-G1Tzegaxa2Pl0r5Kkd6XwYL9mK0A52CfQl_UWb_nC5CQnxNDhyphenhyphen2c/s1600/Gabino_Coria_Pe%25C3%25B1aloza_and_Julio_Jorge_Nelson.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjixr3eW8RkxWRj-P_SnShOw0-Zij5UK9V3niJbW-nKHn9AGhph5W8Lu-TuaIW0kFGFsflj1tIKxB9fH0gvwrJR2l-G1Tzegaxa2Pl0r5Kkd6XwYL9mK0A52CfQl_UWb_nC5CQnxNDhyphenhyphen2c/s1600/Gabino_Coria_Pe%25C3%25B1aloza_and_Julio_Jorge_Nelson.jpg) Gabino Coria Peñaloza (izq) con Julio Jorge Nelson
+ [![](/tangos-al-bardo/images/56b6c450162b.jpg)](/tangos-al-bardo/images/56b6c450162b.jpg) Gabino Coria Peñaloza (izq) con Julio Jorge Nelson
 
 Pasó Gabino su infancia en Villa Mercedes -San Luis- y se radicaría ya un muchacho, en Buenos Aires después de haber recorrido también, durante un tiempo, otros pueblos de La Rioja. Había leído bastante, escribía poesía, y en prolongadas mesas de café con escritores anarquistas tan comunes a la época, estableció muchas relaciones. De este modo fue publicando versos en *Caras y Caretas*, en periódicos anarquistas y en la revista *Nativa*.
 

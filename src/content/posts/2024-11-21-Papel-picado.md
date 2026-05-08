@@ -10,7 +10,7 @@ Este tango de padre e hijo (José González Castillo y Cátulo Castillo), siempr
 
 Decantado por la melancolía, reverbera la mirada hacia atrás, siente despertar una pasión antigua, tratada con delicadeza y sensibilidad. La añoranza se encalla en el simbolismo del Carnaval y todo su despliegue, en donde pueden pasar cosas alegres y en algunos casos las emociones quedan atrapadas en el discurrir de la pasión sentimental.
 
-[![](https://blogger.googleusercontent.com/img/a/AVvXsEiis7UyFLruNxteULOIBd0VNwsXScw7QgkFsODbwK9D0TpxHtW3RJZeGVKus7C7ahGoUkHd-RU7TXveXgaoy9ZAvSnjnJZG4fT0HyGwWU_tq3-XcJd92iyjo5aje99JkYq8ZRN6m-Fw_4ZKwJMdMAVxwjdOZGbfFGSXM4_ierLZOf7o5sFgQyK8C5N_shYS=w400-h238)](https://blogger.googleusercontent.com/img/a/AVvXsEiis7UyFLruNxteULOIBd0VNwsXScw7QgkFsODbwK9D0TpxHtW3RJZeGVKus7C7ahGoUkHd-RU7TXveXgaoy9ZAvSnjnJZG4fT0HyGwWU_tq3-XcJd92iyjo5aje99JkYq8ZRN6m-Fw_4ZKwJMdMAVxwjdOZGbfFGSXM4_ierLZOf7o5sFgQyK8C5N_shYS)José González Castillo
+[![](/tangos-al-bardo/images/9158aafc4092.jpg)](https://blogger.googleusercontent.com/img/a/AVvXsEiis7UyFLruNxteULOIBd0VNwsXScw7QgkFsODbwK9D0TpxHtW3RJZeGVKus7C7ahGoUkHd-RU7TXveXgaoy9ZAvSnjnJZG4fT0HyGwWU_tq3-XcJd92iyjo5aje99JkYq8ZRN6m-Fw_4ZKwJMdMAVxwjdOZGbfFGSXM4_ierLZOf7o5sFgQyK8C5N_shYS)José González Castillo
 
 Entonces entra a tallar la nieve como elemento agravante de la relación, en el paisaje de la realidad palpitante. Entre la neblina del recuerdo flotan proyecciones inconscientes, astilladas en contenido e intensidad. Cautivo de la nostalgia, el poeta pretende sublimar un deseo no satisfecho y se encuentra con esos trocitos de papel que vuelan hacia él, como arma que convierte el amor en ceniza.
 

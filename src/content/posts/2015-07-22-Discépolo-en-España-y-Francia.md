@@ -16,7 +16,7 @@ Así, por ejemplo nació la música de* Canción desesperada* que urdió en Mall
 
 Después de su consagración en Buenos Aires, donde llegó a dirigir una Orquesta Típica en el Teatro Colón, cree llegado el momento de largarse a Europa -donde ya conocían muchos de sus tangos-, con Tania, llevando en sus maletas todas aquellas creaciones. En medio de los ajetreados preparativos para el viaje, se preparó un Festival en el Luna Park, en el que Discepolín presentó su *Historia del tango en dos horas,* que ya había representado con anterioridad.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjTBL0qVjPPT3BYGBA86SonduxAKXs9DDY1VqGGLRjQ4TPJqe3OBbiEQF5VSAlkjor1IImz3IGMVGsBXKv8IGzNhGANiZ29NWLB1UbLLoO7SWZvHMVbnRnHM7AzL47XFQbcqtzeEyruU8Q/s400/ED.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjTBL0qVjPPT3BYGBA86SonduxAKXs9DDY1VqGGLRjQ4TPJqe3OBbiEQF5VSAlkjor1IImz3IGMVGsBXKv8IGzNhGANiZ29NWLB1UbLLoO7SWZvHMVbnRnHM7AzL47XFQbcqtzeEyruU8Q/s1600/ED.jpg) Discépolo y Tania camino de Europa
+ [![](/tangos-al-bardo/images/15cfbf1beeb9.jpg)](/tangos-al-bardo/images/80018e7882f7.jpg) Discépolo y Tania camino de Europa
 
 Pero en este caso, con un apoyo total del mundo del tango, se encontró delante de sesenta músicos, provenientes de las orquestas de Francisco Canaro, Julio De Caro, Edgardo Donato, Francisco Lomutos y otras. A esto se agregaría la presencia de grandes voces del momento como Ignacio Corsini, Azucena Maizani, Sofía Bozán, o Alberto Vila. Y entre los varios directores, también el pequeño Discépolo estaría al frente de esos músicos en la interpretación de algunos de sus grandes éxitos que estaban de moda.
 

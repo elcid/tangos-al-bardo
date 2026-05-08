@@ -6,7 +6,7 @@ labels: ""
 tags: ["José María Otero"]
 ---
 
-![Primavera | ©Marisol Torremocha Lopez](https://res.cloudinary.com/hello-tickets/image/upload/c_limit,f_auto,q_auto,w_768/v1684882929/post_images/Argentina-170/Buenos-aires/spring/41435895921_6775be22c3_o_Cropped_1.jpg)
+![Primavera | ©Marisol Torremocha Lopez](/tangos-al-bardo/images/e3fdc0cb4d42.jpg)
 
 “*Así, así quedaste en mí /
 clavada en la raíz ** remota del recuerdo*”. Mario C. Arrieta

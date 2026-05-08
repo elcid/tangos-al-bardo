@@ -10,7 +10,7 @@ La censura del gobierno militar le obligó a canmbiar títulos y letras a los ta
 
 Francisco García Jiménez, eminente poeta del tango, compuso este tango con el violinista y feliz compositor: Oscar Arona. Pinta divinamente aquellas milongas del cuarenta dado que Tanturi-Castillo lo grabaron en mayo de 1943 y Demare-Berón lo hicieron dos meses más tarde. Y la pieza termina así:
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjl6SewcjkFNIUyzvnvXdN7PBCOfPBskDBTWem62A1_I_ebzRGoNOuRcb3DsLirX4jrXR8lVvfzO_vzPpWcF0126kTsaqDvwnAhxzFkrlldJEL_23Nq1WcxZML01b_nFOT7EN0jXX9-uF_A/s200/Bailongo+de+los+domingos.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjl6SewcjkFNIUyzvnvXdN7PBCOfPBskDBTWem62A1_I_ebzRGoNOuRcb3DsLirX4jrXR8lVvfzO_vzPpWcF0126kTsaqDvwnAhxzFkrlldJEL_23Nq1WcxZML01b_nFOT7EN0jXX9-uF_A/s1600/Bailongo+de+los+domingos.jpg)Alardes de bordador
+[![](/tangos-al-bardo/images/255f01e28f6f.jpg)](/tangos-al-bardo/images/8c9ed68e4b9e.jpg)Alardes de bordador
 dibuja el pié
 y afirma el brazo su fé
 de vencedor.

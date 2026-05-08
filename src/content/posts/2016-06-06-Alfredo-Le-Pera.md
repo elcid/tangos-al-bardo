@@ -10,7 +10,7 @@ En este mes de Junio se recuerda siempre el trágico final del gran Carlos Garde
 
 Alfredo Le Pera es una especie de marginado en el tango y nunca supe las razones, por más que lo haya discutido con algunas figuras del género. Julián Centeya -buen amigo-, casi me pelea el día que le dije la impresión grata que me dejó la alianza Discépolo-Le Pera, en** Carillón de la Merced**, el tango que hicieron, juntos, en Chile. Y aseguraba que éste último sólo había puesto la firma pero que el tango era enteramente discepoleano... Y no era el único.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi31-QpfOHAitI8HyZpnH-98Pvdc6Xx6_C93exNtMVG9zPKtSG-SaKxtBsFKuJBU_apINIUts6BoehCVs2iWuh6vD5KfCqv_TFt44LE5DhLhw7JrrSsFS9PMGuGbu2-kcmFPikspu8QkBrO/s320/gardel-le-pera.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi31-QpfOHAitI8HyZpnH-98Pvdc6Xx6_C93exNtMVG9zPKtSG-SaKxtBsFKuJBU_apINIUts6BoehCVs2iWuh6vD5KfCqv_TFt44LE5DhLhw7JrrSsFS9PMGuGbu2-kcmFPikspu8QkBrO/s1600/gardel-le-pera.jpg) La dupla de leyenda: Carlos Gardel y Alfredo le Pera
+ [![](/tangos-al-bardo/images/9c1ac2eadcff.jpg)](/tangos-al-bardo/images/3c12497abcbc.jpg) La dupla de leyenda: Carlos Gardel y Alfredo le Pera
 Se decía en el ambiente que fue mala persona, como si eso fuese obstáculo para reconocer sus obras. Otros aseguraban que había plagiado casi todo. Y yo pienso que hasta para plagiar y meter versos de otros en algo tan particular como es el tango, hay que tener mucho talento. Como lo tuvieron Cadícamo o Manzi, que alguna vez recurrieron a poesías clásicas para sumarlas a su estro indudable y magistral. Además Le Pera lo reconoció en el caso de** El día que me quieras**, e incluso pidió permiso a la familia del mexicano Amado Nervo para sacar el modelo. Mejorando incluso a Nervo.
 
 Aníbal Troilo, que sabía como pocos el valor de la poesía tanguera, en un reportaje que le realizara el periodista Jorge Couselo en Mar del Plata, en febrero de 1970 decía:
@@ -20,7 +20,7 @@ Ahí aparece Le Pera, de quien me dieron que no era buen tipo, pero ¡qué impor
 
 A mí, ya de chico, me emocionaban muchas cosas de Le Pera. Cuando tenía 12 años, por ejemplo, y volvía de un mes de vacaciones en casa de mis tíos en Mendoza, y después de 18 interminables horas de tren, éste comenzaba a entrar en las afueras de Buenos Aires, con luces esbozándose en el campo, me venían a la cabeza esas palabras de** Volver**: "*Yo adivino el parpadeo / de las luces que a lo lejos / van marcando mi retorno". *
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj_027gIRX10MdynWYEbfgGgW6kcwqPBZiaX2F_l2Q6vrQpnbAYT1Fn-4olMAAF2VLZw4-FKqm_LqlYlNTqtHL1xMSa_oxRA94g-pQtLrgdIvPpVElzlh9WP55KdNq_dsJioX5Lxsd1gMHv/s320/partitura-volver-.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj_027gIRX10MdynWYEbfgGgW6kcwqPBZiaX2F_l2Q6vrQpnbAYT1Fn-4olMAAF2VLZw4-FKqm_LqlYlNTqtHL1xMSa_oxRA94g-pQtLrgdIvPpVElzlh9WP55KdNq_dsJioX5Lxsd1gMHv/s1600/partitura-volver-.jpg)En las letras de esos tangos que compuso con Gardel hay hallazgos poéticos hermosos. Siempre lo pensaba en los velatorios cuando los familiares de la persona fallecida debían recibir los pésames de amigos y conocidos, y recordaba a **Sus ojos se cerraron**. .
+[![](/tangos-al-bardo/images/7cec1cd0749f.jpg)](/tangos-al-bardo/images/3b464e6e0a89.jpg)En las letras de esos tangos que compuso con Gardel hay hallazgos poéticos hermosos. Siempre lo pensaba en los velatorios cuando los familiares de la persona fallecida debían recibir los pésames de amigos y conocidos, y recordaba a **Sus ojos se cerraron**. .
 *-Yo sé que ahora vendrán caras extrañas / con su limosna de alivio a mi tormento.*
 *
 *Le Pera lo había sufrido en sus carnes, cuando acompañó a su novia de entonces, Aída Rodríguez -bailarina del Teatro Sarmiento-, hasta una clínica de Suiza, donde ella fallecería.
@@ -41,10 +41,10 @@ O el insomnio de **Soledad**: ...*"Yo no quiero que nadie se imagine / como es d
 
 Quién no recordó alguna vez esa hermosura poética de **Cuesta abajo**: "*Si arrastré por este mundo / la vergüenza de haber sido / y el dolor de ya no ser."...*
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiLyfcxcnijxxX6ENzARHZi45LNKf22IVefS_oEddk0mLGKNd7yWJ2-FPxbSjmaa31w8sni8wN__SMlbsX3QJqYkTxso-IIyCdFSonY1PDrEpAi0R7A5atWWaRMDwUBfO62uZ1xITRjR0LW/s320/Gardel-Le+Pera.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiLyfcxcnijxxX6ENzARHZi45LNKf22IVefS_oEddk0mLGKNd7yWJ2-FPxbSjmaa31w8sni8wN__SMlbsX3QJqYkTxso-IIyCdFSonY1PDrEpAi0R7A5atWWaRMDwUBfO62uZ1xITRjR0LW/s1600/Gardel-Le+Pera.jpg) Gardel, Le Pera, Juan Cruz Mateo y gente de la Paramount
+ [![](/tangos-al-bardo/images/f3f46ad46573.jpg)](/tangos-al-bardo/images/22a587419f3e.jpg) Gardel, Le Pera, Juan Cruz Mateo y gente de la Paramount
 La lista es muy larga y me encantaría seguir con la cita, porque creo que los factuales versos de **Silencio, Melodía de arrabal, ****Me da pena confesarlo,** **Amores de estudiante**, o el tremendo **Volvió una noche**, son unas pinturas geniales, pero bastaría con eso que nunca dejaremos de cantar:
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgOh084oItdSxZoFQBJ0hfVj2zzCw7ehzMpWcljMntp7kL9666fnnADghkgt3GLMxfLCJgISodkFdOvD6zZmOUWKr6ajT4XmY4M6la0LeyX_dX3AnyRM6MnKCfd3bltsKDlvF7CKI3EVi_7/s1600/MIB.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgOh084oItdSxZoFQBJ0hfVj2zzCw7ehzMpWcljMntp7kL9666fnnADghkgt3GLMxfLCJgISodkFdOvD6zZmOUWKr6ajT4XmY4M6la0LeyX_dX3AnyRM6MnKCfd3bltsKDlvF7CKI3EVi_7/s1600/MIB.jpg)*Mi buenos Aires querido, *
+[![](/tangos-al-bardo/images/13f053b867a9.jpg)](/tangos-al-bardo/images/13f053b867a9.jpg)*Mi buenos Aires querido, *
 *cuando yo te vuelva a ver*
 *no habrá más penas ni olvido.*
 

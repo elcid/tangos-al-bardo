@@ -10,7 +10,7 @@ El tango lo inventaron los bailarines negros que danzaban con temas inventados s
 
 En la época dorada del tango, los milongueros fueron los que obligaron a las grabadoras y las radios a aportar material fresco permanentemente y a ello también obedeció la gran demanda de músicos, cantores y orquestas. En esas tres facetas que encierra esta música ciudadana: Música, Poesía, Danza, el baile ha sido, por lo general lo que le ha permitido tener un impacto enorme en la popularidad de sus grandes momentos. Y en la actualidad en todo el mundo.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiFdhBlOR2FgBSa5GqWVC8jbrCeJQPpKjAv1YeHUeg_prh8r1eTddYBEi70yjW7F4Lr1-c1iPXUubEstfynr6Cbss07iz6RgBc_8GqySuDLTnObGD45JqBnqEZngelWekmJ3WjdPhPS9Go/s400/Cuatrocientas_mil_personas_en_dos_semanas_inolvidables_1_full.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiFdhBlOR2FgBSa5GqWVC8jbrCeJQPpKjAv1YeHUeg_prh8r1eTddYBEi70yjW7F4Lr1-c1iPXUubEstfynr6Cbss07iz6RgBc_8GqySuDLTnObGD45JqBnqEZngelWekmJ3WjdPhPS9Go/s1600/Cuatrocientas_mil_personas_en_dos_semanas_inolvidables_1_full.jpg)Por supuesto están los degustadores de la música que poblaban los Cafés de la Boca y posteriormente los céntricos, tan famosos. Pero las multitudes acudían detrás de las orquestas para bailar con ellas y cada una de ellas tenía su propia y fervorosa hinchada. Incluso bailar con grabaciones de esos conjuntos se convirtió en una manantial para innumerables clubes de barrio de Buenos Aires.
+[![](/tangos-al-bardo/images/c218246375e8.jpg)](/tangos-al-bardo/images/a8a713a7af4f.jpg)Por supuesto están los degustadores de la música que poblaban los Cafés de la Boca y posteriormente los céntricos, tan famosos. Pero las multitudes acudían detrás de las orquestas para bailar con ellas y cada una de ellas tenía su propia y fervorosa hinchada. Incluso bailar con grabaciones de esos conjuntos se convirtió en una manantial para innumerables clubes de barrio de Buenos Aires.
 
 Las orquestas de más arrastre fueron las de Juan D'Arienzo, Osvaldo Pugliese, Aníbal Troilo y Carlos Di Sarli. Cada una de ellas con un suceso impresionante y vendiendo discos sin cesar. Hubo conjuntos que venían detrás de éstos, muy cerquita, empardándolas en muchos casos y que dejaron un recuerdo maravilloso en forma de grabaciones. Ángel D'Agostino, Alfredo De Ángelis, Ricardo Tanturi, Pedro Laurenz, Rodolfo Biagi, Alfredo Gobbi, Miguel Caló, Francini-Pontier, Osvaldo Fresedo, José Basso. O más adelante Héctor Varela, Fulvio Salamanca y otros posteriores, pero ya había pasado la gran época de oro.
 
@@ -30,7 +30,7 @@ Osvaldo Pugliese fue la contrafigura. Con *La yumba* apuntó lo que sería su es
 
 Y para no hacerlo muy largo, vamos a escucharlos. Por Aníbal Troilo (7-9-1938) y Carlos Di Sarli, (30-10-1945) el tango de Agustín Bardi: **Tinta verde**. Y por Osvaldo Pugliese (13-12-1968) y Juan D'Arienzo (5-3-1937), otro tangazo de Bardi: **Qué noche**
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjZqwx3nGlnh9OhdPAOUUAPrG2MbhD3poq7_GR128BiDYQhAMHDJ9ktL5LmckD3Y8Rb9PRpTll50HhRA9aoubfQ_bayNFNZYIKyb4tHBhWugklJ7El6IPsq-85ZxzKIEcZaoaL0BQsgC7U/s1600/Que_noche_part.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjZqwx3nGlnh9OhdPAOUUAPrG2MbhD3poq7_GR128BiDYQhAMHDJ9ktL5LmckD3Y8Rb9PRpTll50HhRA9aoubfQ_bayNFNZYIKyb4tHBhWugklJ7El6IPsq-85ZxzKIEcZaoaL0BQsgC7U/s1600/Que_noche_part.jpg)** **
+ [![](/tangos-al-bardo/images/5fa1de87dd36.jpg)](/tangos-al-bardo/images/5fa1de87dd36.jpg)** **
 
 Y *¡A bailar...a bailar..., que la orquesta se va!*
 

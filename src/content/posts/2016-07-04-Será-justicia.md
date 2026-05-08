@@ -10,7 +10,7 @@ Está haciendo un calor tremendo en Madrid y toda la zona costera de España hac
 
 Fue un hombre que vendió muchos libros con sus poemas populares, y supo pintar los ambientes en que la gente se movía y conocía. Incluso compuso tangos con Aníbal Troilo (**Media noche** y **Claro de Luna)** y otros que tuvieron recorrido, como **Vencido**, con Oreste Cúfaro y lo bordara Echagüe con D'Arienzo. O **Hablemos francamente**, con Santos Lipesker. **Riachuelo**, con Juan de Dios Filiberto. **Alergia**, la milonga que hizo con Enrique Francini, y grabó la orquesta de Francini-Pontier cantando Raúl Berón, resultó también un tema con gracia y llegada.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhV2ch5HkX_aiU6ETsRX42w1nlEVfIczr-IiVI8xqCnbtIZZe7GdUBKvUt-ZB4fOuKcg2oXFe92YyU2myExyDpyF2lX100CvtgrN2UQmE1mjkJrBPc9tGnFJ5vxR9kYvwuEYMQNgHJp2Co7/s1600/H%25C3%25A9ctor+Gagliardi.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhV2ch5HkX_aiU6ETsRX42w1nlEVfIczr-IiVI8xqCnbtIZZe7GdUBKvUt-ZB4fOuKcg2oXFe92YyU2myExyDpyF2lX100CvtgrN2UQmE1mjkJrBPc9tGnFJ5vxR9kYvwuEYMQNgHJp2Co7/s1600/H%25C3%25A9ctor+Gagliardi.jpg) Héctor Gagliardi
+ [![](/tangos-al-bardo/images/d56f57f52c9c.jpg)](/tangos-al-bardo/images/d56f57f52c9c.jpg) Héctor Gagliardi
 
 Los versos que hoy se me ocurrió traer al Blog, se basan en la carta que un preso, próximo a la sentencia, le escribe al juez que lleva su causa. Son realmente graciosos y bien trenzados, así que al menos nos reímos un cachito y yo me olvido del calor, rajándome a la piscina..
 

@@ -14,7 +14,7 @@ Como compositor y poeta, tuvo muchos aciertos. No sólo con el tema que traigo h
 
 Y esta milonga que compuso en 1947, con letra y música suya, levantó vuelo en la versión que hizo Osvaldo Pugliese de la misma. Incluso lo grabó con su orquesta, cantando Roberto Chanel y llamó mucho la atención por su estilo lunfardesco y el discurso del personaje. Chamuyándole a la paica que lo abandonó para enrollarse con un inglés "chicato" y recordándole todo lo que hizo por ella.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEibyW84XDGAglVfy_Wdfzxqxsdu2gpaowsVePdSkfbO_sP-rOyKsI-YlASdTDwyieBT_mqvhWd7809GNbTkBJrq2QWS0fY_5Zxwo7Q6v_5IiCDcp3EjKAeok2Sme9jsPfHKRiXZ7Nk6Y5RJcDRd1_0lb2k31jsWtjSMsVm9ljV2Sf6pn8kRq9hLdqLmE9C7/w213-h320/Luis%20Caruso%20-A-2977539-1733407298-9803.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEibyW84XDGAglVfy_Wdfzxqxsdu2gpaowsVePdSkfbO_sP-rOyKsI-YlASdTDwyieBT_mqvhWd7809GNbTkBJrq2QWS0fY_5Zxwo7Q6v_5IiCDcp3EjKAeok2Sme9jsPfHKRiXZ7Nk6Y5RJcDRd1_0lb2k31jsWtjSMsVm9ljV2Sf6pn8kRq9hLdqLmE9C7/s300/Luis%20Caruso%20-A-2977539-1733407298-9803.jpg) Luis Caruso
+[![](/tangos-al-bardo/images/c81912071fb7.jpg)](/tangos-al-bardo/images/95f39f05a4c8.jpg) Luis Caruso
 
 Che rea vestida a plazos,
 con desplante de señora,

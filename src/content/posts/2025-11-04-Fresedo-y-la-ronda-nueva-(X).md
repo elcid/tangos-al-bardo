@@ -14,7 +14,7 @@ Poco más tarde hace su aparición en el ámbito de la canción ciudadana una ex
 
 Además de estos vocalistas, colaboraron con Fresedo en este tramo de su trayectoria, los cantores Carlos Barrios –en fugaz retorno en 1961- registrando “*Tango mío”, “Naipe marcado” y “Perro ‘e sulky*”; Ricardo Ruíz, otro brevísimo reencuentro con “*Rosarina linda*” en 1961; Oscar Luna, Roberto Bayot, nuevamente Carlos Barrios en 1963 cuando grabó “*Migaja*” y en 1966 la intervención del cantor melódico Roberto Yanés, grabando “*Tengo*”, “*Barrio pobre*” y “*Bandoneón amigo*” (de Fresedo y Manzi).
 
-En cuanto a ideas musicales puede decirse que no se producen mayores innovaciones, sino más bien reafirmamientos de todo lo hecho anteriormente, dentro de lo correcto, siempre con el señorío y la musicalidad que definió su orientación estilística.   ![Osvaldo Fresedo Y Su Orquesta Típica, Primary, 1 of 6](https://i.discogs.com/UvPlPzlS2V51TDJYTKidRlbohEokN07iiroU_ouU9R8/rs:fit/g:sm/q:90/h:600/w:592/czM6Ly9kaXNjb2dz/LWRhdGFiYXNlLWlt/YWdlcy9SLTI2ODE3/NDQwLTE2ODE5NTgz/NjgtODM2Mi5qcGVn.jpeg)
+En cuanto a ideas musicales puede decirse que no se producen mayores innovaciones, sino más bien reafirmamientos de todo lo hecho anteriormente, dentro de lo correcto, siempre con el señorío y la musicalidad que definió su orientación estilística.   ![Osvaldo Fresedo Y Su Orquesta Típica, Primary, 1 of 6](/tangos-al-bardo/images/9de0aa8d5996.jpeg)
 
 Durante este lapso la integración de la orquesta ya no fue tan estable: En bandoneones estuvieron Roberto Pérez Préchi, José Appendino, Pedro Viduarre, quien al dejar el bandoneón por el cello en 1960 en que ingresó a la orquesta de Pugliese, fue suplantado sucesivamente por Armando Brunini, Fernando Tell y Armando Rodríguez.
 Violines: “Manolo” Baya, primer violín, Elvino Vardaro, Juan Scaffino, José Niesow, Enrique Mario Francini (estos dos últimos se agregaban en las grabaciones para reforzar la cuerda), Pedro Lopérfido.
@@ -61,7 +61,7 @@ Bandoneones: Roberto Pérez Préchi, Pedro Viduarre, José Appendino –en ocasi
 Contrabajo: Raúl Muñoz.
 Cantor: Osvaldo Arana.
 
-[![](https://blogger.googleusercontent.com/img/a/AVvXsEiMGyWwjTA840uLOnERrz8z1Cp3g1BecRnLjDdfJqVrrF38CbtImOGzCqa39UyC3upW-DGfV0Ty6UIzEdsUvb4OVEPK8sW7XCGLCIoNUFIdYNYnjY7UZco3v23RIE1qbTCeG5V1DqoQvGqAgCITsd_R8Ru3AGcU5iWQw6NuTEsLKH9sQxT5ODsnT_Jadavo)](https://blogger.googleusercontent.com/img/a/AVvXsEiMGyWwjTA840uLOnERrz8z1Cp3g1BecRnLjDdfJqVrrF38CbtImOGzCqa39UyC3upW-DGfV0Ty6UIzEdsUvb4OVEPK8sW7XCGLCIoNUFIdYNYnjY7UZco3v23RIE1qbTCeG5V1DqoQvGqAgCITsd_R8Ru3AGcU5iWQw6NuTEsLKH9sQxT5ODsnT_Jadavo)Osvaldo Arana
+[![](/tangos-al-bardo/images/71042a6aa2bb.jpg)](/tangos-al-bardo/images/71042a6aa2bb.jpg)Osvaldo Arana
 
 En el año 1970 el maestro Fresedo debió someterse a una intervención quirúrgica y a partir de allí, decidió abandonar la actividad y no hubo más presentaciones públicas, ni trabajos discográficos durante casi 10 años, exceptuando cuatro temas realizados para Columbia en 1975.
 La insistencia de gente ligada al tango, para que ése su estilo tan particular quedara registrado con la mayor fidelidad que el avance tecnológico de la última década permitía, quebró finalmente el silencio que se había impuesto y aceptó grabar un larga duración, verdadera antología de los temas instrumentales más representativos de la escuela estilística que lo tuvo como artífice.

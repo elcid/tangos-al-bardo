@@ -6,7 +6,7 @@ labels: ""
 tags: ["José María Otero"]
 ---
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiii59KQjePMCFb7j9JzUIpFI3mGkQoFH3W_dOdKeLLJkkWSVB8VdF0pT8a20exHzIbIaOi0Nx8aSJiu_l87xrGUaQC1VuPaOJhWtgVl_9KJnob3KFHhNip7TYyuH_tT4-jaC61k4H0XDrng8naW7oTj5zsd4kEA2Q_XgC8xXiu-_-0KHKreZaubX85iWxb/w400-h281/cartonero4-lores.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiii59KQjePMCFb7j9JzUIpFI3mGkQoFH3W_dOdKeLLJkkWSVB8VdF0pT8a20exHzIbIaOi0Nx8aSJiu_l87xrGUaQC1VuPaOJhWtgVl_9KJnob3KFHhNip7TYyuH_tT4-jaC61k4H0XDrng8naW7oTj5zsd4kEA2Q_XgC8xXiu-_-0KHKreZaubX85iWxb/s528/cartonero4-lores.jpg)
+[![](/tangos-al-bardo/images/a0d90f3a133e.jpg)](/tangos-al-bardo/images/b80f41788231.jpg)
 
 Gran curro el de la basura;
 en este gran hormiguero

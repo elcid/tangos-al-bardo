@@ -7,7 +7,7 @@ tags: ["Alberto Castillo", "Francisco Canaro", "Ricardo Tanturi", "Julio De Caro
 ---
 
 [
-](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgTK7GCcgpUq7TQ0krkk-MMyUwWCw7SygYXeUHoBRW39QDw_8h1PjP6xdu8blIpHOeV8orys0g5q_pbSXB_MHVVjvlzIUDMky4BCkNz7tj3atttISUITccyRRksnSzJlekjta_u7NeEou-r/s1600/fotoreport2.jpg)
+](/tangos-al-bardo/images/1acdd972210a.jpg)
   *Viajamos ensamblando nuestra voz *
 ** vamos remando canción bien elegida, **
 ** *****es nuestra estrella el sueño de los dos********* * ***

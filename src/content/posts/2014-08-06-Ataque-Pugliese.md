@@ -10,7 +10,7 @@ Hoy me dió un "ataque Pugliese". Pongo varios temas del troesma de Villa Crespo
 
 Los padres del pianista, Adolfo Pugliese y Aurelia Terragno, ambos de 25 años de edad, recibieron a su tercer hijo el 2 de diciembre de 1905, y declararon su nacimiento cuatro días más tarde, bautizándolo como Osvaldo Pedro. Adolfo era flautista y cortador de cueros del calzado. La herencia musical la recibirían sus tres hijos: Adolfo, Alberto y Osvaldo. En esta foto lo vemos al feliz padre en su época de músico.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhhjk0b0ynaxgfI88ZRp-gVwBI5PzYe8lLamXSf6WVjbTnQw36rjrGCjsz11_NAwp6jNqhr9QgHUF1vMGPcwWVPAlO_K67F0rv9x1Frgm4yKXO5rfglJVE4GBYjUNvUc8AzH5NH-WT1FyU/s1600/Abuelo+Beba.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhhjk0b0ynaxgfI88ZRp-gVwBI5PzYe8lLamXSf6WVjbTnQw36rjrGCjsz11_NAwp6jNqhr9QgHUF1vMGPcwWVPAlO_K67F0rv9x1Frgm4yKXO5rfglJVE4GBYjUNvUc8AzH5NH-WT1FyU/s1600/Abuelo+Beba.jpg) Adolfo Pugliese, arriba en el centro, con la flauta traversa, detrás de la cantante.
+ [![](/tangos-al-bardo/images/fb40de2cf84c.jpg)](/tangos-al-bardo/images/fb40de2cf84c.jpg) Adolfo Pugliese, arriba en el centro, con la flauta traversa, detrás de la cantante.
 
 
 Alberto, hermano de Osvaldo, fue quien hizo de puente para que éste ingresara en la orquesta de la bandoneonista, tempranamente desaparecida, Paquita Bernardo, que también pertenecía a ese barrio de Villa Crespo por el que corretearían los hijos de Adolfo. Después vendría el debut en el centro, alistado en la orquesta de Enrique Pollet, y el salto inmediato, nada menos que al conjunto de Pedro Maffia, con quien militó cuatro años.

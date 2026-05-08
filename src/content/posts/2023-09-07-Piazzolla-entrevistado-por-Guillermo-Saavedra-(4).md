@@ -12,7 +12,7 @@ Por otro lado, yo no estaba solo en esa transformación: había gente como Eduar
 
 Hay que tener clara una cosa: el tango como género cantable y bailable se moría solo a mediados de los '50. No fui su verdugo, eso vino absolutamente solo. Que hayan existido un Eduardo Rovira y un Piazzolla era consecuencia de un proceso, porque las cosas lo van encontrando a uno fatalmente. Uno no puede proponerse ser distinto o ser moderno, uno es distinto o es moderno, y si no, más vale que no intente autoimponérselo.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh7nfwHdbs6L_XipTkzV7dmeRNdXaE_hKibUtLOiqcaJrKTLzFhJQvjInveMKeee-lodVP0NbE7740rGx6EYcETs7orWLmEcZI2XZkiZHd9dJvJxgbex_rgJHEmigyGJ2B990atNf6FxmX9FM1ouYhewXZ24pfy9ciGjg6fUh146J-UluzvJTWuBwFzgRJt/w400-h291/Octeto-Buenos-Aires-Astor-Piazzolla.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh7nfwHdbs6L_XipTkzV7dmeRNdXaE_hKibUtLOiqcaJrKTLzFhJQvjInveMKeee-lodVP0NbE7740rGx6EYcETs7orWLmEcZI2XZkiZHd9dJvJxgbex_rgJHEmigyGJ2B990atNf6FxmX9FM1ouYhewXZ24pfy9ciGjg6fUh146J-UluzvJTWuBwFzgRJt/s960/Octeto-Buenos-Aires-Astor-Piazzolla.jpg)Octeto Buenos Aires
+[![](/tangos-al-bardo/images/ffba542e3b37.jpg)](/tangos-al-bardo/images/60868f35567a.jpg)Octeto Buenos Aires
 
 Cuando escucho a alguien proponer, por ejemplo, que Juan Carlos Baglietto es el tanguero del rock argentino, me causa gracia. Eso no tiene nada que ver. Los músicos de rock usan el nombre de Gardel o el de Goyeneche por una cuestión de conveniencia, para atraer a otro público que está con Goyeneche o con Gardel. Pero su música no tiene nada que ver con el tango, es rock puro.
 

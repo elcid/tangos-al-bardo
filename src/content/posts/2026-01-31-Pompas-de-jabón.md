@@ -10,13 +10,13 @@ En 1925, o sea hace un poquito más de cien años, [Enrique Cadícamo](https://w
 
 Integraría luego la orquesta de Julio De Caro y dirigió la propia con Laurenz y Pollet en bandoneones, Germino y Marchiano en violines y él al piano. Compuso varios temas como *El metejón, Yo te perdono, Roló, que te vaya bien, De mi barrio, Milonga, porque llorás, Albertito, Sin amor, Princeiata *y éste que recuerdo ahora y que lleva versos de Enrique Cadícamo.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhGztjKkQCsX9f1LH6R196w0JTt-ef7YNR9oWpLJCGoaUiS7g0jGESYnxvgm_zEO2MgOQ4smteQmtEfSWEbTacxcZ96E1pvW7KlgHoZOhr_Vcrvd7R2VPPTdE-rI-6NI4DjdOMc3p7OrTd8Kazvuu5T1AehRycf_Nd-EzRV8C6vw5dK8NaVM3GbfpAVr5PV/w400-h225/Roberto%20emilio%20Goyeneche%20en%20los%20a%C3%B1os%20veinte.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhGztjKkQCsX9f1LH6R196w0JTt-ef7YNR9oWpLJCGoaUiS7g0jGESYnxvgm_zEO2MgOQ4smteQmtEfSWEbTacxcZ96E1pvW7KlgHoZOhr_Vcrvd7R2VPPTdE-rI-6NI4DjdOMc3p7OrTd8Kazvuu5T1AehRycf_Nd-EzRV8C6vw5dK8NaVM3GbfpAVr5PV/s640/Roberto%20emilio%20Goyeneche%20en%20los%20a%C3%B1os%20veinte.jpg) Roberto Emilio Goyeneche
+[![](/tangos-al-bardo/images/823e081330e9.jpg)](/tangos-al-bardo/images/adf7a89e1492.jpg) Roberto Emilio Goyeneche
 
 [Carlos Gardel](https://www.google.com/search?ved=1t:260882&q=Carlos+Gardel&bbid=7165028562675286196&bpid=1720151406796601600) lo grabó el año de la creación, con su guitarrista José Ricardo y lo volvería a llevar al disco dos años más tarde, acompañado por Ricardo y Barbieri en guitarras. Y el tema no se iría destiñendo con los años porque fue interpretado por muchos cantantes y también estuvo en el repertorio de orquestas típicas.
 
 Cadícamo en su libro "[Mis memorias](https://www.google.com/search?ved=1t:260882&q=Mis+memorias+Enrique+Cad%C3%ADcamo&bbid=7165028562675286196&bpid=1720151406796601600)", recuerda: "La noche de la ciudad me había presentado a algunos músicos de orquestas típicas. Roberto Goyeneche actuaba en "[Café Iglesias](https://www.google.com/search?ved=1t:260882&q=Caf%C3%A9+Iglesias+Buenos+Aires&bbid=7165028562675286196&bpid=1720151406796601600)" de la calle Corrientes al 1500. Era un excelente pianista que ya tenía en su haber algunas composiciones que, si bien no habían llegado a popularizarse, eran conocidas.
 
-![Pompas de jabón. Tango (1925)](https://repo.todotango.com/partituras/pompas_de_jabon.jpg)
+![Pompas de jabón. Tango (1925)](/tangos-al-bardo/images/8a3e0b9bedea.jpg)
 
 A pesar de hallarse sobrellevando una penosa enfermedad, era dinámico y de carácter divertido. De tanto frecuentar aquel café donde yo concurría para escuchar exclusivamente a su orquesta, nos hicimos amigos. Recuerdo a algunos de sus integrantes: Pedro Laurenz, Germino y Berstein . Con Goyeneche hice mi primera obra utilizando aquellos versos titulados "[Pompas de jabón](https://www.google.com/search?ved=1t:260882&q=Pompas+de+jab%C3%B3n+song&bbid=7165028562675286196&bpid=1720151406796601600)"...
 

@@ -11,7 +11,7 @@ Pablo Ojeda estudió en la *Escuela Nacional de Danzas de Argentina* y se gradu�
 
 Desde 1978 han trabajado en compañías folklóricas y en las grandes salas de espectáculos de Buenos Aires.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgCuf5FX5pwyxDuhia-j9Q1pqARmJFpLDpWQmqVEmWSzvJOO3m43_XSKE7Dy-p1BMxaH4mOUnFn0P67o2UdbVdOwZNgJOx7JMJXK9Kty32mgZxA0jkjPfTRQ9ccIGs3QoW-t4CnbY95bNIj/s400/escanear0002.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgCuf5FX5pwyxDuhia-j9Q1pqARmJFpLDpWQmqVEmWSzvJOO3m43_XSKE7Dy-p1BMxaH4mOUnFn0P67o2UdbVdOwZNgJOx7JMJXK9Kty32mgZxA0jkjPfTRQ9ccIGs3QoW-t4CnbY95bNIj/s1600/escanear0002.jpg) En El viejo almacén de Madrid: Beatriz, Jorge Lema (fueye), Pablo, folklorista, yo, Julio Ruda (dueño), el Negro Rubén Juárez y Carlitos Delmar.  Llegaron a Madrid en 1988 con el espectáculo* TangoRevue* y no solo se afincaron, sino que lamentablemente Pablo se tiene que conformar con ver a su equipo: Boca Juniors, por televisión, o Internet.
+ [![](/tangos-al-bardo/images/11e83ce0068b.jpg)](/tangos-al-bardo/images/41a854f2bd34.jpg) En El viejo almacén de Madrid: Beatriz, Jorge Lema (fueye), Pablo, folklorista, yo, Julio Ruda (dueño), el Negro Rubén Juárez y Carlitos Delmar.  Llegaron a Madrid en 1988 con el espectáculo* TangoRevue* y no solo se afincaron, sino que lamentablemente Pablo se tiene que conformar con ver a su equipo: Boca Juniors, por televisión, o Internet.
 
 Acá estamos todos juntos cuando llegaron a Madrid. Para impresionar, Pablo se vino con unos bigotazos como los guapos de antaño. Beatriz se trajo la sonrisa que mantiene incluso cuando duerme.
 

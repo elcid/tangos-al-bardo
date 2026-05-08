@@ -15,7 +15,7 @@ Tal vez, no comprendí ni presentí
 que las estrellas tienen que morir
 con los rayos del sol.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgNLi_2Km2Ico_M7wOmAPsFdRnOoC8qApiKdA8S7A8Wwy5Xxzq8Yy6e89eDbUTP0wiL-gObpnsbxDw7nqv3ZghzH6eeiTv9xtkWdqTUICIA8dEFTppg51xjM3I1hFOOc3IzoPVqvECGZt0T6eEizyNONkVrIIcfr_6snLPpLPSQgLPZd2AWGdTQvsbOR515/w291-h400/stamponi_un_momento.jpeg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgNLi_2Km2Ico_M7wOmAPsFdRnOoC8qApiKdA8S7A8Wwy5Xxzq8Yy6e89eDbUTP0wiL-gObpnsbxDw7nqv3ZghzH6eeiTv9xtkWdqTUICIA8dEFTppg51xjM3I1hFOOc3IzoPVqvECGZt0T6eEizyNONkVrIIcfr_6snLPpLPSQgLPZd2AWGdTQvsbOR515/s220/stamponi_un_momento.jpeg)
+[![](/tangos-al-bardo/images/c4f0892044b9.jpeg)](/tangos-al-bardo/images/5fa2ec3ba270.jpeg)
 
 El comienzo de las divergencias demuestran una sensibilidad que no se inhibe. La esquirlas del miedo al final del amor, se deslizan desde la efusión emocional a las conmovedoras notas melancólicas. Punteadas por agudas observaciones, el poeta acude al espejismo de la espontaneidad y sus palabras muestran con resignada melancolía el daño colateral y la dimensión cognitiva de la realidad
 

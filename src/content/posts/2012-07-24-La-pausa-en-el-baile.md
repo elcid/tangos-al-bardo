@@ -16,7 +16,7 @@ Estamos bailando aunque aparentemente, hayamos puesto el punto muerto. Tal como 
 
 No hablemos si es Pugliese. O el mismo Di Sarli. Hay que jugar con ellos, con la voz de Angelito Vargas, acunar a la mujer con los brazos, mientras el gran cantor de D'Agostino recita:" *Soy de ese barrio de humilde rango / yo soy el tango sentimental...*". Ahí estamos degustando el piano de D'Agostino abrazados, hamacándonos, hasta que vuelve Vargas, tras el fueye de Attadía y nos deslizamos con su ritmo marcado en cada palabra: "*Soy-de- ese-barrio-que-toma-mates-bajo-la-sombra-que-da-el-parral...".*
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhM0lSRajcBqtYg7De25kotuseIUZjsNamptKjHNbAcN655l2vKdvcW4Tspu9g539oyqiFKVvHzKNc9jg_u23TPf3OxHT5DUEkzfbS59Kw4daMXO3qbrpFZUt-3FiOS_A5mZjWnZuCom0zO/s320/dinzel2.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhM0lSRajcBqtYg7De25kotuseIUZjsNamptKjHNbAcN655l2vKdvcW4Tspu9g539oyqiFKVvHzKNc9jg_u23TPf3OxHT5DUEkzfbS59Kw4daMXO3qbrpFZUt-3FiOS_A5mZjWnZuCom0zO/s1600/dinzel2.jpg) Los Dinzel, grandes maestros  * *
+ [![](/tangos-al-bardo/images/60d1366e2c8e.jpg)](/tangos-al-bardo/images/e396e935f73b.jpg) Los Dinzel, grandes maestros  * *
 Somos parte de toda esa ceremonia: Letra-música-baile. No podemos desentonar y seguir corriendo por la pista como si no estuviera pasando nada en el tema que interpretamos con nuestros cuerpos y fuese todo igual.
 
 Cuesta dominar a esas mujeres que no han terminado de "entender" la música. De escucharla. De masticarla. De traducirla en la pista, acompañándola.

@@ -10,7 +10,7 @@ Cuando Mariano Mores, entonces Marianito, ingresó en el mundo del arte popular 
 
 Compositor, instrumentista, cantante, arreglador, su polifacética actividad artística se vigorizó con la impronta con que realizaba creaciones realmente espectaculares, junto a las entonces hermanitas Mores. Y así, el día en que Francisco Canaro lo descubre e instala como parte constitutiva de su orquesta, junto a Luis Ricardi, el otro pianista, las puertas de la popularidad y la fortuna se abren para quien apenas había traspasado los veinte esperanzados años.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjrUu1QKNo-fSZduRIw9J9Mlxm9V-I4sCNgAq3_ujat-DTbjp47v3eNJqzkjAeQRzC4ygFICZjLTc4NU0eJIfx-mNhti9Dk8cb7ccZGnK1FXQC549VU6at4jwhEz25A5MXAqgnHMFj6EsQVjC1Bc3mHLeFZvLkmW5dnGC_0D5puvkTi6aXLTIXhm7J2zg/w293-h400/Mariano%20Mores%20y%20Francisco%20Canaro.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjrUu1QKNo-fSZduRIw9J9Mlxm9V-I4sCNgAq3_ujat-DTbjp47v3eNJqzkjAeQRzC4ygFICZjLTc4NU0eJIfx-mNhti9Dk8cb7ccZGnK1FXQC549VU6at4jwhEz25A5MXAqgnHMFj6EsQVjC1Bc3mHLeFZvLkmW5dnGC_0D5puvkTi6aXLTIXhm7J2zg/s400/Mariano%20Mores%20y%20Francisco%20Canaro.jpg)Canaro y Mores
+[![](/tangos-al-bardo/images/5a0aa600e4a2.jpg)](/tangos-al-bardo/images/1b73ec7e824a.jpg)Canaro y Mores
 
 Su capacidad orquestal, realmente sorprendente por lo intuitiva, le permitió el abordaje a instituciones orquestales de contextura clásica en el orden sinfónico en memorables audiciones de carácter popular que contaron con admiradores y detractores de sus posibilidades profesionales.
 
@@ -28,7 +28,7 @@ Mediante una persona conocida nos conocimos en una cena y fue cuando me dijo: �
 
 Entonces quedamos para visitarnos en su casa de Barrio Norte y escribir juntos una canción: "J**ugar con Fuego"**.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhtIUi_8dzlgndmQ8019Lg9VYps8U7pWs_m5URGpxFIssjGOjIQpksfJysTDANupF-m0nfBfDO30Qj5rW2-U21UW755F0DOgFPE8ze8dOfD5VA2pK2LB74Y9bhDbkPlHw7PTvE2glk7KdGwIzY552PkQT5AJfezsXpplyRf16riHLcV50tgGnwXwNFaBg/w400-h260/andres-calamaro-mariano-mores.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhtIUi_8dzlgndmQ8019Lg9VYps8U7pWs_m5URGpxFIssjGOjIQpksfJysTDANupF-m0nfBfDO30Qj5rW2-U21UW755F0DOgFPE8ze8dOfD5VA2pK2LB74Y9bhDbkPlHw7PTvE2glk7KdGwIzY552PkQT5AJfezsXpplyRf16riHLcV50tgGnwXwNFaBg/s620/andres-calamaro-mariano-mores.jpg)Calamaro y Mores
+[![](/tangos-al-bardo/images/1f711f106d50.jpg)](/tangos-al-bardo/images/8a0ecf1879b3.jpg)Calamaro y Mores
 
 El maestro era exigente con la métrica, la formalidad de la canción y las palabras. Él también pulimentaba su arreglo en una partitura que ganaba en interés y enjundia cada día, cada tarde que compartíamos en su piso recoleto.
 

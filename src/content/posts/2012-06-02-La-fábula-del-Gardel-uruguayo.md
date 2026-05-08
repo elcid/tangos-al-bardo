@@ -9,7 +9,7 @@ Se acerca otra fecha-aniversario de la muerte de Gardel y los que inventaron la 
 
 Como han perdido todos los juicios en que se han metido y la gente no se come la novelita en forma de vodevil que se inventó el periodista Avlis (Erasmo Silva Cabrera), dejan pasar un tiempo prudencial de olvido, y al cabo vuelven, amenazando con desenterramientos de cadáveres en Francia, Argentina y Uruguay, sabedores de que ello es imposible. Pero siempre atrapan a algún incauto que no conoce la historieta, ni las veces que la Justicia cerró las puertas a sus falacias. Y firman manifiestos inútiles en demanda de supuestos inverosímiles.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhi_asHsGgk6hAF15JvR9Q9e3rrKcjUjbek8feyGTPOHfF1fvSbsMhAP8RiE2LKJRkUcYHQWru-9-eJs0EJf3mXkhJoZCPij4-63agDVYCPL50ejG4do7Z2yOjzAkfV4FvaXzZzeDelLJCx/s1600/Gardel+II.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhi_asHsGgk6hAF15JvR9Q9e3rrKcjUjbek8feyGTPOHfF1fvSbsMhAP8RiE2LKJRkUcYHQWru-9-eJs0EJf3mXkhJoZCPij4-63agDVYCPL50ejG4do7Z2yOjzAkfV4FvaXzZzeDelLJCx/s1600/Gardel+II.jpg)Con eso viven. De ello se alimentan y buscan esparcir dudas que no existen, ni siquiera en la justicia y la buena fe del pueblo uruguayo.
+[![](/tangos-al-bardo/images/3df334a9ba64.jpg)](/tangos-al-bardo/images/3df334a9ba64.jpg)Con eso viven. De ello se alimentan y buscan esparcir dudas que no existen, ni siquiera en la justicia y la buena fe del pueblo uruguayo.
 
 A propósito de la nueva "amenaza", el prestigioso escritor y documentalista **Juan Carlos Esteban**, nos envía este escrito:
 

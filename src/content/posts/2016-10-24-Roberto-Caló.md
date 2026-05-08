@@ -10,7 +10,7 @@ Fue uno más de la dinastía creada por el matrimonio de José Caló y Natalia P
 
 Su hermano Miguel sería el más famoso de la "troupe", como bandoneonista y especialmente en su lunga etapa de director, al frente de una orquesta laureada por el público. Juan, bandoneonista, se radicaría en Estados Unidos (Lo vi en un teatro de Madrid al frente de su orquesta y 4 parejas de bailarines). Antonio y Armando formaron el conjunto de jazz Tony-Armand, que tuvo bastante trabajo en su momento. Salvador, con su nombre artístico de Freddy, se instalaría en Miami.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgWCjjF8smT6q_Rmx7EWIrGYmtSCYymH1yelJfuPOdPs-NAGXQgPEYJDqXhvnkfAgc6jx-7oo5T2xITPCyAAix7HwSjJOSozX_6ar0j0l2npL5J8cWA2oBmLnVz9YDxkA8boEIwNAFoCvlV/s320/ROBICA.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgWCjjF8smT6q_Rmx7EWIrGYmtSCYymH1yelJfuPOdPs-NAGXQgPEYJDqXhvnkfAgc6jx-7oo5T2xITPCyAAix7HwSjJOSozX_6ar0j0l2npL5J8cWA2oBmLnVz9YDxkA8boEIwNAFoCvlV/s1600/ROBICA.jpg) Roberto Caló en su época de cantor
+ [![](/tangos-al-bardo/images/829d5bcfea33.jpg)](/tangos-al-bardo/images/e272e849bde4.jpg) Roberto Caló en su época de cantor
 
 Roberto comenzó cantando en varias radios, avanzando paulatinamente en su cometido, con una voz no demasiado potente, pero bien afinada. Su hermano Miguel lo llama para suceder como vocalista de su orquesta a Roberto Morel. Alcanzará a grabar solamente dos temas: el tango *Dulce amargura* y el foxtrot *Luces del puerto*. Enseguida se larga a formar su propia orquesta en dupla con su hermano Juan, y como no llegaron a establecerse en el gusto del público, decidió mandarse a canturrear por esas tierras de América, siguiendo los pasos de Charlo, a quien admiraba.
 

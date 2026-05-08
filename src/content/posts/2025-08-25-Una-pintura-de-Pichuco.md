@@ -8,7 +8,7 @@ tags: ["José María Otero", "Homero Manzi"]
 
 <iframe src="https://www.youtube.com/embed/5ocsfDVG6SQ"></iframe>
 
-![s_MLA_v_F_f_117364047_6664](https://locosporelfueye.wordpress.com/wp-content/uploads/2015/07/s_mla_v_f_f_117364047_6664.jpg?w=490&h=652)
+![s_MLA_v_F_f_117364047_6664](/tangos-al-bardo/images/bd5bd8d7c118.jpg?w=490&h=652)
 
 <iframe src="https://www.youtube.com/embed/TGXgg0pDqoQ"></iframe>
 

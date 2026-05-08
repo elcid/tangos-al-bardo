@@ -16,7 +16,7 @@ Intervinieron las orquestas de Florindo Sassone, Horacio Salgán al frente de su
 
 La orquesta de Aníbal Troilo cerró el espectáculo y estuvo 26 minutos en el escenario. Tocaron en este orden los siguientes temas: *Popurrí de temas de Discépolo, Danzarín *(Julián Plaza),* Mañanitas de Montmartre *(Lucio Demare), *Milonguero triste* (Aníbal Troilo), *Quejas de bandoneón* (Juan de Dios Filiberto) y *La cumparsita* (Gerardo Matos Rodríguez).
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjByQ7uWByZgVGS-1fYXw-ZqW-PZstmJDndASlAZqLwkQ9gbD8ZWohJMM-wGQGXtIeo7nWbJ-R52cWuZ1Abh2qtfLWu6OdbxuguNnFZVEvPU3T1KsFJ9Xv3oJfYW1er9NMi3poZaW-06oA/s400/escanear0003.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjByQ7uWByZgVGS-1fYXw-ZqW-PZstmJDndASlAZqLwkQ9gbD8ZWohJMM-wGQGXtIeo7nWbJ-R52cWuZ1Abh2qtfLWu6OdbxuguNnFZVEvPU3T1KsFJ9Xv3oJfYW1er9NMi3poZaW-06oA/s1600/escanear0003.jpg) Pichuco con Paquito (Francisco Di Paola), que le llevó el bandoneón durante 25 años
+ [![](/tangos-al-bardo/images/7c2b3670ec6d.jpg)](/tangos-al-bardo/images/3e7b4f69a841.jpg) Pichuco con Paquito (Francisco Di Paola), que le llevó el bandoneón durante 25 años
 La ovación final con toda la gente puesta de pie, fue tremendamente emotiva. Por fin habíamos asistido a una jornada tanguera en el Colón. Fue el 21 de julio de 1972 (Troilo moriría tres años más tarde), y hoy quiero revivirlo en la actuación de Pichuco y su orquesta, reforzada para el evento. Aunque el video de la Televisión Pública argentina no sea lo que uno espera con las técnicas imperantes hoy día, vale la pena volver a estar ahí espiritualmente.
 
 ¡Qué noche!

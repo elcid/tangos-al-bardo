@@ -18,7 +18,7 @@ Y también de visitas lujosas: Juan Carlos y Sofía, los reyes de España, entus
 
 Cela, como Vizcaíno Casas son relaciones nacidas en el Almacén y que no dejo de revalidar en cada viaje a Madrid.
 
-[![](https://blogger.googleusercontent.com/img/a/AVvXsEjz5HMffFuugIL1Vx-8c0HaUhsVNzosAfibyTyCGNnRX0fFl1gQjobtAtCFH8-RRedprq114IsgDfvM0J50ImUbyFqsMCmoGGBWKgEpC9HlRNrBkcaEcOZdZ5wt9D4VWN5vPMvxaS9w54fwT0aZ79iL7HQrAN0H2QF7EeERQfiaXGD3_LftfGmTQRF4N2jJ=w400-h289)](https://blogger.googleusercontent.com/img/a/AVvXsEjz5HMffFuugIL1Vx-8c0HaUhsVNzosAfibyTyCGNnRX0fFl1gQjobtAtCFH8-RRedprq114IsgDfvM0J50ImUbyFqsMCmoGGBWKgEpC9HlRNrBkcaEcOZdZ5wt9D4VWN5vPMvxaS9w54fwT0aZ79iL7HQrAN0H2QF7EeERQfiaXGD3_LftfGmTQRF4N2jJ)Edmundo Rivero cantando en "El Viejo Almacén". Febrero de 1973
+[![](/tangos-al-bardo/images/d13616dec218.jpg)](https://blogger.googleusercontent.com/img/a/AVvXsEjz5HMffFuugIL1Vx-8c0HaUhsVNzosAfibyTyCGNnRX0fFl1gQjobtAtCFH8-RRedprq114IsgDfvM0J50ImUbyFqsMCmoGGBWKgEpC9HlRNrBkcaEcOZdZ5wt9D4VWN5vPMvxaS9w54fwT0aZ79iL7HQrAN0H2QF7EeERQfiaXGD3_LftfGmTQRF4N2jJ)Edmundo Rivero cantando en "El Viejo Almacén". Febrero de 1973
 
 Por mi boliche pasaron músicos tan distintos como Witold Malcuzinsky, Harry James y Paco de Lucía. Ajedrecistas rusos, bailarines africanos y personajes del mundo del espectáculo como Aznavour y Raffaella Carrá, Sarita Montier y Celia Gámez; Mel Ferrer y Giancarlo Giannini; Olga Guillot y Chabuca Granda: Pascale Petit y Rosanna Schiaffino, La Polaca y hasta "*Tarzán*" Weissmüller.
 

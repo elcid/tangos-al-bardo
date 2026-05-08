@@ -24,7 +24,7 @@ Su primer disco con el sexteto de Mores en el sello Odeón, fue el tango **Tan s
 
 Un año en que volví a Buenos Aires, quedé con un amigo en Reviens, aquella boite de Olivos. Estando allí, éste me llamó dicéndome que tenía un problema y tardaría un poco en llegar. Justo me encuentro a Néstor y Violeta cenando junto a la piscina y me invitaron a la mesa. La familia de Violeta (Ana María Adinolfi) tenía una farmacia en mi barrio de Parque Patricios. Y con Néstor recordábamos un partido que nos enfrentó en el estadio de San Lorenzo de Almagro un domingo a la mañana con 10.000 personas en la tribuna: "Periodistas deportivos vs. Artistas".
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi8E97oWO_g5FcarC66GR05zJHqJ9DCHlODA4hC8syOnivKtt8I6RhiwIwpDHbtYIiTLBrlfv0565xD1b7pd1VkJrrvhzcimGA4G0BkXyaOJdnOnL32fDRrXTyKX2kNHYMBZsO-YaF-BBuO/s400/Violettita.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi8E97oWO_g5FcarC66GR05zJHqJ9DCHlODA4hC8syOnivKtt8I6RhiwIwpDHbtYIiTLBrlfv0565xD1b7pd1VkJrrvhzcimGA4G0BkXyaOJdnOnL32fDRrXTyKX2kNHYMBZsO-YaF-BBuO/s1600/Violettita.jpg) Violeta Rivas y Néstor Fabián con los integrantes del Sexteto Tango
+ [![](/tangos-al-bardo/images/727d0bc9fb1b.jpg)](/tangos-al-bardo/images/82a65e52f8a1.jpg) Violeta Rivas y Néstor Fabián con los integrantes del Sexteto Tango
 
 Néstor jugaba de interior derecho y tenía a su lado a Juan Carlos Copes de lateral y a Palito Ortega de extremo. Yo era el defensa central de los periodistas. Nos reímos recordando anécdotas, incluso con Violeta que también anduvo bailando en la sede de Huracán donde íbamos con la barra. Pareja encantadora que no se mareó con el tremendo éxito que tuvieron y siguieron siendo muy normales, sencillos, entrañables y compinches.
 

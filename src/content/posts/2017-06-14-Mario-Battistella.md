@@ -10,7 +10,7 @@ Nació en un pueblo de Verona, Italia, y llegó con 17 años a Buenos Aires, atr
 
 Se llamaba Mario Battles Stella. Parte de su adolescencia transcurrió en ciudades como París y Viena, cuando preparaba su futuro en los estudios universitarios, que quedaron apartados al llegar con el barco a Buenos Aires, la ciudad que lo acogió y en la que encontró su rumbo. Al principio escribiendo obras de teatro en colaboración con Alfredo Bohigas, entre 1926 y 1928. Luego viajaría a su país de visita familiar, seguiría a Francia y se encontraría con Carlos Gardel que estaba filmando allí. Sería productor de la Paramount y escribió con Le Pera las canciones y argumento de los filmes: *Melodía de arrabal, Espérame* y* La casa es seria*.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhhzlTtJ-CmyboXA_pIWnNwrorRwXyH1VE2UyL0UbcJFCPt3LFNwRbI2mHCe0OC2K9SH14ng1Jp_C-fYOROg7M9LRND1zlHHF9Eg1MNftnyBe7GEbkIjxVCv01x0mK0c3ysUwAF5YQxpDlu/s1600/mario-battistella.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhhzlTtJ-CmyboXA_pIWnNwrorRwXyH1VE2UyL0UbcJFCPt3LFNwRbI2mHCe0OC2K9SH14ng1Jp_C-fYOROg7M9LRND1zlHHF9Eg1MNftnyBe7GEbkIjxVCv01x0mK0c3ysUwAF5YQxpDlu/s1600/mario-battistella.jpg) Mario Battistella
+ [![](/tangos-al-bardo/images/63acb8ff470c.jpg)](/tangos-al-bardo/images/63acb8ff470c.jpg) Mario Battistella
 
 Gardel contaría en una entrevista periodística que su primer trabajo con Battistella ocurrió cuando entre ambos buscaron darle forma al tango* Desdén*, que lleva letra de Battistella y música del propio cantor. Gardel lo estrenaría en 1933 en Radio Nacional, coincidiendo con el regreso del poeta a Buenos Aires. Y lo grabó el 17 de junio de ese año, con las guitarras de Pettorossi, Barbieri, Riverol y Vivas.
 

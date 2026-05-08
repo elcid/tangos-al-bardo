@@ -12,7 +12,7 @@ Y la cosa funcionó realmente, gracias al amigo que invité para que nos dirigie
 
 La obra escogida por mí era **Así es la vida**, escrita por Arnaldo Malfatti y Nicolás de las Llanderas que fue estrenada en 1934 por la compañía Muiño-Alippi. La dimos una semana entera en el Colegio Argentino de Madrid, luego en la Cárcel de Encausados, con asistencia increíble de los presos y el director de la misma. Y de ahí a circular por distintos lugares de España con muy buena acogida, teniendo en cuenta que éramos simples aficionados. Pero la obra engancha y cómo.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhPEtKzfCx3un7TLbRW_dihml_pmflwuTHhy7mNIlmfHmwqx49ceCIIZXKRQLqiwnPwiOTgBi1Me8RCABzfEsojzFw77ah5qkXsYCSHC_i_DJ90KFWX880ztDXvwYXgit9y97NCle8pKrSfPPu25tNemZxJls2KxYxPh504QNTkFvOjFgLmqLTIgyrcCwHz/w245-h320/casas-viejas_tapa.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhPEtKzfCx3un7TLbRW_dihml_pmflwuTHhy7mNIlmfHmwqx49ceCIIZXKRQLqiwnPwiOTgBi1Me8RCABzfEsojzFw77ah5qkXsYCSHC_i_DJ90KFWX880ztDXvwYXgit9y97NCle8pKrSfPPu25tNemZxJls2KxYxPh504QNTkFvOjFgLmqLTIgyrcCwHz/s222/casas-viejas_tapa.jpg)
+[![](/tangos-al-bardo/images/878b18f6fe53.jpg)](/tangos-al-bardo/images/261061ffb255.jpg)
 
 ¿Quién vivió
 quién vivió en esas casas de ayer,

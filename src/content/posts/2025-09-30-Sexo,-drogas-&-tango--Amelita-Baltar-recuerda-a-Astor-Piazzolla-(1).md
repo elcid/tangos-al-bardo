@@ -15,7 +15,7 @@ La anécdota es narrada en el invierno del 2016 por la mujer que hacía suspirar
 -Siempre escucho en las entrevistas que hablás del Malbec, supuse que es tu cepa preferida.
 
 -No, es porque tiene charme, en realidad, me da lo mismo cualquier otra, pero suena mejor decir malbec.
-[![](https://blogger.googleusercontent.com/img/a/AVvXsEgixIJWqqZyeWMWG6j642U3G7gus_qmbl5DnEj1CALyvmTXbKs3Dn_CojJldFZ6V6Q3Z64CWzOcukYcw5fU1jCcDFKaJzEht4TEGBV73_dJLVLte7w7hZwtVeDYcUfV9KfdAx9yzY1Gs3_YJK9-o7WLYTNF_xCvmIY0Hvg5Tx9iLILx3Nm5Yyog32Ti4Tcq=w400-h353)](https://blogger.googleusercontent.com/img/a/AVvXsEgixIJWqqZyeWMWG6j642U3G7gus_qmbl5DnEj1CALyvmTXbKs3Dn_CojJldFZ6V6Q3Z64CWzOcukYcw5fU1jCcDFKaJzEht4TEGBV73_dJLVLte7w7hZwtVeDYcUfV9KfdAx9yzY1Gs3_YJK9-o7WLYTNF_xCvmIY0Hvg5Tx9iLILx3Nm5Yyog32Ti4Tcq)Amelita, Astor, Zita y Pichuco
+[![](/tangos-al-bardo/images/a0d3585d4520.jpg)](https://blogger.googleusercontent.com/img/a/AVvXsEgixIJWqqZyeWMWG6j642U3G7gus_qmbl5DnEj1CALyvmTXbKs3Dn_CojJldFZ6V6Q3Z64CWzOcukYcw5fU1jCcDFKaJzEht4TEGBV73_dJLVLte7w7hZwtVeDYcUfV9KfdAx9yzY1Gs3_YJK9-o7WLYTNF_xCvmIY0Hvg5Tx9iLILx3Nm5Yyog32Ti4Tcq)Amelita, Astor, Zita y Pichuco
 
 **Primer vino**
 

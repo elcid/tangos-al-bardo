@@ -21,7 +21,7 @@ El aprecio permanente que le tuvo Piazzolla lo destapa al componer el tango* Kic
 
 Troilo y Piazzolla ya le habían demostrado públicamente, y bastante tiempo antes, su reconocimiento en 1954, con ese tango que compusieron entre ambos: **Contrabajeando**, como dije antes, dedicado también a Kicho, y que Pichuco grabó en discos TK con arreglo del propio Ástor y la actuación del homenajeado, con el fin de que pudiera lucirse.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhWmOrNWtURYevRFoZCsyKI-A3ZO494OO-gRfmUhl2VNuqpSseyYDIZEZ2UrP0ZHvBoqhDo0mP4C4d1aqV4zCRwC8HmFJ-_f0KZOnlhayJDOWB1gAbB4FyQhO3STw49b-yamdEzR7R4upHe/s320/piazzolla0370.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhWmOrNWtURYevRFoZCsyKI-A3ZO494OO-gRfmUhl2VNuqpSseyYDIZEZ2UrP0ZHvBoqhDo0mP4C4d1aqV4zCRwC8HmFJ-_f0KZOnlhayJDOWB1gAbB4FyQhO3STw49b-yamdEzR7R4upHe/s1600/piazzolla0370.jpg) Piazzolla con su Quinteto. Kicho está detrás suyo, fumando  Posteriormente Piazzolla lo grabaría en 1961 con su Quinteto que integraban: Ástor en bandoneón, Jaime Gosis en el piano, Simón Bajour en víolín, Horacio Malvicino con la guitarra y Kicho en contrabajo.
+ [![](/tangos-al-bardo/images/c7990154ebcf.jpg)](/tangos-al-bardo/images/c1de473f0ee3.jpg) Piazzolla con su Quinteto. Kicho está detrás suyo, fumando  Posteriormente Piazzolla lo grabaría en 1961 con su Quinteto que integraban: Ástor en bandoneón, Jaime Gosis en el piano, Simón Bajour en víolín, Horacio Malvicino con la guitarra y Kicho en contrabajo.
 
 El genial violoncellista José Bragato realizó un brillante arreglo de este tango, para Piazzolla.
 

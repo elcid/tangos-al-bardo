@@ -8,7 +8,7 @@ tags: ["Osvaldo Pugliese", "Carlos Di Sarli", "Roberto Firpo"]
 
 Se trata de un tango marinero romántico, compuesto por Roberto Firpo y que éste grabara en numerosas oportunidades. La primera en solo de piano, en el año de su creación: 1912. Dos años más tarde con su orquesta hizo otros dos registros. En 1918 nueva grabación y en solo de piano otra en 1920.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh2NdKt4jHy3TKQ0dG6qB7P7rrn22lfYKaqP-mk6dKC6sZMp9Ev6xDg9vFfqK6mT1YgtiGmDfXZvtuJcGNz-bOWWY9DITUGJJpM0Ja2eD13e0o_hACFzLBp7ECYqXJB8c9qudSNqrKnCtvK/s320/0000843227_350.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh2NdKt4jHy3TKQ0dG6qB7P7rrn22lfYKaqP-mk6dKC6sZMp9Ev6xDg9vFfqK6mT1YgtiGmDfXZvtuJcGNz-bOWWY9DITUGJJpM0Ja2eD13e0o_hACFzLBp7ECYqXJB8c9qudSNqrKnCtvK/s1600/0000843227_350.jpg)
+[![](/tangos-al-bardo/images/e364970fd28c.jpg)](/tangos-al-bardo/images/0b8318aa9ac7.jpg)
 
 Vicente Planells del Campo que escribiera para Firpo la letra de *Honda tristeza* y* Ave sin rumbo*, le adosó unos versos románticos en los cuales el marinero después de un largo viaje, al regreso, encuentra cambiada a la mujer amada. Firpo graba esta nueva versión en 1929, con la voz de Príncipe azul que canta apenas el estribillo. Y en marzo de 1932, regresa otra vez al surco con el tema instrumental.
 

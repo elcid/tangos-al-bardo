@@ -17,7 +17,7 @@ Y el viejo potrero fue una alegre y hermosa calle, con el nombre de la hermoisa 
 
 Como todo vecino de La Boca tenía por fuerza que pertenecer a alguna agrupación: yo me inscribí en la Sociedad Unión de La Boca, dentro de la cual funcionaba el Conservatorio Pezzini-Sttiatessi. El salón Unión, como todos le decíamos en La Boca, era una especie de academia universal donde se enseñaba música, canto, dibujo, pintura, yeso, corte y confección y no sé cuántas cosas más.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiDm-mwi_nBXQ755C09bxxnC1vqheQZgkqKqH1S-f3RWutajbm3GqWXtI_Wi2eoJ45yiQoteGFPntSXNL_hlE6PmzDBjrHSihfnNq-nI7UAyRUUjhLElrCd1IGML0AApvDSwl220ibuL1bD/s400/Fili.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiDm-mwi_nBXQ755C09bxxnC1vqheQZgkqKqH1S-f3RWutajbm3GqWXtI_Wi2eoJ45yiQoteGFPntSXNL_hlE6PmzDBjrHSihfnNq-nI7UAyRUUjhLElrCd1IGML0AApvDSwl220ibuL1bD/s1600/Fili.jpg) Dos grandes de la música y la pintura: Juan de Dios Filiberto y Quinquela Martín
+ [![](/tangos-al-bardo/images/a8fb4b92e0ab.jpg)](/tangos-al-bardo/images/2339a2bc7835.jpg) Dos grandes de la música y la pintura: Juan de Dios Filiberto y Quinquela Martín
 Entre los conocimientos que adquirí en el salón Unión, está también un amigo que habría de durarme toda la vida. Asistía a tomar lecciones de violín en el Conservatorio. Era guitarrero y quería ser músico, pero apenas terminaba su lección de violín, se llegaba hasta la clase de pintura de Lazzari porque prefería la amistad de los pintores a la de los músicos.
 
 Allí nos encontramos y allí nos presentamos uno a otro, tuteándonos desde el primer momento:
@@ -26,7 +26,7 @@ Allí nos encontramos y allí nos presentamos uno a otro, tuteándonos desde el 
 -Yo me llamo Juan de Dios.
 Era Juan de Dios Filiberto. Pero como ese nombre completo resultaba entonces demasiado largo, todos le llamábamos Juancito, aunque él prefería que le llamásemos Filiberto.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiuibWJXNUyG1gaXxktGCEUw0B0xzxAhj2nmfwkzMikWzh73gzbPA9rUXq_jvPFv6MNCG3KaAGiN8YbZ1V5hzSVDLjPZgh_iJwp0BnJ0dNjHzgNoU6Up9Q1T98ZfJ-izSMmebFaBJvDkBhn/s400/qUINQUELA.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiuibWJXNUyG1gaXxktGCEUw0B0xzxAhj2nmfwkzMikWzh73gzbPA9rUXq_jvPFv6MNCG3KaAGiN8YbZ1V5hzSVDLjPZgh_iJwp0BnJ0dNjHzgNoU6Up9Q1T98ZfJ-izSMmebFaBJvDkBhn/s1600/qUINQUELA.jpg) El arte colorido de La Boca pintado por Benito Quinquela Martín
+ [![](/tangos-al-bardo/images/67d8c3467019.jpg)](/tangos-al-bardo/images/7a34688e7384.jpg) El arte colorido de La Boca pintado por Benito Quinquela Martín
 **Las serenatas**
 
 Fue en un conventillo de Olavarría y Hernadarias. Allí acudimos todos, con Filiberto a la cabeza. Se trataba de dar una serenata en la calle, pero nos invitaron a pasar al patio. En lo mejor de la fiesta, alguien trajo la noticia de que en una de las piezas había una enferma grave. Filiberto dio entonces orden de suspender la música y emprender la retirada. Pero cuando nos disponíamos a marcharnos, la propia enferma nos hizo llegar su deseo de que quería oír un tango.

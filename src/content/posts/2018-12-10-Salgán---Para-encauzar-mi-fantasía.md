@@ -22,7 +22,7 @@ Mientras Salgán evoca las circunstancias anteriores a la constitución de su or
 -¿Tenían razón?
 -Tenían. Yo me expresaba en un Tango sin ritmo. Fíjese qué cosa. Me dominaba una profunda tendencia a fantasear. Era un fantaseador de la música.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjFtGHbRGBxUti9TpHnf8mHjvs29ZO29O_RgMIKkIxvym3zefDf2tBO3W9kZYT59b3Ni28FgVPNX3FjlqdtTJVwiUm_B0zcz9_LbM72diejbI1y50rU3fPb0F3VO5efLp2g9yvGEO8qyQPh/s400/carmen-duval-eddie-kay-horacio-salgan-foto-original-1941-D_NQ_NP_651366-MLA27426812765_052018-F.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjFtGHbRGBxUti9TpHnf8mHjvs29ZO29O_RgMIKkIxvym3zefDf2tBO3W9kZYT59b3Ni28FgVPNX3FjlqdtTJVwiUm_B0zcz9_LbM72diejbI1y50rU3fPb0F3VO5efLp2g9yvGEO8qyQPh/s1600/carmen-duval-eddie-kay-horacio-salgan-foto-original-1941-D_NQ_NP_651366-MLA27426812765_052018-F.jpg) Horacio Salgán, Carmen Duval, Juan Carlos Thorry, Lucas Demare, Eddie Kay
+ [![](/tangos-al-bardo/images/7ed575818abf.jpg)](/tangos-al-bardo/images/a4dd2692fc32.jpg) Horacio Salgán, Carmen Duval, Juan Carlos Thorry, Lucas Demare, Eddie Kay
 -Cuando concibió su orquesta; digo, en el momento en que empezó a plasmarla, en el corazón, en la imaginación, en la cabeza, ¿qué hizo de esa fantasía?
 -Lo que tenía que hacer: luchar obstinadamente contra ella. O mejor, disciplinarla en una obstinada búsqueda de las fuentes esenciales del Tango. Quería, necesitaba encontrar un norte, un polo magnético para dar con una forma rítmica para canalizar mi fantasía.
 -Cómo lo consiguió?

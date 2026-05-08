@@ -28,14 +28,14 @@ De inmediato, por lo dicho, me dí cuenta que era ciego, y por disimular mi impr
 -Es que... ésta... no es mi especialidad... lo mío es el violín...
 -Caramba, pero no importa... hazme oír algo en el bandoneón (cosa que hizo con "*Buen amigo*"); y asombrándome su retentiva auditiva, tal cual lo hiciesen mis profesionales.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgoEVCU6B3-o7UueXD-s0UdLgisr3uEu72GqNQzyAIUPQX6pdmdF5Uow3EkGpCAni7Z1mtUrEBlY1JpoKYTBPG72GjQxxR-ekBCqgmTReKOGQCHMVD-Pb830F8_UfRhEtI1zEaZuyzKbNLO/s400/Orq.de+caro+que+arm%25C3%25B3+en+1932.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgoEVCU6B3-o7UueXD-s0UdLgisr3uEu72GqNQzyAIUPQX6pdmdF5Uow3EkGpCAni7Z1mtUrEBlY1JpoKYTBPG72GjQxxR-ekBCqgmTReKOGQCHMVD-Pb830F8_UfRhEtI1zEaZuyzKbNLO/s1600/Orq.de+caro+que+arm%25C3%25B3+en+1932.jpg) La orquesta que armó Julio De Caro en 1932. Blasco está sentado delante de Troilo
+ [![](/tangos-al-bardo/images/6c31ef9679b4.jpg)](/tangos-al-bardo/images/5bb3dfe8f5ef.jpg) La orquesta que armó Julio De Caro en 1932. Blasco está sentado delante de Troilo
 Me despedí, no sin antes pedirle su dirección, para luego hablar con Laurenz sobre este magnífico hallazgo, quien, quedando solo al retirarse Maffia, toda la responsabilidad recaería sobre él, aunque su pericia ya lo ubicase entre los grandes.
 Su respuesta no pudo ser más acertada, como también excelente idea:
 -¿Por qué, maestro, no repetimos con Blasco lo que usted conmigo, cuando me conoció? Podríamos entrenarlo, ensayando en privado, y doy fe que es bueno; si lo trae, no escatimaré esfuerzo alguno.
 
 Padrinazgo de Laurenz y, prácticamente su obra, correspondiendo generosamente a cuanto de anterior le brindásemos con Francisco. Justicia reconocer ean noble gesto de este extraordinario ejecutante que, a muy breve plazo, resumiría en una sola las escuelas de Maffia, Arolas, Minotto, Petrucelli y Carlos Marcucci.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh-2798RhUSl2exR-eVCa9rmQPFr3IdSjvMfEngCJW6QhvhKJgZxazlw4xNLnyqfYWU6ZhC6dzUnO-0DkAHe-M81j1LT2CjB3rYquwwGaprLT4NrZxd8rYcN1ofqX5Vl5w_jZxR1Z1hBdmS/s400/Julio-de-caro-sextet-744x574.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh-2798RhUSl2exR-eVCa9rmQPFr3IdSjvMfEngCJW6QhvhKJgZxazlw4xNLnyqfYWU6ZhC6dzUnO-0DkAHe-M81j1LT2CjB3rYquwwGaprLT4NrZxd8rYcN1ofqX5Vl5w_jZxR1Z1hBdmS/s1600/Julio-de-caro-sextet-744x574.jpg) El Sexteto de Julio de Caro en 1930. Blasco está detrás del violinista José Niesso
+ [![](/tangos-al-bardo/images/636898159cd3.jpg)](/tangos-al-bardo/images/4557cc7a60e1.jpg) El Sexteto de Julio de Caro en 1930. Blasco está detrás del violinista José Niesso
  Así fue como Armando Blasco (el cieguito), formó con Pedro Laurenz un dúo que "dio que hablar". Esta comunión perfecta de sentido interpretativo y compañerismo ilimitado, muy raro, en la actualidad significaría en mucho, el mejor *affiattamiento*, tan indispensable, y aunque existen buenos elementos dentro de una muchachada estudiosa, de gran tecnicismo, lamentablemente muy independizada, en su ejeecución académica, y muchos de ellos distanciados de la verdadera realidad del tango: fraseos, rezongos, octavados, pilares espirituales que sostienen a nuestra danza-canción en su verdadero expresar.
 
 ** Julio De Caro **

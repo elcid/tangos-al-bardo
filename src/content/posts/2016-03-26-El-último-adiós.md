@@ -17,7 +17,7 @@ ni borra el recuerdo,
 ni este desconsuelo
 de mi corazón.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhUFcHI5FOSipU8VIyqS30V8v5a-M2sUKgdANJsKsm4YZAEOiAYHid15EvqRfaxFTl-_SQW2etWvpGbiW1ArpBKqYU4HqPqW1YLxKex3ZuwDaphthYYsWTYv0Yf4pU3wBVCC63KQwxRBvUj/s400/MyM.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhUFcHI5FOSipU8VIyqS30V8v5a-M2sUKgdANJsKsm4YZAEOiAYHid15EvqRfaxFTl-_SQW2etWvpGbiW1ArpBKqYU4HqPqW1YLxKex3ZuwDaphthYYsWTYv0Yf4pU3wBVCC63KQwxRBvUj/s1600/MyM.jpg) Michelle Lamb y Murat Erdemsel
+ [![](/tangos-al-bardo/images/d954ed15c5ae.jpg)](/tangos-al-bardo/images/2e7be1a1afb1.jpg) Michelle Lamb y Murat Erdemsel
   El caso es que, hoy no tengo la milonga sabatina porque la Casa de Aragón, en Madrid, no abre sus puertas, ya que la gente se ha tomado el merecido descanso, a raíz de las Pascuas que tanta devoción popular arrastran en España. Incluso lugares como Sevilla, Valencia, Málaga, Extremadura, La Rioja y otras provincias españolas tienen las famosas y sentidas procesiones de Semana Santa que atraen a infinidad de turistas de otros países.
 
 Y vuelvo a **El último adiós** para hablar de la separación artística de una pareja de baile que tenía cautivados a tantos seguidores en distintos continentes. Se trata del turco Murat Erdemsel y la hawaiana Michelle Lamb, que han hecho verdaderas *delicatessen* bailando tangos, valsecitos y milongas, en recordadas exhibiciones. La vida es así. Pasó con Copes-María Nieves, con Javier y Geraldine, y siempre esos divorcios artísticos nos entristecen un poco. Fijate como este valsecito te pone en situación, en los momentos hermosos del idilio trunco.

@@ -19,4 +19,4 @@ Prendidas del sutién, junto a la llavedel íntimo cotorro tanagrinoguardaba las
 Salimos. Y un robado y peregrinocochero nos llevó a la madrugadasahumeria del buduár funambulinoque oyó el adivinado y percantinocrujir de su ternura perfumada.
 Después, cuando nerviosa y apuradade adiós, se retocaba los retiznesde un llanto rimmelario, coaguladasde frío, dos gotitas aniñadasquedáronse mirando de su cisne.
 Horacio Ferrer
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjH64fJsFUABTgibYY3uUH2oWPabjwPPBZ6SgJc7jhtA71Erh0ES78UGVSedpTkbmHbHHEes_L1L2UMfEGrk9BHQZX3IDjkRXlfvDd7muHO9zJrTppQ21i2tm7P60dCcNuuc03srNxNNizeZVvYO3w-nyp3SqPAie8Gi6r4Bb0Z2HigFWcAeQGFG13C3Xni/w244-h400/Horacio%20Ferrer.bmp)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjH64fJsFUABTgibYY3uUH2oWPabjwPPBZ6SgJc7jhtA71Erh0ES78UGVSedpTkbmHbHHEes_L1L2UMfEGrk9BHQZX3IDjkRXlfvDd7muHO9zJrTppQ21i2tm7P60dCcNuuc03srNxNNizeZVvYO3w-nyp3SqPAie8Gi6r4Bb0Z2HigFWcAeQGFG13C3Xni/s725/Horacio%20Ferrer.bmp)
+[![](/tangos-al-bardo/images/8a7ea7cc1d8f.bmp)](/tangos-al-bardo/images/a51de6575c10.bmp)

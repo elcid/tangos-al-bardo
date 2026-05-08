@@ -31,7 +31,7 @@ Además, Calvo que quería hacer negocios en común; me propuso la compra de un 
 En consecuencia, hice una orquesta paralela para que tocara allí, con Miguel Caló y yo en bandoneones, José María Rizzuti en piano y Adolfo Muzzi en violín.
 La orquesta efectiva quedaba en el Florida Dancing”
 “Ta-Ba-Rís”, “Casino Pigall”, “Bar Fresedo”, “Cine Fénix”, de Flores
-![Y Su Orquesta Tipica 1927-1928: Osvaldo Fresedo: Amazon.in: Music}](https://m.media-amazon.com/images/I/51ZHDFOKdDL._UF894,1000_QL80_.jpg)
+![Y Su Orquesta Tipica 1927-1928: Osvaldo Fresedo: Amazon.in: Music}](/tangos-al-bardo/images/99124cdd4492.jpg)
 Durante el año 27, Fresedo volvió a desplegar una intensa labor artística acorde al prestigio alcanzado como director y compositor.La orquesta que podría llamarse titular actuó por entonces en el cabaret “Ta-Ba-Rís”, el antiguo “Royal Pigall”, que también supo del éxito del maestro Fresedo.
 Desde el conocido local nocturno, ubicado en Sarmiento al 800, las actuaciones del autor de “Sollozos” eran transmitidas directamente por LR9 Radio Fénix.
 La formación de la orquesta en estas audiciones, era la señalada a continuación:
@@ -63,7 +63,7 @@ Contrabajo: Luis Bernstein, luego Abraham Krauss.
 Llegaba al cine cuando se prendían las luces del intervalo y tocaba con la orquesta, por lo general un tango.
 Cuando se apagaban las luces para dar comienzo a la película, dejaba mi bandoneón allí y desaparecía, siguiendo la orquesta sin mí.
 Ascendía entonces al coche que me esperaba frente al cine y partía a toda velocidad de regreso al “Bar Fresedo”.
- ![Orquesta Típica Carlos Di Sarli - Todotango.com](https://images.todotango.com/historias/Sextetos_DiSarli.jpg) Por el “Bar Fresedo” habrían pasado Alfonso Lacueva en piano, Luis Minervini y José Della Rocca en bandoneones, José Lorito y Juan Cruz Mateo en violines y el bajista Carmelo Mutarelli.
+ ![Orquesta Típica Carlos Di Sarli - Todotango.com](/tangos-al-bardo/images/dff9c58fc817.jpg) Por el “Bar Fresedo” habrían pasado Alfonso Lacueva en piano, Luis Minervini y José Della Rocca en bandoneones, José Lorito y Juan Cruz Mateo en violines y el bajista Carmelo Mutarelli.
 Se ha dicho a veces que Di Sarli habría grabado integrando la orquesta de Fresedo; esta fue la respuesta del director: “No, nunca grabó conmigo”.
 -“Cuando Di Sarli empezó en mi orquesta en el cine “Fénix” de Flores, le hice todo el repertorio, las instrumentaciones y le di copia de todo, y se debutó allí como “Orquesta Fresedo”.
 Al poco tiempo, volvieron a solicitar mi orquesta para inaugurar el cine Paramount, que estaba siendo refaccionado.

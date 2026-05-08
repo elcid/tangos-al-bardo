@@ -10,7 +10,7 @@ En la nota que realicé en el Blog sobre el destacadísimo médico, investigador
 
 Para sintetizar voy a explicar los integrantes de las dos orquestas que se formaron y sus integrantes, además de los temas. En el folleto que acompaña al compacto, reseñan todo esto y que acá reproduzco. Incluso algunas de las fotos que lo acompañan, que están tomadas por Enrique Snider.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg7tMj3uYkNXtAunAxy_7y8O0KcJkVEf9IAXNXfsyElSlgHtMiBLN1uu5_A2SeOPkhSFdeRSG_gYd8Swv_gq_theYJJLf81Qf8fSpBv2hTlcLlXEiJEmd6ZvmfPSkDK4jNKy2ouS9CKoT4/s1600/Todo+coraz%C3%B3n.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg7tMj3uYkNXtAunAxy_7y8O0KcJkVEf9IAXNXfsyElSlgHtMiBLN1uu5_A2SeOPkhSFdeRSG_gYd8Swv_gq_theYJJLf81Qf8fSpBv2hTlcLlXEiJEmd6ZvmfPSkDK4jNKy2ouS9CKoT4/s1600/Todo+coraz%C3%B3n.jpg) Todo corazón dirigida por Marcelli. Pablo Chiale es el que levanta el pulgar.
+ [![](/tangos-al-bardo/images/6ce878d283e1.jpg)](/tangos-al-bardo/images/6ce878d283e1.jpg) Todo corazón dirigida por Marcelli. Pablo Chiale es el que levanta el pulgar.
 
 -La **Orquesta Todo Corazón** surgió como idea del encuentro fortuito de un músico (**Juan de la Cruz Bringas**) y un médico cardiólogo (**Pablo Chiale**) quien había incursionado en su juventud en esta disciplina artística como violinista.
 
@@ -30,7 +30,7 @@ Gestado con una finalidad solidaria, colaborar con la tarea de dos entidades de 
 
 El compacto contiene 15 temas. En los primeros ocho la orquesta está dirigida por Carlos Pazo. En los siete restante, la dirige Mauricio Marcelli que además es el violín solista y son suyos los arreglos de los mismos. En uno de los temas: *Sueño de juventud*, está Nicolás Ledesma al piano, y a su vez Leopoldo Federico es el bandoneón solista en tres de los temas..
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhuN9GZ4o4XoigJsifb1Fw8UWgzYMq5d0HBvL0F_YUDGYC68KBDa5nJU1R1JZTUldYdrU2MaBEsRZRdcQWohr7dfv6zM9UOTtBex9atufItJE8JAL2dHaMGhZUJKr6lrDbl1K0PYmWh_CU/s1600/Marcelli-Pazo.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhuN9GZ4o4XoigJsifb1Fw8UWgzYMq5d0HBvL0F_YUDGYC68KBDa5nJU1R1JZTUldYdrU2MaBEsRZRdcQWohr7dfv6zM9UOTtBex9atufItJE8JAL2dHaMGhZUJKr6lrDbl1K0PYmWh_CU/s1600/Marcelli-Pazo.jpg) Marcelli y Pazo saludan al final de la presentación del disco
+ [![](/tangos-al-bardo/images/15838cabb258.jpg)](/tangos-al-bardo/images/15838cabb258.jpg) Marcelli y Pazo saludan al final de la presentación del disco
 
 Para ilustrar esta página y aprovechando el regalo de mis amigos Eduardo Sibilin y Carlos -de Flores- (los porteños lucimos como una marca en orillo, el origen barrial), los invito a escuchar tres temas del **CD Latidos**. Primero, el tango de José Pascual: **Arrabal**, con dirección y orquestación de Carlos Pazo. Y a continuación, de Ástor Piazzolla: **Triunfal**. Y para completar, con la participación del cantor Carlos Gari: **Mi tango triste** de Aníbal Troilo y José María Contursi. En estos dos temas la dirección y arreglos son de Mauricio Marcelli, que además es el violín solista.
 

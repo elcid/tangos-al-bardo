@@ -12,7 +12,7 @@ ASÍ NACIÓ ESTE TANGO
 
 Motivado por esa circunstancia suele aparecer el tema, como ocurrió con la idea del título: *"La bordona"*. El "*cantor nacional"* (Gardel, Magaldi, Corsini, etc.) acompañado por guitarristas como introducción a una milonga, estilo, o canción campera, comenzaban con una serie de acordes graves apoyados sobre una o dos notas graves pulsadas con el pulgar. Las cuerdas de ese registro, en el piano, como en la guitarra, eran bordonas.
 
- [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi2POXnyFZFApFEu4xVFu_EYtr_YRsKQRqsjnUEVL1b3VSvYWdFZgFIZ13988pqx7jKqDZzRpeLmCTylkq7CtA5lUNP2hxMWLD-r3b7a__D4Dr5ebhwRpwdcNg18OpDGMzS8-_Jr6OKAG29/s1600/Balca.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi2POXnyFZFApFEu4xVFu_EYtr_YRsKQRqsjnUEVL1b3VSvYWdFZgFIZ13988pqx7jKqDZzRpeLmCTylkq7CtA5lUNP2hxMWLD-r3b7a__D4Dr5ebhwRpwdcNg18OpDGMzS8-_Jr6OKAG29/s1600/Balca.jpg) Emilio Balcarce
+ [![](/tangos-al-bardo/images/b1f8a9336a29.jpg)](/tangos-al-bardo/images/b1f8a9336a29.jpg) Emilio Balcarce
 
 Compuse entonces un bordoneo que me sirviera como introducción a una melodía con sabor nacional, también como puente para el desarrollo de la misma, desembocando luego en un tema de contraste con fuerte sabor porteño y volver de nuevo al bordoneo inicial. Por eso compuse "*La bordona",* bajo estos parámetros y como me lo dictaba el corazón en ese momento.
 
