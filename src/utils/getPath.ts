@@ -1,6 +1,6 @@
-export function getPath(id: string, slug: string): string {
+export function getPath(id: string, slug?: string): string {
   const base = import.meta.env.BASE_URL || '/';
-  return `${base}posts/${slug}/`;
+  return `${base}posts/${slug || id}/`;
 }
 
 export function slugifyAllTags(tags: string[]): string[] {
