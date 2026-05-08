@@ -1,0 +1,73 @@
+---
+import Layout from "@/layouts/Layout.astro";
+import Card from "@/components/Card.astro";
+import { getCollection } from "astro:content";
+import { SITE } from "@/config";
+import type { GetStaticPaths } from "astro";
+
+const base = import.meta.env.BASE_URL || '/';
+
+export const getStaticPaths = (async () => {
+  const posts = await getCollection("posts");
+  const yearSet = new Set<number>();
+  for (const p of posts) {
+    yearSet.add(parseInt(p.data.date.slice(0, 4)));
+  }
+  return [...yearSet].map((year) => {
+    const yearPosts = posts.filter(
+      (p) => parseInt(p.data.date.slice(0, 4)) === year
+    ).sort(
+      (a, b) => new Date(b.data.date).getTime() - new Date(a.data.date).getTime()
+    );
+    return {
+      params: { year: String(year) },
+      props: { year, posts: yearPosts },
+    };
+  });
+}) satisfies GetStaticPaths;
+
+const { year, posts } = Astro.props;
+
+// Group by month
+const months = ["enero","febrero","marzo","abril","mayo","junio",
+                "julio","agosto","septiembre","octubre","noviembre","diciembre"];
+const monthMap = new Map<number, typeof posts>();
+for (const p of posts) {
+  const m = parseInt(p.data.date.slice(5, 7));
+  if (!monthMap.has(m)) monthMap.set(m, []);
+  monthMap.get(m)!.push(p);
+}
+const sortedMonths = [...monthMap.entries()].sort((a, b) => b[0] - a[0]);
+---
+
+<Layout
+  title={`${year} — Archivo — ${SITE.title}`}
+  description={`Artículos de ${year} en Tangos al bardo`}
+>
+  <section>
+    <h1 class="text-3xl sm:text-4xl font-bold text-skin-accent mb-2">
+      {year}
+    </h1>
+    <p class="text-lg text-skin-muted mb-8">
+      {posts.length} artículo{posts.length !== 1 ? 's' : ''}
+    </p>
+
+    {sortedMonths.map(([month, monthPosts]) => (
+      <div class="mb-8">
+        <h2 class="text-xl font-semibold text-skin-accent mb-4 pb-2 border-b border-skin-border">
+          {months[month - 1]}
+          <span class="ml-2 text-sm font-normal text-skin-muted">({monthPosts.length})</span>
+        </h2>
+        <ul>
+          {monthPosts.map((data) => <Card variant="h3" {...data} />)}
+        </ul>
+      </div>
+    ))}
+  </section>
+
+  <div class="mt-12 text-center">
+    <a href={`${base}archivo/`} class="text-skin-accent hover:underline">
+      &larr; Todos los años
+    </a>
+  </div>
+</Layout>

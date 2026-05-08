@@ -1,0 +1,44 @@
+---
+import Layout from "@/layouts/Layout.astro";
+import LinkButton from "@/components/LinkButton.astro";
+import { getCollection } from "astro:content";
+import { SITE } from "@/config";
+
+const base = import.meta.env.BASE_URL || '/';
+const posts = await getCollection("posts");
+
+// Group posts by year
+const yearMap = new Map<number, number>();
+for (const p of posts) {
+  const year = parseInt(p.data.date.slice(0, 4));
+  yearMap.set(year, (yearMap.get(year) || 0) + 1);
+}
+const years = [...yearMap.entries()].sort((a, b) => b[0] - a[0]);
+const total = years.reduce((sum, [, c]) => sum + c, 0);
+---
+
+<Layout
+  title={`Archivo — ${SITE.title}`}
+  description="Archivo cronológico de todos los artículos"
+>
+  <section>
+    <h1 class="text-3xl sm:text-4xl font-bold text-skin-accent mb-4">
+      Archivo
+    </h1>
+    <p class="text-lg text-skin-muted mb-8">
+      {total} artículos en {years.length} años
+    </p>
+
+    <div class="grid grid-cols-2 sm:grid-cols-3 lg:grid-cols-5 gap-3">
+      {years.map(([year, count]) => (
+        <LinkButton
+          href={`${base}archivo/${year}/`}
+          class="block p-4 border border-skin-border rounded text-center hover:bg-skin-accent hover:text-white transition-colors"
+        >
+          <div class="text-2xl font-bold">{year}</div>
+          <div class="text-sm text-skin-muted">{count} artículo{count !== 1 ? 's' : ''}</div>
+        </LinkButton>
+      ))}
+    </div>
+  </section>
+</Layout>

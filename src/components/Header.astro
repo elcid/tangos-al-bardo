@@ -26,6 +26,9 @@ const isActive = (path: string) => {
       <a href={`${base}tags/`} class:list={["font-medium hover:text-skin-accent", { "text-skin-accent": isActive("/tags") }]}>
         Creadores
       </a>
+      <a href={`${base}archivo/`} class:list={["font-medium hover:text-skin-accent", { "text-skin-accent": currentPath.startsWith(base.slice(0, -1) + "/archivo") }]}>
+        Archivo
+      </a>
     </nav>
   </div>
 </header>

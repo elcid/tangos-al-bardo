@@ -2,6 +2,7 @@
 import Layout from "@/layouts/Layout.astro";
 import Card from "@/components/Card.astro";
 import LinkButton from "@/components/LinkButton.astro";
+import YearNav from "@/components/YearNav.astro";
 import { getCollection } from "astro:content";
 import { getSortedPosts } from "@/utils/posts";
 import { SITE } from "@/config";
@@ -19,24 +20,41 @@ const page = 1;
   title={`Artículos — ${SITE.title}`}
   description="Todos los artículos del blog Tangos al bardo"
 >
-  <section id="all-posts">
-    <h1 class="text-3xl sm:text-4xl font-bold text-skin-accent mb-8">
-      Todos los artículos (página 1 de {totalPages})
-    </h1>
-    <ul>
-      {pagePosts.map((data) => <Card variant="h2" {...data} />)}
-    </ul>
-  </section>
+  <h1 class="text-3xl sm:text-4xl font-bold text-skin-accent mb-8">
+    Artículos
+  </h1>
 
-  <nav class="flex justify-center gap-6 mt-12 text-lg">
-    <span></span>
-    {totalPages > 1 && (
-      <LinkButton
-        href={`${base}posts/2/`}
-        class="px-4 py-2 border border-skin-border rounded hover:bg-skin-accent hover:text-white transition-colors"
-      >
-        Más antiguos &rarr;
-      </LinkButton>
-    )}
-  </nav>
+  <div class="lg:grid lg:grid-cols-[1fr_220px] lg:gap-8">
+    <div>
+      <p class="text-sm text-skin-muted mb-4">
+        Página 1 de {totalPages} &middot; {sortedPosts.length} artículos en total
+      </p>
+      <ul>
+        {pagePosts.map((data) => <Card variant="h2" {...data} />)}
+      </ul>
+
+      <nav class="flex justify-center items-center gap-3 mt-12 text-sm flex-wrap">
+        <span class="text-skin-muted">Pág 1 de {totalPages}</span>
+        {totalPages > 1 && (
+          <LinkButton
+            href={`${base}posts/2/`}
+            class="px-3 py-1 border border-skin-border rounded hover:bg-skin-accent hover:text-white transition-colors"
+          >
+            Siguiente &rarr;
+          </LinkButton>
+        )}
+        {totalPages > 10 && (
+          <LinkButton
+            href={`${base}posts/${totalPages}/`}
+            class="px-3 py-1 border border-skin-border rounded hover:bg-skin-accent hover:text-white transition-colors"
+          >
+            Última ({totalPages})
+          </LinkButton>
+        )}
+      </nav>
+    </div>
+    <div class="hidden lg:block">
+      <YearNav />
+    </div>
+  </div>
 </Layout>

@@ -4,6 +4,7 @@ import Card from "@/components/Card.astro";
 import LinkButton from "@/components/LinkButton.astro";
 import Datetime from "@/components/Datetime.astro";
 import Breadcrumbs from "@/components/Breadcrumbs.astro";
+import YearNav from "@/components/YearNav.astro";
 import { getCollection } from "astro:content";
 import { getSortedPosts, getPageNumbers } from "@/utils/posts";
 import { SITE } from "@/config";
@@ -19,7 +20,6 @@ export const getStaticPaths = (async () => {
   const paths: any[] = [];
 
   for (const p of sortedPosts) {
-    // Astro 6: use p.id as slug fallback (glob loader may not set slug)
     const postSlug = p.slug || p.id;
     if (!postSlug) continue;
     paths.push({
@@ -57,7 +57,6 @@ let fecha = "";
 
 if (!isPage) {
   post = props.post;
-  // Astro 6: use render() from astro:content instead of post.render()
   const { render } = await import('astro:content');
   Content = (await render(post)).Content;
   title = post.data.title;
@@ -77,31 +76,59 @@ if (!isPage) {
     title={`Artículos pág. ${props.page} — ${SITE.title}`}
     description="Todos los artículos del blog Tangos al bardo"
   >
-    <section id="all-posts">
-      <h1 class="text-3xl sm:text-4xl font-bold text-skin-accent mb-8">
-        Página {props.page} de {props.totalPages}
-      </h1>
-      <ul>
-        {props.posts.map((data: any) => <Card variant="h2" {...data} />)}
-      </ul>
-    </section>
+    <h1 class="text-3xl sm:text-4xl font-bold text-skin-accent mb-8">
+      Artículos
+    </h1>
 
-    <nav class="flex justify-center gap-6 mt-12 text-lg">
-      <LinkButton
-        href={props.page === 2 ? `${base}posts/` : `${base}posts/${props.page - 1}/`}
-        class="px-4 py-2 border border-skin-border rounded hover:bg-skin-accent hover:text-white transition-colors"
-      >
-        &larr; Más recientes
-      </LinkButton>
-      {props.page < props.totalPages && (
-        <LinkButton
-          href={`${base}posts/${props.page + 1}/`}
-          class="px-4 py-2 border border-skin-border rounded hover:bg-skin-accent hover:text-white transition-colors"
-        >
-          Más antiguos &rarr;
-        </LinkButton>
-      )}
-    </nav>
+    <div class="lg:grid lg:grid-cols-[1fr_220px] lg:gap-8">
+      <div>
+        <p class="text-sm text-skin-muted mb-4">
+          Página {props.page} de {props.totalPages}
+        </p>
+        <ul>
+          {props.posts.map((data: any) => <Card variant="h2" {...data} />)}
+        </ul>
+
+        <nav class="flex justify-center items-center gap-3 mt-12 text-sm flex-wrap">
+          {props.page > 2 && (
+            <LinkButton
+              href={`${base}posts/`}
+              class="px-3 py-1 border border-skin-border rounded hover:bg-skin-accent hover:text-white transition-colors"
+            >
+              Primera
+            </LinkButton>
+          )}
+          {props.page > 1 && (
+            <LinkButton
+              href={props.page === 2 ? `${base}posts/` : `${base}posts/${props.page - 1}/`}
+              class="px-3 py-1 border border-skin-border rounded hover:bg-skin-accent hover:text-white transition-colors"
+            >
+              &larr; Anterior
+            </LinkButton>
+          )}
+          <span class="text-skin-muted px-2">{props.page} / {props.totalPages}</span>
+          {props.page < props.totalPages && (
+            <LinkButton
+              href={`${base}posts/${props.page + 1}/`}
+              class="px-3 py-1 border border-skin-border rounded hover:bg-skin-accent hover:text-white transition-colors"
+            >
+              Siguiente &rarr;
+            </LinkButton>
+          )}
+          {props.page < props.totalPages - 1 && (
+            <LinkButton
+              href={`${base}posts/${props.totalPages}/`}
+              class="px-3 py-1 border border-skin-border rounded hover:bg-skin-accent hover:text-white transition-colors"
+            >
+              Última ({props.totalPages})
+            </LinkButton>
+          )}
+        </nav>
+      </div>
+      <div class="hidden lg:block">
+        <YearNav />
+      </div>
+    </div>
   </Layout>
 ) : (
   <Layout
